@@ -32,7 +32,7 @@
 
 **Today’s young Generation are being handed the biggest challenge of all; saving biodiversity the living 'Quality of Life' on this planet. The indiscriminate use of the earth's resources, at a rate faster than the earth can regenerate, leave the next generation with shrinking reserves.**
 
-**Not addressing immediate needs is an insult to the young. People with passion, purpose and practical skills WoMan must Act on the environMental realities they face.**
+**Not addressing immediate needs is an insult to the young. People with passion, purpose and practical skills make the world a better place. Its time to Act on the environMental realities they face.**
 ...
 
 
