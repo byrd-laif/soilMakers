@@ -22,7 +22,7 @@
 
 **The loss of biodiversity on the planet is directly related to the behaviours of human beings. Humans have destroyed and continue to destroy the habitats of species on a daily basis. The catastrophic impact of loss of biodiversity (The Sixth Extinction) will affect the planet and its inhabitants for generations to come.** 
 
-**Having accepted this circumstance, responsibility then means the *ability* to have a creative response to the situation as it is Now. The *seeds of opportunity*, and awareness to   take the moment and transform it into a better situation.** 
+**Having accepted this circumstance, responsibility then means the *ability* to have a creative response to the situation as it is Now. The *seeds of opportunity*, and awareness to take the moment and transform it into a better situation.** 
 
 #### *An opportunity for the creation of something new and beautiful.*
 
@@ -32,7 +32,7 @@
 
 **Today’s young Generation are being handed the biggest challenge of all; saving biodiversity the living 'Quality of Life' on this planet. The indiscriminate use of the earth's resources, at a rate faster than the earth can regenerate, leave the next generation with shrinking reserves.**
 
-**Not addressing immediate needs is an insult to the young. WoMan must Act on the environMental realities they face.**
+**Not addressing immediate needs is an insult to the young. People with passion, purpose and practical skills WoMan must Act on the environMental realities they face.**
 ...
 
 
