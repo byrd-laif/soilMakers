@@ -5,7 +5,7 @@ date: 2018-08-13
 
 # Experience The Soil Rehabilitation Magic of Bokashi
 
-## *A Revival Of The Gaian Connection; a journey of healing the Soil too heal the Soul.*
+## *A Revival Of The Gian Connection; a journey of healing the Soil too heal the Soul.*
 
 **Life is not possible without Rich Fertile Soil.**
 
