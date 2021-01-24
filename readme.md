@@ -2,11 +2,15 @@
 
 **Art, as the vehicle of feeling with and thinking through living in a damaged world, connecting and healing soil to soul.**
 
+[Live Blog On Matrix - Soil Seekers](https://matrix.to/#/!EwezVvVjpxKVCMIuRM:matrix.org?via=matrix.org&via=kde.org&via=converser.eu)
+
 ## *Lifestyles For Change Sharing Circles*
 
 **Designed To Be Fun, Creative, Interactive And Resourceful. At a time of ecological and economic precarity, 'Salon Style' gatherings/sharing circles, offer space for rethinking and remaking relations with eachother and the environment.**
 
 **Cultivating relationships and commUnity by revitalizing 'The Art of Conversation'. To awaken posibility and creative insight, refine the taste and increase the knowledge of the participants through guided conversation organized around cultures and ideas reflective of the era in which they live.**
+
+[Real time interactive salon style sharing circle on Matrix. Join the conversation in the **Vivarium Interactive Salon ~ Global CommUnity for Local Impact**](https://matrix.to/#/!LSpVaMCiYQehpJONFF:matrix.org?via=matrix.org&via=t2bot.io&via=stux.chat)
 
 ### *Examining ecologic behaviors; conservation as a consiquence of lifestyle / production.*
 
@@ -36,7 +40,7 @@
 ...
 
 
-### Cooperation and Harmony
+### Cooperation and Harmony ~ Sharing Circle
 
 #### SOCIOCRACY AND DYNAMIC GOVERNANCE VALUES
 - Effectiveness: Get things done
@@ -62,7 +66,8 @@
 - Requires training of all participants to be effective
 - Requires efficient and timely communication and facilitation
 
-
+#### Connect
+[Contact Direct on Matrix for details on starting an Interactive Salon/Sharing Circle](https://matrix.to/#/!ibYXXCkubbZiWtkmhX:matrix.org?via=matrix.org)
 
 
 
