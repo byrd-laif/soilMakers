@@ -69,9 +69,12 @@ Note: The brick creates space for the liquid fertilizer to collect and to ensure
 
 **Molasses : EM/Serum : Warm water(pure) : Absorbent material**
 
-EM means effective micro-organisms. EM consists of mixed cultures of
-beneficial, naturally occurring micro-organisms such as lactic acid
-bacteria, yeast, photosynthetic bacteria and actinomycetes. "EM" can be purchased online or can be made with simple ingredients.
+EM means effective micro-organisms. EM consists of mixed cultures of beneficial, naturally occurring micro-organisms such as
+
+EM is a laboratory cultured mixture of microorganisms consisting mainly of lactic acid bacteria, photosynthetic bacteria (purple bacteria) and yeasts which co-exist for the benefit of whichever environment they are introduced.
+
+Molasses have several uses beyond that of a straightforward food additive. It can be used as the base material for
+fermentation into rum and as the carbon source for in situ remediation of chlorinated hydrocarbons. It can be used as a chelating agent to remove rust where a rusted part stays a few weeks in a mixture of 1 part molasses and 10 parts water.
 
 **50ml molasses : 50ml EM/Serum : 250-300ml water : 5kg absorbent material**
 

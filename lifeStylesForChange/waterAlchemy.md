@@ -13,7 +13,7 @@ date: 2018-08-13
 **Cultivate Living Healing Water Essences through the fermentation of citrus peels and other naturally aromatic fresh remnants into a probiotic and multi purpose; Luxury Whole Body, Home Environment and *Earth Care* Cleaning and Healing Products.**
 
 #### *Nourishing and gentle the Whole Family even Mother Nature can enjoy.*
-**Remarkably enough Human Skin, the Water and all that come in contact with that, the Soil, can find natural healing benefits from probiotics with this one easy process. Yes, Nature is that simple, effective and synergistic.**
+**Conservation as a consequence of production! Remarkably enough Human Skin, the Water and all that come in contact with that, the Soil, can find natural healing benefits from probiotics with this one easy process. Yes, Nature is that simple, effective and synergistic.**
 
 #### Self-care that goes far beyond the self.
 **Explore an alternative way to connect; Symbioticly heal and support the whole body in a way that heals and supports the environment. A probiotic rich super food for the microbiome of the body, Soil to Soul.**
@@ -22,6 +22,8 @@ date: 2018-08-13
 ***Eco-Enzyme - Fermented Fruit Peel (Orange, lemon, lime and Pineapple)***
 **Teaming with antioxidants, Eco-Enzyme is a powerful multi-functional tool.**
 
+Eco-Enzymes are complex organic substance of protein chains, mineral salts and juvenile hormones.
+
 Through fermentation, the ingredients used for making Probiotic Eco Enzyme will have effect on each other, creating a complex but stable enzymatic ecosystem. A detoxification and transfer of anti-nutrients into nutrients occurs, with nutrient enhancement and the creation of micro-nutrients.
 
 Following fermentation, the natural antibacterial properties of fruit peels are further enhanced as organic substances are decomposed, yielding secondary metabolites known as bioactive compounds or phytochemicals. The extraction of enzymes, organic acids, and phenolic compounds through the fermentation process is preferred over conventional methods that require costly solvents, involve the possible degradation of heat-labilecompounds, and through which it is difficult to obtain high purity extracts.
@@ -29,7 +31,11 @@ Following fermentation, the natural antibacterial properties of fruit peels are 
 
 #### *Why make Eco-Enzyme?*
 
-**Cleaning products made with chemicals pollute the underground water, rivers and surrounding eco-systems.** These conventional cleaning products contain harmful amounts of chemicals such as phosphate, nitrates, ammonia, chlorine etc. The accumulated effect of these chemicals released from every household causes significant damage to the health of the environment and the body. **Eco-enzyme is a solution to a very big problem.** By symbioticly keeping the body healthy and restoring vitality and strength to the environment. It is easy to DIY at negligible cost, free of harmful pollutants, effective, and multipurpose.
+**Cleaning products and fertilizers made with chemicals pollute the underground water, rivers and surrounding eco-systems.** These conventional cleaning products contain harmful amounts of chemicals such as phosphate, nitrates, ammonia, chlorine etc. The accumulated effect of these chemicals released from every household causes significant damage to the health of the environment and the body. **Eco-enzyme is a solution to a very big problem.** By symbioticly keeping the body healthy and restoring vitality and strength to the environment. It is easy to DIY at negligible cost, free of harmful pollutants, effective, and multipurpose.
+
+There is a serious global environmental resource problem of water, soil and energy that are now coming to bear on food production, malnutrition and the incidence of diseases. Waterborne infections account for 80% of all infectious diseases. By 2025, half the world population will be living in water-stressed areas.(WHO)
+
+**Re-use of wastewater, to recover water, nutrients, or energy, is becoming an important strategy.**
 
 #### *Stop the killing Gaia is a Microbiome - Cultivate Cultures That Heal*
 
@@ -45,19 +51,19 @@ Following fermentation, the natural antibacterial properties of fruit peels are 
 
 #### **Body And Soil Microbial Gardens** 
 
-**The human body contain 10 times more bacteria than human cells, meaning around 100 trillion microbes make up the physical human body. Humans are Wild in this way. The largest colony is located in the stomach and intestines. The bacteria digest substances that help the immune system defend against invaders. This exact same process happens in soil, water and the food that comes from it. Protect the microbes with Probiotics. Doing so will keep the microbiome full of live beneficial organisms, which will help keep digestion, immunity and overall health on track. Body and Soil, encourage the growth of healthy bacteria.**
+**The human body contain 10 times more bacteria than human cells, meaning around 100 trillion microbes make up the physical human body.** Humans are Wild in this way. The largest colony is located in the stomach and intestines. The bacteria digest substances that help the immune system defend against invaders. This exact same process happens in soil, water and the food that comes from it. Protect the microbes with Probiotics. Doing so will keep the microbiome full of live beneficial organisms, which will help keep digestion, immunity and overall health on track. Body, Soil and Water encourage the growth of healthy bacteria.
 
-**What all cultured 'foods' have in common is an abundance of lactic acid bacteria, yeasts, and moulds that produce enzymes which break down and alter the original foods. The microbes eat the sugars, digesting them and excrete metabolites. There are many targeted uses for these metabolites. Companies package them and sell them at a high cost. The majority of products on the market are powdered or freeze-dried, this process causes damage to the microbes, resulting in 90 to 95% die off. This means, even though colony counts are high, only 5 to 10% of the microbes are actually alive.** 
+What all cultured 'foods' have in common is an abundance of lactic acid bacteria, yeasts, and moulds that produce enzymes which break down and alter the original foods. The microbes eat the sugars, digesting them and excrete metabolites. There are many targeted uses for these metabolites. Companies package them and sell them at a high cost. The majority of products on the market are powdered or freeze-dried, this process causes damage to the microbes, resulting in 90 to 95% die off. This means, even though colony counts are high, only 5 to 10% of the microbes are actually alive.
 
 #### *Few create a product that can truly rival real, live home ferments.*
 
 **Eco-Pro*Biotic* is a simple process for encouraging natural fermentation by lactic acid-forming bacteria such as Lactobacillus species and naturally-occurring wild yeasts of fruit and plant food remnants and brown sugar. The fermentation process produces amino acids and peptides that help skin’s cellular renewal.**
 
-**Fermentation is a kind of detoxification process, a transfer of anti-nutrients into nutrients, nutrient enhancement and the creation of micro-nutrients occurs. This process also increases the bioavailability, making it so the skin is able to absorbe the nutrients, for brighter and more hydrated skin. The process creates new amino acids, organic acids, and antioxidants that didn’t originally exist in the raw material, naturaly optimized to provide the most nutrition to the skin. The fermentation process transforms the natural substances into a lightweight essence that immediately seeps into skin and mildly exfoliates it with lactic acid. A product that can be applied as a moisturizer, serum or mask, enabling the skin to more readily accept and absorb these ingredients.**
+**Fermentation is a kind of detoxification process, a transfer of anti-nutrients into nutrients, nutrient enhancement and the creation of micro-nutrients occurs.** This process also increases the bioavailability, making it so the skin is able to absorbe the nutrients, for brighter and more hydrated skin. The process creates new amino acids, organic acids, and antioxidants that didn’t originally exist in the raw material, naturaly optimized to provide the most nutrition to the skin. The fermentation process transforms the natural substances into a lightweight essence that immediately seeps into skin and mildly exfoliates it with lactic acid. A product that can be applied as a moisturizer, serum or mask, enabling the skin to more readily accept and absorb these ingredients. 
 
 #### *There is a microbiome connection between our Skin and the Soil.* 
 
-**Eco-Enzyme is an ecologicaly responsible option** for fresh fruit remnants, those living in apartments/condos or for those looking to use their food remnants as a nutrient rich probiotic water and soil amendment. Use in the garden, plant pots or the environmet as a gift of thanks, probiotic water for Mother Earth. No garden is required! Be creative. Whats around ...
+**Eco-Enzyme is an ecologicaly responsible option** for fresh fruit remnants, those living in apartments/condos or for those looking to use their fresh food remnants as a nutrient rich probiotic water and soil amendment. Use in the garden, plant pots or the environmet as a gift of thanks, probiotic water for Mother Earth. No garden is required! Be creative. Whats around ...
 
 **Discover the magic of eco-enzyme and how it impacts:**
 
@@ -71,14 +77,18 @@ Following fermentation, the natural antibacterial properties of fruit peels are 
 #### *Some Eco-Enzyme Benefits:*
 
 **Safe**- Eco-Enzymes are toxic free and perfect for the most sensitive skin at any age.
+Enzymes exhibit a number of features that make their use advantageous. They do not present disposal problems, are biodegradable being mostly proteins and peptides. Enzymes as catalysts have been exploited since the 1960s, several enzyme-catalyzed processes have been successfully introduced to industry, e.g. in the production of certain foodstuffs, pharmaceuticals and agrochemicals.
 
-**Reduce Pollution**- Methane gas released from disposed garbage can trap 21 times more heat than CO2, worsening the global warming condition.
+**Reduce Water Pollution**- Water pollution is a major global problem, one of the leading worldwide **causes of death and disease**, accounting for the deaths of more than 14,000 people daily(2006). Eco-Enzyme is utilized as a low-cost alternative to
+improve wastewater treatment processes.
 
-**Multiple Usage**- Natural household cleaner, body wash, wound healing, air purifier, laundry detergent, car care, fabric softener, organic fertilizer, etc. Adding Eco Enzyme to food and water for feeding domestic animals can boost their immune system and improve the quality of poultry or meat.
+**Multiple Usage**- Natural household cleaner, body wash, mouth wash, wound healing, air purifier, laundry detergent, car care, fabric softener, organic fertilizer, etc. Adding Eco Enzyme to food and water for feeding domestic animals can boost their immune system and improve the quality of poultry or meat.
 
-**Purify Underground Water**- Enzyme residues flow underground and help to purify ground water that they come in contact with.
+**Fertilizer**- The enzyme converts ammonia to nitrate (NO3-), a natural and useful hormone and nutrient for plants.
 
-**Purify Air**- Remove odors from toxic air released from smoking, car exhaust, chemical residues of household products, etc.
+**Purify Underground Water**- Enzyme residues flow underground and help to purify ground water that they come in contact with. A 9% solution of Eco-Enzyme is effective in removing ammonia nitrogen and phosphorus, and in neutralizing municipal wastewater, within a period of 5 days.
+
+**Purify Air**- Remove odors from toxic air released from smoking, car exhaust, chemical residues of household products, etc. Methane gas released from poorly disposed organic food waste can trap 21 times more heat than CO2, worsening the global warming condition.
 
 **Clearing Drains**- Eco-enzyme can be used for clearing city drains after a storm.
 
@@ -86,11 +96,11 @@ Following fermentation, the natural antibacterial properties of fruit peels are 
 
 #### *Eco Enzyme is easy to make, three ingredients are required:*
 
-- brown sugar
+- molasses or brown sugar
 - water
 - fresh fruit remnants
 
-It’s important not to expose the ferment to the air. The fermentation can remain active even at temperatures as high as 100C. Thought the fermentation process carbon dioxide is absorbed and oxygen released.
+It’s important not to expose the ferment to the air. The fermentation can remain active even at temperatures as high as 100C.  Thought the fermentation process carbon dioxide is absorbed and oxygen released.
 
 **Stable**
 
@@ -121,7 +131,7 @@ value below 3.5, this ferment usually produces a beautiful safe and stable pH. r
 **What can be done with it:**
 
 - Cleansing the body - natural conditioner and moisturizer for the skin.
-- Wound cleaner - burns, cuts, abrasions, diaper rash, bed soars, diabetic wounds ...
+- Wound cleaner - mouth wash, burns, cuts, abrasions, diaper rash, bed soars, diabetic wounds ...
 - Cleansing the home & drainage systems
 - Kill and Repel Insects
 - Fertilize plants and Rehabilitate Soil
@@ -148,7 +158,7 @@ value below 3.5, this ferment usually produces a beautiful safe and stable pH. r
 This is just a guideline, experiment and play. The smaller choped the pieces the better the ferment.
 
 **Step 4:**
-- Close the container and let the mixture **ferment for 3 months.** In the first week inspect daily, open and stir or shake. If not using a airlock this must be done daily! Leave the cap a little lose or put a balloon over to avoid an explosion! A cloth with elastic is not suitable for this type of fermentation. Date the bin!
+- Close the container and let the mixture **ferment for 3 months.** During the first month, gases will be released during fermentation process. Pressure will built up in the container, release daily to avoid rupturing or use an airlock. Leave the cap a little lose or put a balloon over to avoid an explosion! A cloth with elastic is not suitable for this type of fermentation. Date the bin!
 
 **Step 5:**
 - Harvest Day!!! In a suitable size vessel with a suitable size strainer, separate the solids form the liquids. The filtered enzyme can be bottled and is ready for use. A portion of solids can be used as a starter for the next batch, dried and used as a powdered fertilizer, or add them to the garden compost or turn them directly into the soil. Even dumping them down the toilet is perfectly fine.
