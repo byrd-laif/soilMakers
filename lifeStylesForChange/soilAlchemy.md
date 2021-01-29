@@ -27,7 +27,7 @@ Layering food remnants with a starter mix, the microbes present in the starter m
 
 Although the terms humus and compost are informally used interchangeably, they are distinct soil components with different origins; humus is created through anaerobic fermentation, while compost is the result of aerobic decomposition.
 
-**Step 2: Decomposition** - is done in the garden, compost pile, or a semi closed pro-biotic *soil factory*. Shallow Bury the contents of the bin in the garden or compost bin. Up to 1/3 can be added to the bottom of indoor or outdoor pots.
+**Step 2: Decomposition** - is done in the garden, compost pile, or a semi closed pro-biotic *soil factory*. Shallow bury the contents of the bin in the garden or compost bin. Up to 1/3 can be added to the bottom of indoor or outdoor pots.
 
 Most food remnants will be indistinguishable from the soil in a week or two, although certain items like bones, egg shells, and corn cobs will take longer to disappear and will act as a slow release fertilizer. While the organic matter is decomposing it is still quite acidic so wait 10 days before planting.
 
@@ -36,13 +36,11 @@ The active ingredients in the process are the effective microorganisms – a com
 A healthy Bokashi bucket does not create bad odors, greenhouse gas, or heat - uses no power, and is completely natural. The aroma of the open bin is slightly sweet, fermented (sour), perhaps slightly alcoholic odor and should not be offensive.
 
 #### *Benefits of Bokashi*
-
-**A solution to a big problem.**
-**Responsible management of organic kitchen remnants can reduce 70% of the total waste production and reduce the bad gases produced during organic decomposition, while saving the environment by creating bio-active soil and pro-biotic fertilizer to combat the negative use of toxic chemicals and pollutants.**
+**A solution to some very big problems.**
+**Ecologically Responsible management of organic kitchen remnants can reduce 70% of the total waste production and reduce the bad gases produced during organic decomposition, while saving the environment by creating bio-active soil and pro-biotic fertilizer to combat the negative use of toxic chemicals and pollutants.**
 
 #### *Conservation as a consequence of production.*
-
-Bokashi is an ecologically responsible option for food remnants of those living in apartments/condos or for those looking to use their food remnants as a nutrient rich pro-biotic soil amendment in their garden, plant pots or the environment as a gift of thanks, fertile soil for Mother Earth. No traditional garden is required! Be creative. Whats around ...
+Bokashi, the ecologically responsible option for food remnants of those living in apartments/condos or for those looking to use their food remnants as a nutrient rich pro-biotic soil amendment in their garden, plant pots or the environment as a gift of thanks, fertile soil for Mother Earth. No traditional garden is required! Be creative. Whats around ...
 
 **Bokashi can be:**
 

@@ -8,11 +8,10 @@ date: 2018-08-13
 
 ## *Water Alchemy - Recycling organic materials through living organisms naturally purifies water.*
 
-### *Conservation as a consequence of production!*
+### *Water Therapy; the practice of spending time *Cultivating Living Healing Water* for the purpose of enhancing whole health, earth care, wellness, and happiness. A practice of *Symbiotic Connection* with the natural world and with each other, healing water to soul.*
 
-#### Water Therapy; the practice of spending time Cultivate Living Healing Water Essences for the purpose of enhancing whole health, earth care, wellness, and happiness. A practice of Symbiotic Connection with the natural world and with each other, healing water to soul.
-
-***Experience Symbiotic Living; Healing and Caring for Earth Mothers- Water, Soil and Air.***
+#### *Conservation as a consequence of production.*
+***Symbiotic Living; Healing and Caring for Earth Mothers- Water, Soil and Air.***
 *Explore an alternative way to connect; Symbiotically heal and support the whole body in a way that heals and supports the environment. A pro-biotic rich super food for the micro-biome of the body, Soil to Soul.* Remarkably enough the physical body, the Water and all that come in contact with that, the Soil, can find natural healing benefits from pro-biotic eco-enzymes with this one easy process.
 
 #### Self-care that goes far beyond the self.
@@ -56,7 +55,7 @@ There is a serious global environmental resource problem of water, soil and ener
 
 **Biotic- ‘life’.**
 
-**Why make Pro_Biotic Eco-Enzymes?**
+**Why make Pro-Biotic Eco-Enzymes?**
 *On Behalf Of Life.* A Gift of Life, given symbiotically by healing and cleaning the whole body and built environment with Pro-biotic Eco-enzymes. More than skin deep, **Soul Food for the Micro-biome of Mother Earth's Water and Soil.**
 
 ### **Body And Soil Microbial Gardens** 
