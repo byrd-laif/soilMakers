@@ -8,15 +8,15 @@ date: 2018-08-13
 
 ## *Water Alchemy - Recycling organic materials through living organisms naturally purifies water.*
 
-### Water Therapy; the practice of spending time Cultivate Living Healing Water Essences for the purpose of enhancing whole health, earth care, wellness, and happiness. A practice of Symbiotic Connection with the natural world and with each other, healing water to soul.
+### *Conservation as a consequence of production!*
 
-#### *Conservation as a consequence of production!*
+#### Water Therapy; the practice of spending time Cultivate Living Healing Water Essences for the purpose of enhancing whole health, earth care, wellness, and happiness. A practice of Symbiotic Connection with the natural world and with each other, healing water to soul.
+
 ***Experience Symbiotic Living; Healing and Caring for Earth Mothers- Water, Soil and Air.***
-Remarkably enough the physical body, the Water and all that come in contact with that, the Soil, can find natural healing benefits from probiotics with this one easy process. Through the fermentation of citrus peels and other naturally aromatic fresh remnants into a probiotic and multi purpose; Luxury Whole Body, Built Environment and *Earth Care* Healing and Cealing Products.**
+*Explore an alternative way to connect; Symbioticly heal and support the whole body in a way that heals and supports the environment. A probiotic rich super food for the microbiome of the body, Soil to Soul.* Remarkably enough the physical body, the Water and all that come in contact with that, the Soil, can find natural healing benefits from probiotics with this one easy process.
 
 #### Self-care that goes far beyond the self.
-*Explore an alternative way to connect; Symbioticly heal and support the whole body in a way that heals and supports the environment. A probiotic rich super food for the microbiome of the body, Soil to Soul.*
-
+Through natural fermentation of organic fresh fruit remnants into a Luxury probiotic and multi purpose; Whole Body, Built Environment, *Earth Care,* Healing and Cleaning Products.
 *Nourishing, fortifying and gentle for the Whole Family. Yes, Nature is that simple, effective and synergistic.*
 
 #### *What is Probiotic Eco-Enzyme*
