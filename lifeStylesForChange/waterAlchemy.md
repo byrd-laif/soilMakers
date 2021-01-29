@@ -3,7 +3,7 @@ title: Water Alchemy ~ Eco-Enzyme
 date: 2018-08-13
 ---
 
-# *Experience The Water Rehabilitation Magic Of Probiotic Eco-Enzyme*
+# *The Water Rehabilitation Magic Of Probiotic Eco-Enzyme*
 **Probiotic enzymes are naturally; Anti-Bacterial, Anti-Fungal, Anti-Viral and a Natural Antiseptic.**
 
 ## *Water Alchemy - Recycling organic materials through living organisms naturally purifies water.*
@@ -12,7 +12,7 @@ date: 2018-08-13
 
 #### *Conservation as a consequence of production!*
 ***Experience Symbiotic Living; Healing and Caring for Earth Mothers- Water, Soil and Air.***
-Remarkably enough Human Skin, the Water and all that come in contact with that, the Soil, can find natural healing benefits from probiotics with this one easy process. Through the fermentation of citrus peels and other naturally aromatic fresh remnants into a probiotic and multi purpose; Luxury Whole Body, Built Environment and *Earth Care* Healing and Cealing Products.**
+Remarkably enough the physical body, the Water and all that come in contact with that, the Soil, can find natural healing benefits from probiotics with this one easy process. Through the fermentation of citrus peels and other naturally aromatic fresh remnants into a probiotic and multi purpose; Luxury Whole Body, Built Environment and *Earth Care* Healing and Cealing Products.**
 
 #### Self-care that goes far beyond the self.
 *Explore an alternative way to connect; Symbioticly heal and support the whole body in a way that heals and supports the environment. A probiotic rich super food for the microbiome of the body, Soil to Soul.*
@@ -29,13 +29,15 @@ Through fermentation, the ingredients used for making Probiotic Eco Enzyme will 
 
 Following fermentation, the natural antibacterial properties of fruit peels are further enhanced as organic substances are decomposed, yielding secondary metabolites known as bioactive compounds or phytochemicals. The extraction of enzymes, organic acids, and phenolic compounds through the fermentation process is preferred over conventional methods that require costly solvents, involve the possible degradation of heat-labilecompounds, and through which it is difficult to obtain high purity extracts.
 
-What all cultured 'foods' have in common is an abundance of lactic acid bacteria, yeasts, and moulds that produce enzymes which break down and alter the original foods. The microbes eat the sugars, digesting them and excrete metabolites. There are many targeted uses for these metabolites. Companies package them and sell them at a high cost. The majority of products on the market are powdered or freeze-dried, this process causes damage to the microbes, resulting in 90 to 95% die off. This means, even though colony counts are high, only 5 to 10% of the microbes are actually alive.
+What all cultured 'foods' have in common is an abundance of lactic acid bacteria, yeasts, and moulds that produce enzymes which break down and alter the original foods. LAB are applied in food production and preservation from the ancient times. The microbes eat the sugars, digesting them and excrete metabolites. There are many targeted uses for these metabolites. Companies package them and sell them at a high cost. The majority of products on the market are powdered or freeze-dried, this process causes damage to the microbes, resulting in 90 to 95% die off. This means, even though colony counts are high, only 5 to 10% of the microbes are actually alive.
 
 #### *Few create a product that can truly rival real, live home ferments.*
 
+Lactic acid bacteria (LAB) are one of the most well-studied bacterial groups known from ancient times. These valuable microorganisms are used in numerous areas, especially food industry and medicine. LAB produce a wide range of compounds for food upgrading. Moreover, LAB can find special applications like generation of bioenergy not affecting the surrounding environment.
+
 #### *Why make Eco-Enzyme?*
 
-**Cleaning products and fertilizers made with chemicals pollute the underground water, rivers and surrounding eco-systems.** These conventional cleaning products contain harmful amounts of chemicals such as phosphate, nitrates, ammonia, chlorine etc. The accumulated effect of these chemicals released from every household causes significant damage to the health of the environment and the body. **Eco-enzyme is a solution to a very big problem.** By symbioticly keeping the body healthy and restoring vitality and strength to the environment. It is easy to DIY at negligible cost, free of harmful pollutants, effective, and multipurpose.
+**Cleaning products and fertilizers made with chemicals and pesticides pollute the underground water, rivers and surrounding eco-systems.** These conventional cleaning products contain harmful amounts of chemicals such as phosphate, nitrates, ammonia, chlorine etc. The accumulated effect of these chemicals released from every household causes significant damage to the health of the environment and the body. **Eco-enzyme is a solution to a very big problem.** By symbioticly keeping the body healthy and restoring vitality and strength to the environment. It is easy to DIY at negligible cost, free of harmful pollutants, effective, and multipurpose.
 
 **Waterborne infections account for 80% of all infectious diseases.**
 There is a serious global environmental resource problem of water, soil and energy that are now coming to bear on food production, malnutrition and the incidence of diseases. People are literaly killing the microbiome with chemicals that alter this grand vast unknown microbial balance of Mother Earth. 
@@ -58,43 +60,44 @@ There is a serious global environmental resource problem of water, soil and ener
 
 ### **Body And Soil Microbial Gardens** 
 
-**The human body contain 10 times more bacteria than human cells, meaning around 100 trillion microbes make up the physical human body.** Humans are Wild in this way. The largest colony is located in the stomach and intestines. The bacteria digest substances that help the immune system defend against invaders. This exact same process happens in soil, water and the food that comes from it. Protect the microbes with Probiotics. Doing so will keep the microbiome full of live beneficial organisms, which will help keep digestion, immunity and overall health on track. **Body, Soil and Water encourage the growth of healthy bacteria.**
-
-**Eco-Pro*Biotic* is a simple process for encouraging natural fermentation by lactic acid-forming bacteria such as Lactobacillus species and naturally-occurring wild yeasts of fruit and plant food remnants and brown sugar. The fermentation process produces amino acids and peptides that help skin’s cellular renewal.**
-
-**Fermentation is a kind of detoxification process, a transfer of anti-nutrients into nutrients, nutrient enhancement and the creation of micro-nutrients occurs.** This process also increases the bioavailability, making it so the skin is able to absorbe the nutrients, for brighter and more hydrated skin. The process creates new amino acids, organic acids, and antioxidants that didn’t originally exist in the raw material, naturaly optimized to provide the most nutrition to the skin. The fermentation process transforms the natural substances into a lightweight essence that immediately seeps into skin and mildly exfoliates it with lactic acid. A product that can be applied as a moisturizer, serum or mask, enabling the skin to more readily accept and absorb these ingredients. 
-
 #### *There is a microbiome connection between our Skin and the Soil.* 
 **A healthy microbiome, which consists of an overwhelming majority of beneficial probiotic bacteria, is one of the most fundamental aspects of good health.**
 
-**Eco-Enzyme is an ecologicaly responsible option** for fresh fruit remnants, those living in apartments/condos or for those looking to use their fresh food remnants as a nutrient rich probiotic water and soil amendment. Use in the garden, plant pots or the environmet as a gift of thanks, probiotic water for Mother Earth. No traditional 'garden' is required! Be creative. Whats around ...
+**The human body contain 10 times more bacteria than human cells, meaning around 100 trillion microbes make up the physical human body. Humans are Wild in this way.** The largest colony is located in the stomach and intestines. The bacteria digest substances that help the immune system defend against invaders. This exact same process happens in soil, water and the food that comes from it. Protect the microbes with Probiotics. Doing so will keep the microbiome full of live beneficial organisms, which will help keep digestion, immunity and overall health on track. **Body, Soil and Water encourage the growth of healthy bacteria.**
+
+**Eco-Pro*Biotic*, a simple process for encouraging natural fermentation by lactic acid-forming bacteria such as Lactobacillus species and naturally-occurring wild yeasts of fruit and plant food remnants and brown sugar. The fermentation process produces amino acids and peptides that help skin’s cellular renewal.**
+
+**Fermentation is a kind of detoxification process, a transfer of anti-nutrients into nutrients, nutrient enhancement and the creation of micro-nutrients occurs.** This process also increases the bioavailability, making it so the physical body is able to absorbe the nutrients, for brighter and more hydrated skin. The process creates new amino acids, organic acids, and antioxidants that didn’t originally exist in the raw material, naturaly optimized to provide the most nutrition to the skin. The fermentation process transforms the natural substances into a lightweight essence that immediately seeps into skin and mildly exfoliates it with lactic acid. A product that can be used as a healing wash, applied as a moisturizer, serum or mask, enabling the skin to more readily accept and absorb these ingredients.
+
+### ReAct To The EnvironMental Realities 
+**Eco-Enzyme is an ecologicaly responsible solution,** for those living in apartments/condos or for those looking to use their fresh food remnants as a **nutrient rich probiotic water and soil amendment.** Use in the garden, plant pots or the environmet as a gift of thanks, probiotic water for Mother Earth. No traditional 'garden' is required! Be creative. Whats around ...
 
 **Lifestyles For Change- Discover the magic of eco-enzyme and how it impacts:**
 
 - Climate Change
 - Water Pollution
+- Soil Pollution
 - Waste Disposal
 - Land Management & Urban Sprawl
 
 **Fermenting organic kitchen matter can reduce 70% of the total waste production and reduce the bad gases produced during organic decomposition, while saving the environment by creating a beneficial, symbiotic substance to combat the negative use of toxic chemicals and pollutants.**
 
 #### *Some Eco-Enzyme Benefits:*
+***Naturally; Anti-Bacterial, Anti-Fungal, Anti-Viral and a Natural Antiseptic.***
 
-**Safe**- Eco-Enzymes are toxic free and perfect for the most sensitive skin at any age.
+**Safe**- Eco-Enzymes are toxic free and perfect for the most sensitive at any age.
 Enzymes exhibit a number of features that make their use advantageous. They do not present disposal problems, are biodegradable being mostly proteins and peptides. Enzymes as catalysts have been exploited since the 1960s, easily isolated, several enzyme-catalyzed processes have been successfully introduced to industry, e.g. in the production of certain foodstuffs, pharmaceuticals and agrochemicals.
 
 **Reduce Water Pollution**- Water pollution is a major global problem, one of the leading worldwide **causes of death and disease**, accounting for the deaths of more than 14,000 people daily(2006). Eco-Enzyme is utilized as a low-cost alternative to
-improve wastewater treatment processes. A 9% solution of Eco-Enzyme is effective in removing ammonia, nitrogen and phosphorus, and in neutralizing municipal wastewater, within a period of 5 days.
+improve wastewater treatment processes. A 9% solution of Eco-Enzyme is effective in removing ammonia, nitrogen and phosphorus, and in neutralizing municipal wastewater, within a period of 5 days. The enzyme converts ammonia to nitrate (NO3-), a natural and useful hormone and nutrient for plants.
 
 **Multiple Usage**- Natural household cleaner, body wash, mouth wash, wound healing, air purifier, laundry detergent, fabric softener, descaler, organic fertilizer, etc. Adding Eco Enzyme to food and water for feeding domestic animals can boost their immune system and improve the quality of poultry or meat.
-
-**Fertilizer**- The enzyme converts ammonia to nitrate (NO3-), a natural and useful hormone and nutrient for plants.
 
 **Purify Underground Water**- Enzyme residues flow underground and help to purify ground water that they come in contact with. 
 
 **Purify Air**- Remove odors from toxic air released from smoking, car exhaust, chemical residues of household products, etc. Methane gas released from poorly disposed organic food waste can trap 21 times more heat than CO2, worsening the global warming condition.
 
-**Clearing Drains**- Eco-enzyme can be used for clearing city drains after a storm.
+**Clearing Drains**- Eco-enzyme can be used for clearing urban drains after a storm.
 
 **Any plant matter can be used in this process, chose citrus and pineapple peel for there powerful cleaning abilities and pleasing aroma.**
 
@@ -105,19 +108,18 @@ improve wastewater treatment processes. A 9% solution of Eco-Enzyme is effective
 - fresh fruit remnants
 
 **Stable**
-
 If the enzyme is full of its necessary nutrients, it can survive even at pH.
 value below 3.5, this ferment usually produces a beautiful safe and stable pH. range of 4.5-5. The fermentation can remain active even at temperatures as high as 100C. 
 
-**This fermentation process creates a product rich in antioxidants, which decelerate the aging of cells.**
-
 #### *Delicously rich, gourmet food for the microbiome of your skin. Fermented ingredients are like a supercharged turbo boost for your skincare routine.*
 
-**Fermentation naturally produce AHAs, the all-important ingredient that helps slough away dead skin to reveal its natural gorgeous glow. AHA- Alpha hydroxy acids work by “loosening” the top layer of dead skin cells on your skin, revealing the healthy, newer skin underneath.**
+**This fermentation process creates a product rich in antioxidants, which decelerate the aging of cells.**
 
-**Lactic acid, the gentle sister of the AHAs and the ideal choice for those with sensitive skin. Lactic acid is known for making the skin extremely soft while also brightening those PIH (post-inflammatory hyperpigmentation) spots, improving skin tone, and increasing the collagen production in your skin. Like AHAs it also helps with acne, blackheads, and whiteheads.**
+**Fermentation naturally produce AHAs, the all-important ingredient that helps slough away dead skin to reveal its natural gorgeous glow. AHA- Alpha hydroxy acids work by “loosening” the top layer of dead skin cells, revealing the healthy, newer skin underneath.**
 
-#### Lactic acid bacteria (LAB) are one of the most well-studied bacterial groups known from ancient times. LAB are part of normal microflora of gastrointestinal and genitourinary tracts, hence they are used as components of probiotics.
+**Lactic acid, the gentle sister of the AHAs and the ideal combination. For those with sensitive skin, Lactic acid is known for making the skin extremely soft while also brightening those PIH (post-inflammatory hyperpigmentation) spots, improving skin tone, and increasing the collagen production in your skin. Like AHAs it also helps with acne, blackheads, and whiteheads.**
+
+#### LAB are part of normal microflora of gastrointestinal and genitourinary tracts, hence they are used as components of probiotics.
 
 - **Working by accelerating skin cell turnover (exfoliating) and act as a moisturizer and humectant, meaning it draws water into the skin, helping to plump-up the skin and give you a smoother, more youthful appearance.**
 
@@ -175,7 +177,7 @@ This is just a guideline, experiment and play. The smaller choped the pieces the
 
 Different organics have different benefits, aromas and textures. Separate citrus fruits like Oranges, Lemons, Limes and pineapple into a dedicated bin, these create a fantastic and powerful cleaning enzyme. Other aromatics and medicinals like Ginger, Aloe vera Lemongrass, Tea, ... can be added for a luxurious whole body healing wash product.
 
-The list goes on! It’s a great idea to have a catch-all bin for everything else like veggie scraps that is just purely 'compost' for the garden and drains. Or add these to your Bokashi probiotic soil building bin.
+The list goes on! It’s a great idea to have a catch-all bin for everything else like veggie scraps that is just purely 'compost' for the garden and drains. Or add these to the Bokashi probiotic soil building bin.
 
 **Probiotic eco-enzyme can simply be dumped down the toilet in reasonable portions, taking care to ensure no large chunks remain. Use in the garden, or can be dumped it in the sewer drain.**
 
@@ -195,16 +197,18 @@ Remember: The 3-month period for fermentation starts once the last organic ingre
 
 #### *Using enzyme*
 
-**Favored usage includes:**
+**Favored usage and dilution ratios with water:**
+*Adding 100ml of liquid store bought detergent to 1000ml of Enzyme makes a great concentrated degreaser/cleaner.* This product can be used safely full strength, undiluted, on the most sensitive skin.
 
-- Hair and body wash
-- Mouthwash
-- Wound healing wash
-- Dish washing
-- Fruit and vegetable wash
-- Evaporative cooler - air freshener
-- Insect replant and fertilizer for the garden
-- Laundry detergent, natural fabric softener ... The list goes on.
+- Hair and body wash - 1:10
+- Mouthwash - 1:10
+- Wound healing wash - 1:10
+- Dish washing - 1:500
+- Fruit and vegetable wash to remove chemicals and pesticides - 15ml : 5l
+- Evaporative cooler - air freshener - 1:500
+- Insect replant and fertilizer for the garden - 1:500
+- Laundry detergent, natural fabric softener - 1:500
+... The list goes on.
 
 #### *Frequently Asked Questions*
 

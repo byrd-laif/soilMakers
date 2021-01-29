@@ -3,19 +3,17 @@ title: Soil Alchemy ~ Bokashi
 date: 2018-08-13
 ---
 
-# Experience The Soil Rehabilitation Magic of Bokashi
+# *The Soil Rehabilitation Magic of Bokashi*
 
 ## *A Revival Of The Gian Connection; a journey of healing the Soil too heal the Soul.*
 
 **Life is not possible without Rich Fertile Soil.**
 
-***Soil Alchemy*** is the ongoing exploration of what happens when people connect head, heart, and body in the crucible of the soil. The ancient alchemists combined substances and used the influence of their own minds to study the transmutation of matter and of spirit. 
-
-**Experience Soil Therapy,** observe when the discursive mind becomes quieter and the intelligence of the heart comes to the foreground, a new ecologicaly symbiotic consciousness emerges. Work in symbiotic partnership with the more-than-human world and make incredible discoveries. 
+***Soil Alchemy*** is the ongoing exploration of what happens when people connect head, heart, and body in the crucible of the soil. The ancient alchemists combined substances and used the influence of their own minds to study the transmutation of matter and of spirit. Observe when the discursive mind becomes quieter and the intelligence of the heart comes to the foreground, a new ecologicaly symbiotic consciousness emerges. Work in symbiotic partnership with the more-than-human world and make incredible discoveries. 
 
 ### *Soil Therapy;* the practice of spending time *Cultivating Fertile Soil* for the purpose of Enhancing Whole Health, Earth Care, Wellness, and Happiness. A practice of *Symbiotic Connection* with the natural world and with each other, healing soil to soul.
 
-A series of guided invitations bring one into the present moment, opening the doors of symbiotic communication with the soil, waters, and landscapes they explore. Encounter not just the soil, but the many ways nature mirrors humans, encountering ourselves, soil to soul food.
+A series of guided invitations, natural cycles, bring one into the present moment, opening the doors of symbiotic communication with the soil, waters, and landscapes they explore. Encounter not just the soil, but the many ways nature mirrors humans, encountering ourselves, Soil to Soul Food.
 
 #### **What is Bokashi?**
 
@@ -26,6 +24,8 @@ Bokashi is a Japanese term meaning fermented organic matter and refers to a 2-st
 
 **Step 1: Fermentation** - takes place indoors in a Bokashi bin.
 Layering food remnats with a starter mix, the microbes present in the starter mix quickly ferment the food remnants. Once filled set the bin aside for 10 - 14 days and start using another bin. Two weeks later the initial bin of organic matter will be fully fermented and ready for Step 2.
+
+Although the terms humus and compost are informally used interchangeably, they are distinct soil components with different origins; humus is created through anaerobic fermentation, while compost is the result of aerobic decomposition.
 
 **Step 2: Decomposition** - is done in the garden, compost pile, or a semi closed probiotic *soil factory*. Shallow Bury the contents of the bin in the garden or compost bin. Upto 1/3 can be added to the bottom of indoor or outdoor pots.
 
