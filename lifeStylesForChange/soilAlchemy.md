@@ -3,9 +3,9 @@ title: Soil Alchemy ~ Bokashi
 date: 2018-08-13
 ---
 
-# *The Soil Rehabilitation Magic of Bokashi*
+# *The Soil Rehabilitation Miracle of Bokashi*
 
-## *A Revival Of The Gian Connection; a journey of healing the Soil too heal the Soul.*
+## *A Revival Of The Gian Connection; a journey of symbiotic healing, Soil to Soul.*
 
 **Life is not possible without Rich Fertile Soil.**
 
@@ -40,7 +40,7 @@ A healthy Bokashi bucket does not create bad odors, greenhouse gas, or heat - us
 **Ecologically Responsible management of organic kitchen remnants can reduce 70% of the total waste production and reduce the bad gases produced during organic decomposition, while saving the environment by creating bio-active soil and pro-biotic fertilizer to combat the negative use of toxic chemicals and pollutants.**
 
 #### *Conservation as a consequence of production.*
-Bokashi, the ecologically responsible option for food remnants of those living in apartments/condos or for those looking to use their food remnants as a nutrient rich pro-biotic soil amendment in their garden, plant pots or the environment as a gift of thanks, fertile soil for Mother Earth. No traditional garden is required! Be creative. Whats around ...
+Bokashi, the ecologically responsible option for food remnants, perfect for those living in apartments/condos and those looking to use their food remnants as a nutrient rich pro-biotic soil amendment in their garden, plant pots or the environment as a gift of thanks, fertile pro-biotic soil for Mother Earth. No traditional garden is required! Be creative. Whats around ...
 
 **Bokashi can be:**
 
