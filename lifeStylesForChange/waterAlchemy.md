@@ -16,8 +16,8 @@ date: 2018-08-13
 *Explore an alternative way to connect; Symbioticly heal and support the whole body in a way that heals and supports the environment. A probiotic rich super food for the microbiome of the body, Soil to Soul.* Remarkably enough the physical body, the Water and all that come in contact with that, the Soil, can find natural healing benefits from probiotics with this one easy process.
 
 #### Self-care that goes far beyond the self.
-Through natural fermentation of organic fresh fruit remnants into a Luxury probiotic and multi purpose; Whole Body, Built Environment, *Earth Care,* Healing and Cleaning Products.
-*Nourishing, fortifying and gentle for the Whole Family. Yes, Nature is that simple, effective and synergistic.*
+Through natural fermentation of organic fresh fruit remnants into luxury probiotic and multi purpose; ***Healing and Cleaning Products.** Whole Body, Built Environment, and *Earth Care, Soil to Soul.*
+*Symbioticaly; Nourishing, fortifying and gentle for the Whole Family. Yes, Nature is that simple, effective and synergistic.*
 
 #### *What is Probiotic Eco-Enzyme*
 ***Eco-Enzyme - Fermented Fruit Peel (Orange, lemon, lime and Pineapple)***
@@ -56,7 +56,8 @@ There is a serious global environmental resource problem of water, soil and ener
 
 **Biotic- ‘life’.**
 
-**Why make Eco-Pro*Biotics*? *On Behalf Of Life.* A Gift of Life, given symbiotically by healing and cleaning the whole body and built environment with Eco-Pro*biotics*. More than skin deep, Soul Food for the Microbiome of Mother Earth's Water and Soil.**
+**Why make Eco-Pro*Biotics?**
+*On Behalf Of Life.* A Gift of Life, given symbiotically by healing and cleaning the whole body and built environment with Eco-Pro*biotics*. More than skin deep, **Soul Food for the Microbiome of Mother Earth's Water and Soil.**
 
 ### **Body And Soil Microbial Gardens** 
 
@@ -85,8 +86,13 @@ There is a serious global environmental resource problem of water, soil and ener
 #### *Some Eco-Enzyme Benefits:*
 ***Naturally; Anti-Bacterial, Anti-Fungal, Anti-Viral and a Natural Antiseptic.***
 
+**Stable**
+If the enzyme is full of its necessary nutrients, it can survive even at pH value below 3.5, this ferment usually produces a beautiful safe and stable pH range of 4.5-5. The fermentation can remain active even at temperatures as high as 100C. 
+
 **Safe**- Eco-Enzymes are toxic free and perfect for the most sensitive at any age.
 Enzymes exhibit a number of features that make their use advantageous. They do not present disposal problems, are biodegradable being mostly proteins and peptides. Enzymes as catalysts have been exploited since the 1960s, easily isolated, several enzyme-catalyzed processes have been successfully introduced to industry, e.g. in the production of certain foodstuffs, pharmaceuticals and agrochemicals.
+
+**Bioremediation:** biotechnology employs the use of living organisms, microbes and bacteria, in the removal of contaminants, pollutants, and toxins from soil, water, and other environments.
 
 **Reduce Water Pollution**- Water pollution is a major global problem, one of the leading worldwide **causes of death and disease**, accounting for the deaths of more than 14,000 people daily(2006). Eco-Enzyme is utilized as a low-cost alternative to
 improve wastewater treatment processes. A 9% solution of Eco-Enzyme is effective in removing ammonia, nitrogen and phosphorus, and in neutralizing municipal wastewater, within a period of 5 days. The enzyme converts ammonia to nitrate (NO3-), a natural and useful hormone and nutrient for plants.
@@ -101,17 +107,12 @@ improve wastewater treatment processes. A 9% solution of Eco-Enzyme is effective
 
 **Any plant matter can be used in this process, chose citrus and pineapple peel for there powerful cleaning abilities and pleasing aroma.**
 
-#### *Eco Enzyme is easy to make, three ingredients are required:*
-
+#### Eco Enzyme is easy to make, three ingredients are required:
 - molasses or brown sugar
 - water
 - fresh fruit remnants
 
-**Stable**
-If the enzyme is full of its necessary nutrients, it can survive even at pH.
-value below 3.5, this ferment usually produces a beautiful safe and stable pH. range of 4.5-5. The fermentation can remain active even at temperatures as high as 100C. 
-
-#### *Delicously rich, gourmet food for the microbiome of your skin. Fermented ingredients are like a supercharged turbo boost for your skincare routine.*
+### **Delicously rich, gourmet food for the microbiome of your skin. Fermented ingredients are like a supercharged turbo boost for your skincare routine.**
 
 **This fermentation process creates a product rich in antioxidants, which decelerate the aging of cells.**
 
@@ -119,7 +120,7 @@ value below 3.5, this ferment usually produces a beautiful safe and stable pH. r
 
 **Lactic acid, the gentle sister of the AHAs and the ideal combination. For those with sensitive skin, Lactic acid is known for making the skin extremely soft while also brightening those PIH (post-inflammatory hyperpigmentation) spots, improving skin tone, and increasing the collagen production in your skin. Like AHAs it also helps with acne, blackheads, and whiteheads.**
 
-#### LAB are part of normal microflora of gastrointestinal and genitourinary tracts, hence they are used as components of probiotics.
+#### **LAB are part of normal microflora of gastrointestinal and genitourinary tracts, hence they are used as components of probiotics.**
 
 - **Working by accelerating skin cell turnover (exfoliating) and act as a moisturizer and humectant, meaning it draws water into the skin, helping to plump-up the skin and give you a smoother, more youthful appearance.**
 
@@ -130,17 +131,18 @@ value below 3.5, this ferment usually produces a beautiful safe and stable pH. r
 **Fermented skincare products are naturaly teaming with antimicrobial goodness, these bacteria inhibit the growth of pathogens naturaly eliminating the need for preservatives.**
 
 #### *Functions*
-**What can be done with it:**
+*What can be done with it:*
 
 - Cleansing the body - natural conditioner and moisturizer for the skin.
-- Wound cleaner - mouth wash, burns, cuts, abrasions, diaper rash, bed soars, diabetic wounds ...
+- Wound heal and clean - mouth wash, burns, cuts, abrasions, diaper rash, bed soars, diabetic wounds ...
 - Cleansing the home & drainage systems
 - Kill and Repel Insects
 - Fertilize plants and Rehabilitate Soil
 - Purify Aquatic systems
 - Cleanse Pet & Animal Cages
+- Natural Descaler
 
-#### *Method*
+### *Method*
 **How To Make Probiotic Eco Enzyme**
 
 **The 1:3:10 Ratio**
@@ -165,11 +167,11 @@ This is just a guideline, experiment and play. The smaller choped the pieces the
 **Step 5:**
 - Harvest Day!!! In a suitable size vessel with a suitable size strainer, separate the solids form the liquids. The filtered enzyme can be bottled and is ready for use. A portion of solids can be used as a starter for the next batch, dried and used as a powdered fertilizer, or add them to the garden compost or turn them directly into the soil. Even dumping them down the toilet is perfectly fine.
 
-**Fermentation time & environment:** 3 months minimum, from the time stopped adding food remnants. Store in a dark environment away from excessive heat.
+Fermentation time & environment: 3 months minimum, from the time stopped adding food remnants. Store in a dark environment away from excessive heat.
 
 #### *TIPS and Details:*
 
-**Use molasses, brown sugar**, jaggery or some similar sugar, it is full of minerals and will create a more rich product.
+**Sugars**- Use molasses, brown sugar, jaggery or some similar sugar, it is full of minerals and will create a more rich product.
 
 **Separate kitchen remnats**, think aroma and decomposition. Orange, Lemon, Pineapple, Apples, … Citrus are beautifully aromatic and make powerful cleaners.
 
@@ -179,35 +181,39 @@ Different organics have different benefits, aromas and textures. Separate citrus
 
 The list goes on! It’s a great idea to have a catch-all bin for everything else like veggie scraps that is just purely 'compost' for the garden and drains. Or add these to the Bokashi probiotic soil building bin.
 
-**Probiotic eco-enzyme can simply be dumped down the toilet in reasonable portions, taking care to ensure no large chunks remain. Use in the garden, or can be dumped it in the sewer drain.**
+*Probiotic eco-enzyme can simply be dumped down the toilet in reasonable portions, taking care to ensure no large chunks remain. Use in the garden, or can be dumped it in the sewer drain.*
 
 #### *Other Tips*
 
 - Cut the ingredients into small pieces to let them break down faster.
 - Make sure all the organic ingredients are covered by the sugar water.
 - Don’t use oily food remnants (fish and meat) as ingredients, this will create a bad smell, put these in the bokashi soil building system.
-- Leave some space at the top of the container to let the mixture ferment and expand.
-- Put the enzyme container in a space away from direct sunlight.
+- Leave some space at the top of the container for expantion.
+- During fermentation keep away from direct sunlight.
 - If small insects are found in the container, close the lid tightly and let those insects decompose. (Increasing protein content!)
-- A white layer on the surface of Eco Enzyme is a sign that fermentation is healthy and underway.
+- A white layer on the surface of Eco Enzyme is a sign that fermentation is healthy and underway. This is a natural and harmless Kahm yeast.
 - Don’t forget to label the ‘Start Date’ on the container!
-- The best Enzyme ferments are 3 months and longer.
+- The best Eco-Enzyme ferments are 3 months and longer.
 
-Remember: The 3-month period for fermentation starts once the last organic ingredients are added into the container.
+*Remember: The 3-month period for fermentation starts once the last organic ingredients are added into the container.*
 
-#### *Using enzyme*
+### *Using Eco-Enzyme*
 
 **Favored usage and dilution ratios with water:**
-*Adding 100ml of liquid store bought detergent to 1000ml of Enzyme makes a great concentrated degreaser/cleaner.* This product can be used safely full strength, undiluted, on the most sensitive skin.
+Eco-Enzymes can be used safely at full strength, undiluted, on the most sensitive skin.
 
 - Hair and body wash - 1:10
 - Mouthwash - 1:10
-- Wound healing wash - 1:10
+- Warts and fungal infections - undiluted
+- Wound healing, diaper rash wash - 1:10 or undiluted
 - Dish washing - 1:500
-- Fruit and vegetable wash to remove chemicals and pesticides - 15ml : 5l
+- Fruit and vegetable wash (submerge for 5 min) to remove chemicals and pesticides - 1:200
 - Evaporative cooler - air freshener - 1:500
 - Insect replant and fertilizer for the garden - 1:500
 - Laundry detergent, natural fabric softener - 1:500
+
+*Adding 50ml of liquid store bought detergent/shampoo to 1000ml of Eco-Enzyme make a great concentrated degreaser/cleaner/shampoo. Drastically reducing consumption and mitigating harmful effects. Perfect for dish washing, laundry and shampoo.*
+
 ... The list goes on.
 
 #### *Frequently Asked Questions*
@@ -215,7 +221,6 @@ Remember: The 3-month period for fermentation starts once the last organic ingre
 Q: Use only one kind of fruit peels, or many different kinds?
 
 A: Using various ingredients can create complex and stable enzymatic ecosystems. Therefore, it is better to use different kinds of fruit peels and herbal leaf. However! If looking for a product with more specific healing and fragrance profiles be more selective.
-
 
 Q: Will there be bacteria in Eco-Enzyme after fermentation?
 Is it safe to be used for personal cleaning?
