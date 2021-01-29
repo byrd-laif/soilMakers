@@ -15,8 +15,11 @@ date: 2018-08-13
 *Explore an alternative way to connect; Symbiotically heal and support the whole body in a way that heals and supports the environment. A pro-biotic rich super food for the micro-biome of the body, Soil to Soul.* Remarkably enough the physical body, the Water and all that come in contact with that, the Soil, find natural healing benefits from pro-biotic eco-enzymes with this one easy process.
 
 #### Self-care that goes far beyond the self.
-Through natural fermentation of organic fresh fruit remnants into luxury pro-biotic and multi purpose; **Healing and Cleaning Products.** Whole Body, Built Environment, and *Earth Care, Soil to Soul.*
-*Symbiotically; Nourishing, fortifying and gentle for the Whole Family. Yes, Nature is that simple, effective and synergistic.*
+Through natural fermentation of organic fresh fruit remnants produce luxury pro-biotic and multi purpose; **Healing and Cleaning Products.**
+
+#### *Symbiotically; Nourishing, fortifying and gentle. Whole Body, Built Environment, *Earth Care* Products, Soil to Soul.* 
+
+**Yes, Nature is that simple, effective and synergistic.**
 
 #### *What is Pro-biotic Eco-enzyme*
 ***Fermented Fruit Peel (Orange, lemon, lime and pineapple)***
