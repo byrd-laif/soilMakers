@@ -133,14 +133,15 @@ improve wastewater treatment processes. A 9% solution of Eco-Enzyme is effective
 #### *Functions*
 *What can be done with it:*
 
-- Cleansing the body - natural conditioner and moisturizer for the skin.
-- Wound heal and clean - mouth wash, burns, cuts, abrasions, diaper rash, bed soars, diabetic wounds ...
-- Cleansing the home & drainage systems
+- Cleansing the body, natural conditioner and moisturizer for the hair and skin.
+- Wound clean and heal; mouth wash, burns, cuts, abrasions, diaper rash, bed soars, diabetic wounds ...
+- Cleansing the built home & drainage systems
 - Kill and Repel Insects
-- Fertilize plants and Rehabilitate Soil
+- Fertilize plants, Rehabilitate Soil and Water
 - Purify Aquatic systems
 - Cleanse Pet & Animal Cages
 - Natural Descaler
+- Leather conditioner
 
 ### *Method*
 **How To Make Probiotic Eco Enzyme**
