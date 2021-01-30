@@ -1,16 +1,16 @@
 # Soil Seekers ~ The Art Of Ecology; cultivating relationships between Wo-Man, organisms and their environments.
 
-**Art, as the vehicle of feeling with and thinking through living in a damaged world, connecting and healing soil to soul.**
+**Lifestyles For Change ~ Art, as the vehicle of feeling with and thinking through living in a damaged world, connecting and healing soil to soul.**
 
 [Live Blog On Matrix - Soil Seekers](https://matrix.to/#/!EwezVvVjpxKVCMIuRM:matrix.org?via=matrix.org&via=kde.org&via=converser.eu)
 
-## *Lifestyles For Change Sharing Circles*
+## *Sharing Circle Salons ~ Cultivating Ecological Literacy*
 
-**Designed To Be Fun, Creative, Interactive And Resourceful. At a time of ecological and economic precarity, 'Salon Style' gatherings/sharing circles, offer space for rethinking and remaking relations with each other and the environment.**
+**Designed To Be Fun, Creative, Interactive And Resourceful. At a time of ecological and economic precarity, 'Salon Style' Sharing Circles, offer space for rethinking and remaking relations with each other and the environment.**
 
 **Cultivating relationships and comm-unity by revitalizing 'The Art of Conversation'. To awaken possibility and creative insight, refine the taste and increase the knowledge of the participants through guided conversation organized around cultures and ideas reflective of the era in which they live.**
 
-[Real time interactive salon style sharing circle on Matrix. Join the conversation in the **Vivarium Interactive Salon ~ Global Comm-unity for Local Impact**](https://matrix.to/#/!LSpVaMCiYQehpJONFF:matrix.org?via=matrix.org&via=t2bot.io&via=stux.chat)
+[Real time interactive salon style sharing circle on Matrix. Join the conversation in the **Vivarium Interactive Salon ~ Global Comm-Unity for Local Impact ~ Cultivating Ecological Literacy**](https://matrix.to/#/!LSpVaMCiYQehpJONFF:matrix.org?via=matrix.org&via=t2bot.io&via=stux.chat)
 
 ### *Examining ecologic behaviors; conservation as a consequence of lifestyle / production.*
 
@@ -20,9 +20,9 @@
 
 **A new Eco Conscious breed of Wo-Man has evolved from the adage of "The American Dream", the wild places of this world need Wo-Man to do better than that.**
 
-**It's Time to start comparing consumption and lifestyles, and checking this against nature's ability to provide for this consumption. It's Time to own up to the realities of what that translates to for the generations to come. It's time to be Ecologically Realistic and get back to the heart of what Life is all about.** 
+**It's Time to start comparing consumption and lifestyles, and checking this against nature's ability to provide for this consumption. It's Time to own up to the realities of what that translates to for the generations to come. It's time to be Ecologically Realistic and get back to the Heart of what Life is all about.** 
 
-#### *Environ-mental Health*
+#### *Environ-Mental Health*
 
 **The loss of biodiversity on the planet is directly related to the behaviors of human beings. Humans have destroyed and continue to destroy the habitats of species on a daily basis. The catastrophic impact of loss of biodiversity (The Sixth Extinction) will affect the planet and its inhabitants for generations to come.** 
 
@@ -40,7 +40,7 @@
 ...
 
 
-### Cooperation and Harmony ~ Sharing Circle
+### Cooperation and Harmony ~ Sharing Circle Salons
 
 #### SOCIOCRACY AND DYNAMIC GOVERNANCE VALUES
 - Effectiveness: Get things done
