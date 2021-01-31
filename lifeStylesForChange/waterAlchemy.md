@@ -62,9 +62,9 @@ It is very difficult to reverse the effects of water pollution. Natural processe
 **Why make Pro-Biotic Eco-Enzymes?**
 *On Behalf Of Life.* A Gift of Life, given symbiotically by healing and cleaning the whole body and built environment with Pro-biotic Eco-enzymes. More than skin deep, **Soul Food for the Micro-biome of Mother Earth's Water and Soil.**
 
-### **Symbiotic Body And Soil Microbial Gardens** 
+### *Symbiotic Body And Soil Microbial Gardens.* 
 #### *There is a micro-biome connection between Humans and the Soil.* 
-**A healthy micro-biome, which consists of an overwhelming majority of beneficial pro-biotic bacteria, is one of the most fundamental aspects of good health.**
+**A healthy micro-biome, which consists of an overwhelming majority of beneficial pro-biotic bacteria, is one of the most fundamental aspects of health.**
 
 **The human body contain 10 times more bacteria than human cells, meaning around 100 trillion microbes make up the physical human body. Humans are Wild in this way.** The largest colony is located in the stomach and intestines. The bacteria digest substances that help the immune system defend against invaders. This exact same process happens symbiotically, in soil, water and the food that comes from it. Protect the microbes with Pro-biotic Eco-enzymes. Doing so will keep the micro-biome full of live beneficial organisms, which will help keep digestion, immunity and overall health on track. **Body, Soil and Water encourage the growth of healthy bacteria.**
 
