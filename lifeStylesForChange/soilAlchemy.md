@@ -7,7 +7,7 @@ date: 2018-08-13
 
 ## *A Revival Of The Gian Connection; a journey of symbiotic healing, Soil to Soul.*
 
-**Life is not possible without Rich Fertile Soil.**
+**Humans are Symbiotic body and soil microbial gardens. Life is not possible without Rich Fertile Soil.**
 
 ***Soil Alchemy*** is the ongoing exploration of what happens when people connect head, heart, and body in the crucible of the soil. The ancient alchemists combined substances and used the influence of their own minds to study the transmutation of matter and of spirit. Observe when the discursive mind becomes quieter and the intelligence of the heart comes to the foreground, a new ecologically symbiotic consciousness emerges. Work in symbiotic partnership with the more-than-human world and make incredible discoveries. 
 
