@@ -17,7 +17,7 @@ date: 2018-08-13
 #### Self-care that goes far beyond the self.
 Through natural fermentation of organic fresh fruit remnants produce luxury pro-biotic and multi purpose; **Healing and Cleaning Products.**
 
-#### *Symbiotically; Nourishing, fortifying and gentle. Whole Body, Built Environment, *Earth Care* Products, Soil to Soul.* 
+#### *Symbiotically Nourishing, fortifying and gentle. Whole Body, Built Environment, *Earth Care* Products, Soil to Soul.* 
 
 **Yes, Nature is that simple, effective and synergistic.**
 
@@ -31,7 +31,7 @@ Through fermentation, the ingredients used for making Pro-biotic Eco-enzyme will
 
 Following fermentation, the natural anti-bacterial properties of fruit peels are further enhanced as organic substances are decomposed, yielding secondary metabolites known as bioactive compounds or phytochemicals. The extraction of enzymes, organic acids, and phenolic compounds through the fermentation process is preferred over conventional methods that require costly solvents, involve the possible degradation of heat-labile compounds, and through which it is difficult to obtain high purity extracts.
 
-What all cultured 'foods' have in common is an abundance of lactic acid bacteria, yeasts, and molds that produce enzymes which break down and alter the original foods. LAB are applied in food production and preservation from the ancient times. The microbes eat the sugars, digesting them and excrete metabolites. There are many targeted uses for these metabolites. Companies package them and sell them at a high cost. The majority of products on the market are powdered or freeze-dried, this process causes damage to the microbes, resulting in 90 to 95% die off. This means, even though colony counts are high, only 5 to 10% of the microbes are actually alive.
+What all cultured 'foods' have in common is an abundance of lactic acid bacteria, yeasts, and molds that produce enzymes which break down and alter the original foods. The microbes eat the sugars, digesting them and excrete metabolites. There are many targeted uses for these metabolites. LAB are applied in food production and preservation. Companies package them and sell them at a high cost. The majority of products on the market are powdered or freeze-dried, this process causes damage to the microbes, resulting in 90 to 95% die off. This means, even though colony counts are high, only 5 to 10% of the microbes are actually alive.
 
 #### *Few create a product that can truly rival real, live home ferments.*
 
@@ -39,14 +39,15 @@ Fermentation produces Lactic Acid Bacteria (LAB), one of the most well studied b
 
 #### *Why make Eco-Enzyme?*
 
-**Cleaning products and fertilizers made with chemicals and pesticides pollute the underground water, rivers and surrounding ecosystems.** These conventional cleaning products contain harmful amounts of chemicals such as phosphate, nitrates, ammonia, chlorine etc. The accumulated effect of these chemicals released from every household causes significant damage to the health of the environment and the body. **Pro-biotic Eco-enzyme is a solution to some very big problems.** By symbiotically keeping the body healthy and restoring vitality and strength to the environment. It is easily done at negligible cost, free of harmful pollutants, effective, and multipurpose.
-
 **Waterborne infections account for 80% of all infectious diseases.**
-There is a serious global environmental resource problem of water, soil and energy that are now coming to bear on Life As They Know It: food production, malnutrition, the incidence of diseases, ... . People are literally killing the micro-biome with chemicals that alter this grand vast unknowable microbial balance of Mother Earth. 
-
-**By 2025, half the world population will be living in water-stressed areas.(WHO)**
+There is a serious global environmental resource problem of water, soil and energy that are now coming to bear on Life As People Know It: food production, malnutrition, the incidence of diseases, ... . By 2025, half the world population will be living in water-stressed areas.(WHO) People are literally killing the micro-biome with chemicals that alter this grand vast unknowable microbial balance of Mother Earth. 
 
 **Re-use of wastewater, to recover water, nutrients, or energy, is becoming an important strategy.**
+
+#### *water*
+It is very difficult to reverse the effects of water pollution. Natural processes that cleanse the water can take years, decades, or even centuries, and even with costly technological processes, it can take years to remove all of the harmful substances from the water. There are many aspects of the contamination that must be removed. **First, and most importantly, the source of the water pollution must be removed, so that additional water contamination does not occur.**
+
+**Cleaning products and fertilizers made with chemicals and pesticides pollute the underground water, rivers and surrounding ecosystems.** These conventional cleaning products contain harmful amounts of chemicals such as phosphate, nitrates, ammonia, chlorine etc. The accumulated effect of these chemicals released from every household causes significant damage to the health of the environment and the body. **Pro-biotic Eco-enzyme is a solution to some very big problems.** By symbiotically keeping the body healthy and restoring vitality and strength to the environment. It is easily done at negligible cost, free of harmful pollutants, effective, and multipurpose.
 
 ### *Stop the killing Gaia is a Micro-biome - Cultivate Cultures That Heal*
 
