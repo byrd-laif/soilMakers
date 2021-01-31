@@ -10,9 +10,11 @@ date: 2018-08-13
 
 ### *Water Therapy; the practice of spending time *Cultivating Living Healing Water* for the purpose of enhancing whole health, earth care, wellness, and happiness. A practice of *Symbiotic Connection* with the natural world and with each other, healing water to soul.*
 
-#### *Conservation as a consequence of production.*
+#### ***Conservation as a consequence of production.***
 ***Symbiotic Living; Healing and Caring for Earth Mothers- Water, Soil and Air.***
-*Explore an alternative way to connect; Symbiotically heal and support the whole body in a way that heals and supports the environment. A pro-biotic rich super food for the micro-biome of the body, Soil to Soul.* Remarkably enough the physical body, the Water and all that come in contact with that, the Soil, find natural healing benefits from pro-biotic eco-enzymes with this one easy process.
+*Explore an alternative way to connect; Symbiotically heal and support the whole body in a way that heals and supports the environment. A pro-biotic rich super food for the micro-biome of the body, Soil to Soul.* 
+
+Remarkably enough the physical body, the Water and all that come in contact with that, the Soil, find natural healing benefits from pro-biotic eco-enzymes with this one easy process.
 
 #### Self-care that goes far beyond the self.
 Through natural fermentation of organic fresh fruit remnants produce luxury pro-biotic and multi purpose; **Healing and Cleaning Products.**
@@ -31,7 +33,7 @@ Through fermentation, the ingredients used for making Pro-biotic Eco-enzyme will
 
 Following fermentation, the natural anti-bacterial properties of fruit peels are further enhanced as organic substances are decomposed, yielding secondary metabolites known as bioactive compounds or phytochemicals. The extraction of enzymes, organic acids, and phenolic compounds through the fermentation process is preferred over conventional methods that require costly solvents, involve the possible degradation of heat-labile compounds, and through which it is difficult to obtain high purity extracts.
 
-What all cultured 'foods' have in common is an abundance of lactic acid bacteria, yeasts, and molds that produce enzymes which break down and alter the original foods. The microbes eat the sugars, digesting them and excrete metabolites. There are many targeted uses for these metabolites. LAB are applied in food production and preservation. Companies package them and sell them at a high cost. The majority of products on the market are powdered or freeze-dried, this process causes damage to the microbes, resulting in 90 to 95% die off. This means, even though colony counts are high, only 5 to 10% of the microbes are actually alive.
+What all cultured 'foods' have in common is an abundance of lactic acid bacteria, yeasts, and molds that produce enzymes which break down and alter the original foods. The microbes eat the sugars, digesting them and excrete metabolites. There are many targeted uses for these metabolites. LAB are applied in food production and preservation, companies package them and sell them at a high cost. The majority of products on the market are powdered or freeze-dried, this process causes damage to the microbes, resulting in 90 to 95% die off. This means, even though colony counts are high, only 5 to 10% of the microbes are actually alive.
 
 #### *Few create a product that can truly rival real, live home ferments.*
 
@@ -47,7 +49,9 @@ There is a serious global environmental resource problem of water, soil and ener
 #### *water*
 It is very difficult to reverse the effects of water pollution. Natural processes that cleanse the water can take years, decades, or even centuries, and even with costly technological processes, it can take years to remove all of the harmful substances from the water. There are many aspects of the contamination that must be removed. **First, and most importantly, the source of the water pollution must be removed, so that additional water contamination does not occur.**
 
-**Cleaning products and fertilizers made with chemicals and pesticides pollute the underground water, rivers and surrounding ecosystems.** These conventional cleaning products contain harmful amounts of chemicals such as phosphate, nitrates, ammonia, chlorine etc. The accumulated effect of these chemicals released from every household causes significant damage to the health of the environment and the body. **Pro-biotic Eco-enzyme is a solution to some very big problems.** By symbiotically keeping the body healthy and restoring vitality and strength to the environment. It is easily done at negligible cost, free of harmful pollutants, effective, and multipurpose.
+**Cleaning products and fertilizers made with chemicals and pesticides pollute the underground water, rivers and surrounding ecosystems.** These conventional cleaning products contain harmful amounts of chemicals such as phosphate, nitrates, ammonia, chlorine etc. The accumulated effect of these chemicals released from every household causes significant damage to the health of the environment and the body. 
+
+**Pro-biotic Eco-enzyme is a solution to some very big problems.** By symbiotically keeping the body healthy and restoring vitality and strength to the environment. It is easily done at negligible cost, free of harmful pollutants, effective, and multipurpose.
 
 ### *Stop the killing Gaia is a Micro-biome - Cultivate Cultures That Heal*
 
@@ -60,6 +64,7 @@ It is very difficult to reverse the effects of water pollution. Natural processe
 **Biotic- ‘life’.**
 
 **Why make Pro-Biotic Eco-Enzymes?**
+
 *On Behalf Of Life.* A Gift of Life, given symbiotically by healing and cleaning the whole body and built environment with Pro-biotic Eco-enzymes. More than skin deep, **Soul Food for the Micro-biome of Mother Earth's Water and Soil.**
 
 ### *Symbiotic Body And Soil Microbial Gardens.* 
@@ -75,7 +80,7 @@ This process naturally increases the bio-availability, making it so the physical
 ### Re-Act To The Environ-Mental Realities 
 **Eco-Enzyme is an ecologically responsible solution,** for those living in apartments/condos or for those looking to use their fresh food remnants as a **nutrient rich pro-biotic water and soil amendment.** Use in the garden, plant pots or the environment as a gift of thanks, pro-biotic water for Mother Earth. No traditional 'garden' is required! Be creative. Whats around ...
 
-#### Discover the Miracle of Pro-Biotic Eco-Enzyme and how it impacts:**
+#### Discover the Miracle of Pro-Biotic Eco-Enzyme and how it impacts:
 
 - Climate Change
 - Water Pollution
