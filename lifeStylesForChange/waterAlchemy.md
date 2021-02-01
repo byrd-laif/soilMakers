@@ -49,9 +49,9 @@ There is a serious global environmental resource problem of water, soil and ener
 #### *water*
 It is very difficult to reverse the effects of water pollution. Natural processes that cleanse the water can take years, decades, or even centuries, and even with costly technological processes, it can take years to remove all of the harmful substances from the water. There are many aspects of the contamination that must be removed. **First, and most importantly, the source of the water pollution must be removed, so that additional water contamination does not occur.**
 
-**Cleaning products and fertilizers made with chemicals and pesticides pollute the underground water, rivers and surrounding ecosystems.** These conventional cleaning products contain harmful amounts of chemicals such as phosphate, nitrates, ammonia, chlorine etc. The accumulated effect of these chemicals released from every household causes significant damage to the health of the environment and the body. 
+**Cleaning products and fertilizers made with chemicals and pesticides pollute the underground water, rivers and surrounding ecosystems.** Pharmaceutical drugs and personal care products, also manufactured by many pharmaceutical companies (such as sunscreen lotions, lipsticks, deodorants, perfumes, and shampoos), are produced in staggeringly huge quantities; **often equaling or surpassing agrochemicals in tonnage.** The volume consumed is simply astounding. All of these go into the ecosystem, most of them through excretion into waste treatment systems. These conventional cleaning products contain harmful amounts of chemicals such as phosphate, nitrates, ammonia, chlorine etc. The accumulated effect of these chemicals released from every household causes significant damage to the health of the environment and the body. 
 
-**Pro-biotic Eco-enzyme is a solution to some very big problems.** By symbiotically keeping the body healthy and restoring vitality and strength to the environment. It is easily done at negligible cost, free of harmful pollutants, effective, and multipurpose.
+**Pro-biotic Eco-enzyme is a solution to some very big problems. By symbiotically keeping the body healthy and restoring vitality and strength to the environment. It is easily done at negligible cost, free of harmful pollutants, effective, and multipurpose.**
 
 ### *Stop the killing Gaia is a Micro-biome - Cultivate Cultures That Heal*
 
@@ -205,7 +205,7 @@ It’s a great idea to have a catch-all bin for everything else like veggie scra
 Eco-Enzymes can be used safely at full strength, undiluted, on the most sensitive skin.
 
 - Hair and body wash - 1:10
-- Mouthwash - 1:10
+- Mouthwash/Toothpaste - 1:10 or undiluted
 - Warts and fungal infections - undiluted
 - Wound healing, diaper rash wash - 1:10 or undiluted
 - Dish washing - 1:500
