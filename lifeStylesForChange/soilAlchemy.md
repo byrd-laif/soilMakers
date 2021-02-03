@@ -49,9 +49,12 @@ Bokashi, the ecologically responsible option for food remnants, perfect for thos
 - can use most food remnants (including meat, dairy and cooked foods)
 - provides a nutrient rich pro-biotic soil amendment and liquid fertilizer for house plants, the garden, or potted plants.
 
+Bokashi gives a finished pro-biotic compost in 30–45 days all in. The speed of the fermentation process is a big advantage, cycling organic waste faster by going straight from kitchen to fermentation, to soil, over and over again in small batches. With out the need to collect a critical mass of scraps to start, the fermentation process starts right away. Scale the fermentation
+vessel to the amount of scraps being generated, going straight into the bokashi bucket as soon as they are produced.
+
 #### *Materials and Tools Needed*
 
-- A minimum of two 5-gallon nesting buckets with tight fitting lids (three is best to have a rotation)
+- A minimum of two 5-gallon (or suitable size) nesting buckets with tight fitting lids (three is best to have a rotation)
 - Absorbent material (peat moss, coconut coir, shredded newspaper, sawdust, dried small leaf or grass...)
 - Bokashi starter mix
 - Food remnants chopped into small pieces

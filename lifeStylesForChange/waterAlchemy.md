@@ -7,8 +7,9 @@ date: 2018-08-13
 **Pro-biotic enzymes are naturally; Anti-Bacterial, Anti-Fungal, Anti-Viral and a Natural Antiseptic.**
 
 ## *Water Alchemy - Recycling organic materials through living organisms naturally purifies water.*
+***Water Alchemy*** is the ongoing exploration of what happens when people connect head, heart, and body in the crucible of the water. The ancient alchemists combined substances and used the influence of their own minds to study the transmutation of matter and of spirit. Observe when the discursive mind becomes quieter and the intelligence of the heart comes to the foreground, a new ecologically symbiotic consciousness emerges. Work in symbiotic partnership with the more-than-human world and make incredible discoveries. 
 
-### *Water Therapy; the practice of spending time *Cultivating Living Healing Water* for the purpose of enhancing whole health, earth care, wellness, and happiness. A practice of *Symbiotic Connection* with the natural world and with each other, healing water to soul.*
+### *Water Therapy; the practice of spending time *Cultivating Living Healing Water* for the purpose of enhancing Whole Health, Earth Care, Wellness, and Happiness. A practice of *Symbiotic Connection* with the natural world and with each other, healing water to soul.*
 
 #### ***Conservation as a consequence of production.***
 ***Symbiotic Living; Healing and Caring for Earth Mothers- Water, Soil and Air.***
@@ -19,7 +20,7 @@ Remarkably enough the physical body, the Water and all that come in contact with
 #### Self-care that goes far beyond the self.
 Through natural fermentation of organic fresh fruit remnants produce luxury pro-biotic and multi purpose; **Healing and Cleaning Products.**
 
-#### *Symbiotically Nourishing, fortifying and gentle. Whole Body, Built Environment, *Earth Care* Products, Soil to Soul.* 
+#### *Symbiotically Nourishing, fortifying and gentle. Whole Body, Built Environment, *Earth Care* Products; Water, Soil and Soul.* 
 
 **Yes, Nature is that simple, effective and synergistic.**
 
@@ -49,7 +50,7 @@ There is a serious global environmental resource problem of water, soil and ener
 #### *water*
 It is very difficult to reverse the effects of water pollution. Natural processes that cleanse the water can take years, decades, or even centuries, and even with costly technological processes, it can take years to remove all of the harmful substances from the water. There are many aspects of the contamination that must be removed. **First, and most importantly, the source of the water pollution must be removed, so that additional water contamination does not occur.**
 
-**Cleaning products and fertilizers made with chemicals and pesticides pollute the underground water, rivers and surrounding ecosystems.** Pharmaceutical drugs and personal care products, also manufactured by many pharmaceutical companies (such as sunscreen lotions, lipsticks, deodorants, perfumes, and shampoos), are produced in staggeringly huge quantities; **often equaling or surpassing agrochemicals in tonnage.** The volume consumed is simply astounding. All of these go into the ecosystem, most of them through excretion into waste treatment systems. These conventional cleaning products contain harmful amounts of chemicals such as phosphate, nitrates, ammonia, chlorine etc. The accumulated effect of these chemicals released from every household causes significant damage to the health of the environment and the body. 
+**Cleaning products and fertilizers made with chemicals and pesticides pollute the underground water, rivers and surrounding ecosystems.** Pharmaceutical drugs and personal care products, also manufactured by many pharmaceutical companies (such as sunscreen lotions, lipsticks, deodorants, perfumes, and shampoos), are produced in staggeringly huge quantities; **often equaling or surpassing agrochemicals in tonnage.** The volume consumed is simply astounding. All of these go into the ecosystem, most of them into waste treatment systems. These conventional cleaning products contain harmful amounts of chemicals such as phosphate, nitrates, ammonia, chlorine etc. The accumulated effect of these chemicals released from every household causes significant damage to the health of the environment and the body. 
 
 **Pro-biotic Eco-enzyme is a solution to some very big problems. By symbiotically keeping the body healthy and restoring vitality and strength to the environment. It is easily done at negligible cost, free of harmful pollutants, effective, and multipurpose.**
 
@@ -88,7 +89,7 @@ This process naturally increases the bio-availability, making it so the physical
 - Waste Disposal
 - Land Management & Urban Sprawl
 
-**Lifestyles For Change- Fermenting organic kitchen matter can reduce 70% of the total waste production and reduce the bad gases produced during organic decomposition, while saving the environment by creating a beneficial, symbiotic substance to combat the negative use of toxic chemicals and pollutants.**
+**Lifestyles For Change- Fermenting fresh organic kitchen matter can reduce 70% of the total waste production and reduce the bad gases produced during organic decomposition, while saving the environment by creating a beneficial, symbiotic substance to combat the negative use of toxic chemicals and pollutants.**
 
 #### *Some Eco-Enzyme Benefits:*
 ***Naturally; Anti-Bacterial, Anti-Fungal, Anti-Viral and a Natural Antiseptic.***
