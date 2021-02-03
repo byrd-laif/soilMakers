@@ -70,7 +70,7 @@
 [Contact Direct on Matrix for details on starting an Interactive Salon/Sharing Circle](https://matrix.to/#/!ibYXXCkubbZiWtkmhX:matrix.org?via=matrix.org)
 
 #### Resources
-[Soil Alchemy - The Soil Rehabilitation Miracle Of Bokashi](./lifeStylesForChange/soilAlchemy.md)
-[Water Alchemy - The Water Rehabilitation Miracle Of Pro-Biotic Eco-Enzyme](./lifeStylesForChange/waterAlchemy.md)
+- [Soil Alchemy - The Soil Rehabilitation Miracle Of Bokashi](./lifeStylesForChange/soilAlchemy.md)
+- [Water Alchemy - The Water Rehabilitation Miracle Of Pro-Biotic Eco-Enzyme](./lifeStylesForChange/waterAlchemy.md)
 
 

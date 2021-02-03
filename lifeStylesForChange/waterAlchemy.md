@@ -177,7 +177,7 @@ This is just a guideline, experiment and play. The smaller chopped the pieces th
 Fermentation time & environment: 3 months minimum, from the time stopped adding food remnants. Store in a dark environment away from excessive heat.
 
 **Step 5:**
-- Harvest Day! In a suitable size vessel with a suitable size strainer, separate the solids form the liquids. The filtered Eco-enzyme can be bottled and is ready for use. A portion of filtered solids can be used as a starter for the next batch, dried and used as a powdered fertilizer, add them to the Bokashi bin[link](soilAlchemy.md), garden compost or turn them directly into the soil. Even dumping them down the toilet is perfectly fine.
+- Harvest Day! In a suitable size vessel with a suitable size strainer, separate the solids form the liquids. The filtered Eco-enzyme can be bottled and is ready for use. A portion of filtered solids can be used as a starter for the next batch, dried and used as a powdered fertilizer, add them to the [Bokashi](./soilAlchemy.md) bin, garden compost or turn them directly into the soil. Even dumping them down the toilet is perfectly fine.
 
 #### *TIPS and Details:*
 
@@ -188,7 +188,7 @@ Different organics have different benefits aromas and textures. Separate citrus 
 
 **Use Airlocks for an anaerobic environment.** Keeping the ferment clean and free of insects. This is important for a nice functional product and for safety, **containers may burst if the gasses are not released.** Plastic containers are best suited for this reason. Repurposed plastic milk containers are perfect.
 
-It’s a great idea to have a catch-all bin for everything else like veggie scraps that is just purely 'compost' for the garden and drains. Or add these to the Bokashi pro-biotic soil building bin[link](soilAlchemy.md).
+It’s a great idea to have a catch-all bin for everything else like veggie scraps that is just purely 'compost' for the garden and drains. Or add these to the [Bokashi](./soilAlchemy.md) pro-biotic soil building bin.
 
 - Cut the ingredients into small pieces to let them break down faster.
 - Make sure all the organic ingredients are covered by the sugar water.

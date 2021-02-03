@@ -52,7 +52,7 @@ Bokashi, the ecologically responsible option for food remnants, perfect for thos
 Bokashi gives a finished pro-biotic compost in 30–45 days all in. The speed of the fermentation process is a big advantage, cycling organic waste faster by going straight from kitchen to fermentation, to soil, over and over again in small batches. With out the need to collect a critical mass of scraps to start, the fermentation process starts right away. Scale the fermentation
 vessel to the amount of scraps being generated, going straight into the bokashi bucket as soon as they are produced.
 
-Note: Fresh citrus and pineapple remnants are packed with powerful organic cleaning enzymes that can be easily fermented to produce luxury pro-biotic and multi purpose; Symbiotic Healing and Cleaning Products. [link](waterAlchemy.md)
+Note: Fresh citrus and pineapple remnants are packed with powerful organic cleaning enzymes that can be easily fermented to produce luxury [Pro-biotic and multi purpose; Symbiotic Healing and Cleaning Products.](./waterAlchemy.md)
 
 #### *Materials and Tools Needed*
 
@@ -105,11 +105,11 @@ fermentation** into rum and as the carbon source for in situ remediation of chlo
 
 **2) Home ferment Kefir whey or sauerkraut juice**
 
-Kefir Whey made available from straining kefir milk through cloth to separate the milk solids from the liquid whey. If not available then add 1 part fermented rice water to 10 parts whole milk, cover and allow to ferment 10 - 14 days. The ferment will separate into three distinct layers. Use a turkey baster or some such device to retrieve the middle layer.
+Kefir Whey made available from straining kefir milk through cloth to separate the milk solids from the liquid whey. If neither whey or sauerkraut juice is available then add 1 part fermented rice water to 10 parts whole milk, cover and allow to ferment 10 - 14 days. The ferment will separate into three distinct layers. Use a turkey baster or some such device to retrieve the middle layer.
 
 **Next combine:**
 
-**1 part rice water : 10 parts Kefir Whey or sauerkraut juice**
+**1 part rice water : 10 parts Kefir Whey, sauerkraut juice or above milk/rice culture**
 
 - Bottle, cap and store in a cool dark place.
 
