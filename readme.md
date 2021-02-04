@@ -72,5 +72,5 @@
 #### Resources
 - [Soil Alchemy - The Soil Rehabilitation Miracle Of Bokashi](./lifeStylesForChange/soilAlchemy.md)
 - [Water Alchemy - The Water Rehabilitation Miracle Of Pro-Biotic Eco-Enzyme](./lifeStylesForChange/waterAlchemy.md)
-
+- [Kefir Milk Alchemy - An Ancient Living Legacy, The Miracle Of Kefir Milk Culture](./lifeStylesForChange/kefirMilkAlchemy.md)
 

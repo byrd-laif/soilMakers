@@ -3,15 +3,15 @@ title: Kefir ~ Milk Alchemy
 date: 2018-08-13
 ---
 
-# *An Ancient Living Culture - The Miracle Kefir*
+# *An Ancient Living Legacy - The Miracle Of Kefir Milk Culture*
 
-## *A Living Cultural Legacy; Powerful Food Medicine.*
+## *A Powerful Functional Food Medicine.*
 
-### *Kefir Milk is a unique bacterial fermentation form a true Mother Culture that’s one of the most naturally pro-biotic rich functional foods on the planet. 
+### *Kefir Milk is a unique bacterial fermentation form a true "Mother Culture" that’s one of the most naturally pro-biotic rich functional foods on the planet.* 
 
 **Its name comes from the Turkish word “keif,” which means “good feeling.” Kefir is also known as "Tibetan Milk Mushroom" or "Tara" in Tibetan culture. Tara- originating from Sanskrit, meaning "star" and symbolizes *"the light of the soul."***
 
-#### *Kefir milk benefits are broad and can impact the state of daily life and health dramatically, healing issues like leaky gut and strengthening the immune system.**
+#### *Kefir milk benefits are broad and can impact the state of daily life and health dramatically, healing issues like leaky gut and strengthening the immune system.*
 
 **Naturally antibacterial, antifungal, anti-allergic and anti-inflammatory effects are some of the beneficial properties of the ancient kefir grains.**
 
@@ -26,15 +26,15 @@ For centuries, it’s been used in European and Asian folk medicine due to the w
 
 **The processes required for fermentation were present on earth when Wo-Man appeared on the scene. Bacterial Fermentation- The alchemy of the most intimate relationships between Wo-Man, microbe and food. A Symbiotic Gaian Connection.**
 
-**Kefir is made using an ancient descendant of a naturally occurring living *Mother-culture,* a symbiotic human engagement keep this culture alive.** Called grains solely due to the granular structure and appearance, kefir grains are also referred to as SCOBY (symbiotic colony of bacteria and yeast). Kefir grains are a soft gelatinous mass of bacterial and fungal cells that has evolved an elaborate symbiotic arrangement sharing nutrients, coordinating reproduction and co-create a shared physical form that varies in appearance. All are whitish and plump, with soft curvaceous surfaces, appearing like cauliflower florets. Kefir grains often grow into clumps measuring up to a few inches. Some are smaller and grow in small clusters, but do not grow larger. Some clumps can be spread out like a sheet. The variation is vast, as in all biological creations exhibit diverging branches of the family tree.
+**Kefir is made using the ancient descendant of a naturally occurring living *Mother-culture,* symbiotic human engagement keeps this culture alive.** Called grains solely due to the granular structure and appearance, kefir grains are also referred to as SCOBY (symbiotic colony of bacteria and yeast). Kefir grains are a soft gelatinous mass of bacterial and fungal cells that has evolved an elaborate symbiotic arrangement sharing nutrients, coordinating reproduction and co-create a shared physical form that varies in appearance. All are whitish and plump, with soft curvaceous surfaces, appearing like cauliflower florets. Kefir grains often grow into clumps measuring up to a few inches. Some are smaller and grow in small clusters, but do not grow larger. Some clumps can be spread out like a sheet. The variation is vast, as in all biological creations exhibit diverging branches of the family tree.
 
 Biologically kefir grains evolved from spontaneous symbiosis, are a symbiotic entity that self-reproduces and can not be recreated by science. Scientifically speaking, kefir grains contain a complex microbial symbiotic mixture of lactic acid bacteria and yeasts in a polysaccharide–protein matrix.
 
-**Kefir is a living demonstration of the integration processes by which symbiotic cells evolving from bacteria still occur.** Kefir grains may theoretically live forever, given adequate nutrition and tolerable environmental conditions. Kefir grains are a true living legacy; Alive and require care and feeding to thrive, healthy kefir grains will grow and reproduce rapidly. Commercial starters do not have the full spectrum of organisms needed for this kind of longevity.
+**Kefir is a living demonstration of the integration processes by which symbiotic cells evolving from bacteria still occur.** Kefir grains can theoretically live forever, given adequate nutrition and tolerable environmental conditions. Kefir grains are a true living legacy; Alive and require care and feeding to thrive, healthy kefir grains will grow and reproduce rapidly. Commercial starters do not have the full spectrum of organisms needed for this kind of longevity and remain a mystery to science.
 
-This unique combination of bacteria and yeasts interact with the milk to make the lightly fermented drink that often lactose intolerant people can enjoy. Kefir can be cultured from any source of animal milk, such as goat, sheep, cow, buffalo and camel, even human milk. Kefir grains can also ferment other non dairy beverages such as; rice or coconut milk and many other nut milks as well as coconut water and herbal teas. The medicinal profile of these will be much different and grain growth will stop, details shared here is in regards to Traditional Kefir Milk, milk being naturally from an animal.
+This unique synergy of bacteria and yeasts interact with the milk to make the lightly fermented drink that often lactose intolerant people can enjoy. Kefir can be cultured from any source of animal milk, such as goat, sheep, cow, buffalo and camel, even human milk. Kefir grains can also ferment other non dairy beverages such as; rice or coconut milk and many other nut milks as well as coconut water and herbal teas. The medicinal profile of these will be much different and grain growth will stop, details shared here is in regards to Traditional Kefir Milk, milk being naturally from an animal.
 
-#### *There are many benefits to pro-biotic foods, kefir is a star among them.*
+#### *There are many benefits to pro-biotic foods, kefir is the star among them.*
 
 Kefir is one of the factors associated with the long life expectancy of the people of the Caucasus, owing to its many health benefits such as anti-stress properties, immune-modulation, cholesterol-lowering, anti-allergenic, anti-asthmatic, anti-microbial, anticancer properties and chemo-prevention against colon cancer, aside from its gastrointestinal beneficial effects.
 
