@@ -9,11 +9,13 @@ date: 2018-08-13
 
 ***Kefir exhibits many health benefits due to its gastrointestinal tract effects and gut micro-biota modulation.***
 
-**Naturally antibacterial, antifungal, anti-oxidative, anti-allergic, anti-inflammatory, anti-diabetic, anti-mutagenic,... are some of the beneficial properties of the ancient kefir grains.**
+**Naturally antibacterial, antifungal, anti-oxidant, anti-allergic, anti-inflammatory, anti-diabetic, anti-mutagenic,... are some of the beneficial properties of the ancient kefir grains.**
 
 ### *Kefir Milk is a unique bacterial fermentation from a naturally occurring Mother Culture called "Kefir Grains" and produces one of the most Pro-biotic Rich Therapeutic Food Medicine On The Planet.*
 
 **Its name comes from the Turkish word “keif,” which means “good feeling.” Kefir is also known as "Tibetan Milk Mushroom" or "Tara" in Tibetan milk culture. Tara- originating from Sanskrit, meaning "star" and symbolizes *"the light of the soul."**
+
+[*Freshly washed kefir grains prepared for natural dehydration.*](./kefirImages/kefirGrainsFreshWashForDrying.JPG)
 
 #### A Culinary Culture Of Delight ~ The Champagne Of Milk
 Producing a beverage thicker than milk that can be made from ever so mildly tart to super-sour and if properly prepared is effervescent.
@@ -54,19 +56,21 @@ This pro-biotic packed, nutrient dense, medicinal food, holds the key to helping
 
 Kefir also contains partially digested proteins (e.g., caseins) that aid in its digestion and absorption by the body. The essential amino acids found in abundance in kefir also regulate protein, glucose and lipid metabolism and exhibit a positive effect on the regulation of body weight, maintenance of immune response and energy balance. Amino acids prevent disability and prolong the healthy life expectancy of elderly. The branched-chain amino acids that are also found in kefir improve cognitive recovery of patients with severe traumatic brain injury.
 
-### *Top 7 Kefir Benefits*
+### *Top Kefir Benefits*
 
-**1) Boosts Immunity**
+#### *Boosts Immunity*
 
 Kefir contains compounds and nutrients, that support and enhance the immune system and protect cells. It has a large amounts of pro-biotics, the special forces of the microbial world. One in particular that’s specific to kefir alone is called Lactobacillus Kefir, it helps defend against harmful bacteria like salmonella and E. Coli. This bacterial strain, along with the various others, work *symbiotically* to modulate the immune system and inhibit many predatory bacteria growth.
 
 Kefir also contains another powerful compound found only in this pro-biotic drink, an insoluble polysaccharide called kefiran, shown to be antimicrobial and help to fight against candida. Kefiran has also shown the ability to lower cholesterol and blood pressure.
 
-**2) Builds Bone Strength**
+#### *Builds Bone Strength*
 
-Calcium is essential for bone health. Kefir made from whole fat dairy has high levels of calcium and holds bio-active compounds that help the body absorb calcium into the body containing vitamin K2, which is vital in improving bone health, density and calcium absorption. The pro-biotics in kefir improve nutrient absorption, having all of the most important nutrients for improving bone density, including phosphorus, calcium, magnesium, vitamin D and vitamin K2.
+Calcium is essential for bone health. 
 
-**3) Fights Cancer**
+Kefir made from whole fat dairy has high levels of calcium and holds bio-active compounds that improve nutrient absorption. With all of the most important nutrients including phosphorus, calcium, magnesium, vitamin D and vitamin K2, which are vital in improving bone health and density.
+
+#### *Fights Cancer**
 
 Kefir can be a seriously effective weapon against the spread of these multiplying and dangerous cells.
 
@@ -74,25 +78,25 @@ Some of the bio-active compounds of kefir such as polysaccharides and bio-active
 
 Kefir benefits in the fight against cancer are due to its large anti-carcinogenic role inside the body, slowing the growth of early tumors.
 
-**4) Supports Digestion and Combats IBS**
+#### *Supports Digestion and Combats IBS*
 
 Give the alimentary canal, the main digestive passageway in the body, an easy boost with kefir. 
 
 Bacteria in the gut is a tricky balance. Kefir milk helps restore that balance and fight against gastrointestinal diseases like irritable bowel syndrome, Crohn’s and ulcers. Drinking kefir, naturally loaded pro-biotics, also helps your gut after taking antibiotics. The pro-biotic compounds help restore the lost flora that fight against pathogens and aids against the disruptive diarrhea and other gastrointestinal side effects caused by these types of medications.
 
-**5) Improves Allergies**
+#### *Improves Allergies*
 
 Various forms of allergies and asthma are all linked to inflammatory issues on the body.
 
 The live microorganisms present in kefir help promote the immune system to naturally suppress allergic reactions and aid in changing the body’s response to the systemic outbreak points for allergies. Some scientists believe these allergic reactions are the result of a lack of good bacteria in the gut. Taking pro-biotics improves allergic symptoms and quality of life.
 
-**6) Heals Skin**
+#### *Heals Skin*
 
-When the gut is out of whack, it can send signals to skin cells that disrupt its natural balance and cause all sorts of problems like acne, psoriasis, rashes and eczema. Kefir helps bring good bacteria back to the forefront and level out the homeostasis (stable equilibrium) of the bodies largest organ, the skin. Kefir also benefits the skin as burn and rash treatment. And is very effective treatment for hot chilies or incidence of 'pepper spray' especially for the eyes.
+When the gut is out of whack, it can send signals to skin cells that disrupt its natural balance and cause all sorts of problems like acne, psoriasis, rashes and eczema. Kefir is a natural anti-oxidant and helps bring good bacteria back to the forefront bringing homeostasis (stable equilibrium) to the bodies largest organ, the skin. Kefir also benefits the skin as burn and rash treatment.
 
 Kefiran, aside from aiding in the immune system, helps improve the quality of skin wound healing and protective for connective tissue.
 
-**7) Improves Lactose Intolerance Symptoms**
+#### *Improves Lactose Intolerance Symptoms*
 
 The active ingredient in kefir helps break lactose down into lactic acid, reducing overall content and making it easier to digest. Kefir has a larger range of bacterial strains and nutrients, some only specific to kefir, that help remove almost all of the lactose in the dairy, improving lactose digestion and tolerance.
 
