@@ -7,11 +7,11 @@ date: 2018-08-13
 
 ## *A Powerful Therapeutic Food Medicine.*
 
-***Kefir exhibits many health benefits due to its gastrointestinal tract effects and gut micro-biota modulation.***
+***Kefir exhibits many health benefits due to extraordinary pro-biotic power.***
 
 **Naturally antibacterial, antifungal, anti-oxidant, anti-allergic, anti-inflammatory, anti-diabetic, anti-mutagenic,... are some of the beneficial properties of the ancient kefir grains.**
 
-### *Kefir Milk is a unique bacterial fermentation from a naturally occurring Mother Culture called "Kefir Grains" and produces one of the most Pro-biotic Rich Therapeutic Food Medicine On The Planet.*
+### Kefir Milk is a unique bacterial fermentation from a naturally occurring Mother Culture called "Kefir Grains" and produces one of the most *Pro-biotic Rich Therapeutic Food Medicine On The Planet.*
 
 Its name comes from the Turkish word “keif,” which means “good feeling.” Kefir is also known as "Tibetan Milk Mushroom" or "Tara" in Tibetan milk culture. Tara- originating from Sanskrit, meaning "star" and symbolizes *"the light of the soul."*
 
@@ -26,6 +26,8 @@ The symbiotic community of organisms that ferment milk into kefir includes yeast
 ![Freshly Pressed Kefir Cheese](./kefirImages/pressedFreshKefirCheese_201612_web.jpg)
 *Freshly Pressed Kefir Cheese*
 
+***Before the 'fridge' there was Fermentation. Kefir milk cultured and stored properly, remains safe to consume for Over A YEAR with No Refrigeration. Kefir cheese can be aged nearly indefinitely.***
+
 For centuries, it’s been used in European and Asian folk medicine due to the wide variety of conditions it’s been known to cure. Kefir milk benefits are broad and can impact the state of daily life and health dramatically, healing issues like leaky gut and strengthening the immune system.
 
 ### *Milk Alchemy* 
@@ -34,11 +36,7 @@ For centuries, it’s been used in European and Asian folk medicine due to the w
 
 #### *A Symbiotic Gaian Connection; Coevolution.*
 
-**Ancient descendants of the living *Mother-culture,* "kefir grains" are a true *Living Legacy* that can theoretically live forever! Alive they require care and feeding to thrive.**
-
-***Symbiotic human engagement keeps this culture alive.* Given adequate nutrition and tolerable environmental conditions, healthy kefir grains grow and reproduce rapidly.**
-
-***Before the 'fridge' there was Fermentation. Kefir milk cultured and stored properly, remains safe to consume for Over A YEAR with No Refrigeration.***
+**Ancient descendants of the living *Mother-culture,* "kefir grains" are a true *Living Legacy* that can theoretically live forever! Symbiotic human engagement keeps this culture alive. Given adequate nutrition and tolerable environmental conditions, healthy kefir grains grow and reproduce rapidly.**
 
 #### Biologically kefir grains evolved from spontaneous symbiosis, are a symbiotic entity that self-reproduces and can not be recreated by science.
 

@@ -15,6 +15,9 @@ date: 2018-08-13
 
 A series of guided invitations, natural cycles, bring one into the present moment, opening the doors of symbiotic communication with the soil, waters, and landscapes they explore. Encounter not just the soil, but the many ways nature mirrors humans, encountering ourselves, Soil to Soul Food.
 
+![Pro-biotic Fluffy Soil](./bokashiImages/fluffyBokashiSoil_web.jpg)
+Pro-biotic fluffy soil.
+
 #### **What is Bokashi?**
 
 **Pro-biotic Soul Food For The Soil.**
@@ -65,6 +68,8 @@ Note: Fresh citrus and pineapple remnants are packed with powerful organic clean
 
 #### *Setting up The Bokashi Buckets*
 
+![Melting holes in larger bins for bokashi.](./bokashiImages/bokashiBinBuildHole_web.jpg)
+
 - On the bottom of one bucket, drill or melt with a soldering iron, 20 to 30 holes with a 1/8- to 1/4-inch drill bit.
 - Place brick or rock in the bucket with no holes.
 - Set the bucket with holes into the solid bucket, with no holes.
@@ -72,6 +77,9 @@ Note: Fresh citrus and pineapple remnants are packed with powerful organic clean
 - Start adding food remnants and bokashi inoculant, Starter Mix to the bucket.
 - Harvest liquid fertilizer (bokashi tea) by lifting the top bucket off of the bottom bucket, pouring any liquid into a separate container. Observe on a regular basis.
 
+![Apartment setup is easy and clean.](./bokashiImages/bokashiWorkingSetClosed_web.JPG)
+Apartment setup is easy, clean and scalable.
+ 
 Note: The brick creates space for the liquid fertilizer to collect and to ensure the buckets do not get stuck together as the inner bucket fills. 
 
 #### *Making Bokashi Bran / Starter Mix*
@@ -82,6 +90,9 @@ EM means effective micro-organisms. EM is a laboratory cultured mixture of natur
 
 Molasses have several uses beyond that of a straightforward food additive. It can be used as the **base material for
 fermentation** into rum and as the carbon source for in situ remediation of chlorinated hydrocarbons. It can be used as a chelating agent to remove rust where a rusted part stays a few weeks in a mixture of 1 part molasses and 10 parts water.
+
+![Making bokashi starter using small dry leaf as a substrate.](./bokashiImages/bokashiMakingBran_web.JPG)
+Making Bokashi starter using small dry leaf as a substrate.
 
 **50ml molasses : 50ml EM/Serum : 250-300ml water : 5kg absorbent material**
 
@@ -119,6 +130,9 @@ Kefir Whey made available from straining kefir milk through cloth to separate th
 
 - Assemble buckets and start adding food remnants, compact with a potato masher or use the bottom of a cup.
 
+![Apartment bokashi setup, adding kitchen remnants.](./bokashiImages/bokashiOpenAddingKitchenRemnants_web.JPG) 
+Apartment bokashi setup, adding kitchen remnants.
+
 - Once the bin is about 1/2 inch of compacted food remnants dust with the bokashi starter.
 
 - Repeat until the bin is full.
@@ -126,6 +140,9 @@ Kefir Whey made available from straining kefir milk through cloth to separate th
 Once full seal and set aside in a warm dark corner to ferment for 2 weeks.
 
 Bury in the garden, add to a compost bin or use in pots (up to 1/3 by volume).
+
+![Bokashi soil building system in action.](./bokashiImages/bokashiSoilBuildingSystem_web.jpg)
+Bokashi soil building system in action.
 
 #### *Bokashi Tea*
 
@@ -136,6 +153,9 @@ Bokashi tea has millions of microbes, an incredibly beneficial soil enhancer. Ac
 Watering the garden... Bokashi tea is strong and must be diluted with water at a 100:1 ratio, 100 parts water to 1 part bokashi tea, approximately 2 teaspoons of tea for every liter of water.
 
 If the bokashi tea can not be used straight away, simply poor it down the drain. It is completely natural and will not pollute. The bokashi bacteria  help to unblock clogged drains and are beneficial to the water. Bokashi tea contributes to cleaning up waterways as the good bacteria compete with the bad bacteria.
+
+![Checking on the bokashi tea.](./bokashiImages/bokashiWorkingBinsOpenTea_web.JPG)
+Checking on the bokashi tea.
 
 Pour the concentrated Bokashi tea directly into kitchen and bathroom drains, toilets and septic systems. It will help prevent algae build-up and control odor.
 
