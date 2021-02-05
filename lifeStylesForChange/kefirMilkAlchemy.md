@@ -52,7 +52,8 @@ The dominant micro-flora are Saccharomyces kefir, Torula kefir, Lactobacillus ca
 
 This unique synergy of bacteria and yeasts interact with the milk to make the lightly fermented drink. Kefir can be cultured from any source of animal milk, such as goat, sheep, cow, buffalo and camel, even human milk. Kefir grains can also ferment other non dairy beverages such as; rice or coconut milk and many other nut milks as well as coconut water and herbal teas. The medicinal profile of these will be much different and grain growth will stop, details shared here is in regards to Traditional Kefir Milk, milk being naturally from an animal.
 
-![*Kefir milk under ferment, grains in process of drying and grains fully dehydrated for storage or further processing.*](./kefirImages/
+![*Kefir milk under ferment, grains in process of drying and grains fully dehydrated for storage or further processing.*](./kefirImages/kefirMilk_GrainsDry3_web.JPG)
+*Kefir milk under ferment, grains in process of drying and grains fully dehydrated for storage or further processing.*
 
 #### *There are many benefits to pro-biotic foods and Kefir is a Star among them.*
 
