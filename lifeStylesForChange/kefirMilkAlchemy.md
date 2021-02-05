@@ -15,7 +15,7 @@ date: 2018-08-13
 
 **Its name comes from the Turkish word “keif,” which means “good feeling.” Kefir is also known as "Tibetan Milk Mushroom" or "Tara" in Tibetan milk culture. Tara- originating from Sanskrit, meaning "star" and symbolizes *"the light of the soul."**
 
-[*Freshly washed kefir grains prepared for natural dehydration.*](./kefirImages/kefirGrainsFreshWashForDrying.JPG)
+[*Freshly washed kefir grains prepared for natural dehydration.*](./kefirImages/kefirGrainsFreshWashForDrying_web.JPG)
 
 #### A Culinary Culture Of Delight ~ The Champagne Of Milk
 Producing a beverage thicker than milk that can be made from ever so mildly tart to super-sour and if properly prepared is effervescent.
