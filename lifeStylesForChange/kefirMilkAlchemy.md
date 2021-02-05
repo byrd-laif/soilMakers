@@ -28,15 +28,17 @@ The symbiotic community of organisms that ferment milk into kefir includes yeast
 
 ***Before the 'fridge' there was Fermentation. Kefir milk cultured and stored properly, remains safe to consume for Over A YEAR with No Refrigeration. Kefir cheese can be aged nearly indefinitely.***
 
-For centuries, it’s been used in European and Asian folk medicine due to the wide variety of conditions it’s been known to cure. Kefir milk benefits are broad and can impact the state of daily life and health dramatically, healing issues like leaky gut and strengthening the immune system.
+For centuries, it’s been used in European and Asian folk medicine due to the wide variety of conditions it’s been known to cure.
 
 ### *Milk Alchemy* 
 
-***Culturing Kefir requires cycles, to return to, to inspect, to refresh and renew.* The processes required for fermentation were present on earth when Wo-Man appeared on the scene. Bacterial fermentation; The alchemy of the most intimate relationships between Wo-Man, microbe and food.**
+***Culturing Kefir requires cycles, to return to, to inspect, to refresh and renew.***
+
+*The processes required for fermentation were present on earth when Wo-Man appeared on the scene. Bacterial fermentation; The alchemy of the most intimate relationships between Wo-Man, microbe and food.*
 
 #### *A Symbiotic Gaian Connection; Coevolution.*
 
-**Ancient descendants of the living *Mother-culture,* "kefir grains" are a true *Living Legacy* that can theoretically live forever! Symbiotic human engagement keeps this culture alive. Given adequate nutrition and tolerable environmental conditions, healthy kefir grains grow and reproduce rapidly.**
+**Ancient descendants of the living *Mother-culture,* "kefir grains" are a true *Living Legacy* that can theoretically live forever! *Symbiotic human engagement keeps this culture alive.* Given adequate nutrition and tolerable environmental conditions, healthy kefir grains grow and reproduce rapidly.**
 
 #### Biologically kefir grains evolved from spontaneous symbiosis, are a symbiotic entity that self-reproduces and can not be recreated by science.
 
@@ -46,9 +48,11 @@ Kefir grains are soft gelatinous clusters of microorganisms, bacterial and funga
 
 Called grains solely due to the granular structure and appearance. Kefir grains often grow into clumps measuring up to a few inches. Some are smaller and grow in small clusters. Some clumps can be spread out like a sheet. The variation is vast, as in all biological creations, exhibit diverging branches of the family tree.
 
-The dominant micro-flora are Saccharomyces kefir, Torula kefir, Lactobacillus caucasicus, Leuconnostoc species and lactic streptococci. Some yeast are also present. These many beneficial microorganisms are what separates kefir from virtually all other cultured milk products, which typically use only one, and rarely more than three species in the culturing process.
+The dominant micro-flora are Saccharomyces kefir, Torula kefir, Lactobacillus caucasicus, Leuconnostoc species and lactic streptococci. Some yeast are also present. *These many beneficial microorganisms are what separates kefir from virtually all other cultured milk products, which typically use only one, and rarely more than three species in the culturing process.*
 
-This unique synergy of bacteria and yeasts interact with the milk to make the lightly fermented drink. Kefir can be cultured from any source of animal milk, such as goat, sheep, cow, buffalo and camel, even human milk. Kefir grains can also ferment other non dairy beverages such as; rice or coconut milk and many other nut milks as well as coconut water and herbal teas. The medicinal profile of these will be much different and grain growth will stop, details shared here is in regards to Traditional Kefir Milk, milk being naturally from an animal.
+This unique synergy of bacteria and yeasts interact with the milk to make the lightly fermented drink. Kefir can be cultured from any source of animal milk, such as goat, sheep, cow, buffalo and camel, even human milk. 
+
+Kefir grains can also ferment other non dairy beverages such as; rice or coconut milk and many other nut milks as well as coconut water and herbal teas. The medicinal profile of these will be much different and grain growth will stop, details shared here is in regards to Traditional Kefir Milk, milk being naturally from an animal.
 
 ![*Kefir milk under ferment, grains in process of drying and grains fully dehydrated for storage or further processing.*](./kefirImages/kefirMilk_GrainsDry3_web.JPG)
 *Kefir milk under ferment, grains in process of drying and grains fully dehydrated for storage or further processing.*
@@ -57,7 +61,7 @@ This unique synergy of bacteria and yeasts interact with the milk to make the li
 
 Kefir is one of the factors associated with the long life expectancy of the people of the Caucasus, owing to its many health benefits such as anti-stress properties, immune-modulation, cholesterol-lowering, anti-allergenic, anti-asthmatic, anti-microbial, anticancer properties and chemo-prevention against colon cancer, aside from its gastrointestinal beneficial effects.
 
-This pro-biotic packed, nutrient dense, medicinal food, holds the key to helping improve many immune and digestive linked health issues. Kefir contains many bio-active compounds, including as many as 30+ strains of beneficial bacteria that help fight against pathogens, tumors, viruses, carcinogens, ... .
+Kefir contains many bio-active compounds, including as many as 30+ strains of beneficial bacteria that help fight against pathogens, tumors, viruses, carcinogens, ... .
 
 Kefir also contains partially digested proteins (e.g., caseins) that aid in its digestion and absorption by the body. The essential amino acids found in abundance in kefir also regulate protein, glucose and lipid metabolism and exhibit a positive effect on the regulation of body weight, maintenance of immune response and energy balance. Amino acids prevent disability and prolong the healthy life expectancy of elderly. The branched-chain amino acids that are also found in kefir improve cognitive recovery of patients with severe traumatic brain injury.
 
@@ -75,7 +79,7 @@ Calcium is essential for bone health.
 
 Kefir made from whole fat dairy has high levels of calcium and holds bio-active compounds that improve nutrient absorption. With all of the most important nutrients including phosphorus, calcium, magnesium, vitamin D and vitamin K2, which are vital in improving bone health and density.
 
-#### *Fights Cancer**
+#### *Fights Cancer*
 
 Kefir can be a seriously effective weapon against the spread of these multiplying and dangerous cells.
 
