@@ -69,6 +69,7 @@ Note: Fresh citrus and pineapple remnants are packed with powerful organic clean
 #### *Setting up The Bokashi Buckets*
 
 ![Melting holes in larger bins for bokashi.](./bokashiImages/bokashiBinBuildHole_web.jpg)
+Melting holes in larger bins for bokashi.
 
 - On the bottom of one bucket, drill or melt with a soldering iron, 20 to 30 holes with a 1/8- to 1/4-inch drill bit.
 - Place brick or rock in the bucket with no holes.
@@ -139,7 +140,7 @@ Apartment bokashi setup, adding kitchen remnants.
 
 Once full seal and set aside in a warm dark corner to ferment for 2 weeks.
 
-Bury in the garden, add to a compost bin or use in pots (up to 1/3 by volume).
+Bury in the garden, add to a compost bin, move into a bokashi soil building system or use in pots (up to 1/3 by volume).
 
 ![Bokashi soil building system in action.](./bokashiImages/bokashiSoilBuildingSystem_web.jpg)
 Bokashi soil building system in action.
@@ -155,7 +156,7 @@ Watering the garden... Bokashi tea is strong and must be diluted with water at a
 If the bokashi tea can not be used straight away, simply poor it down the drain. It is completely natural and will not pollute. The bokashi bacteria  help to unblock clogged drains and are beneficial to the water. Bokashi tea contributes to cleaning up waterways as the good bacteria compete with the bad bacteria.
 
 ![Checking on the bokashi tea.](./bokashiImages/bokashiWorkingBinsOpenTea_web.JPG)
-Checking on the bokashi tea.
+Checking on the bokashi tea. Bokashi bin is open to use lid as a trivet to catch any liquid as the bottom bin is emptied. 
 
 Pour the concentrated Bokashi tea directly into kitchen and bathroom drains, toilets and septic systems. It will help prevent algae build-up and control odor.
 
