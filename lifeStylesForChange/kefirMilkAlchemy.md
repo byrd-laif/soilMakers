@@ -1,7 +1,7 @@
 ---
 title: Kefir ~ Milk Alchemy
 date: 2018-08-13
-================
+---
 
 # *An Ancient Living Legacy - The Miracle Of Kefir Milk Culture*
 
@@ -13,14 +13,18 @@ date: 2018-08-13
 
 ### *Kefir Milk is a unique bacterial fermentation from a naturally occurring Mother Culture called "Kefir Grains" and produces one of the most Pro-biotic Rich Therapeutic Food Medicine On The Planet.*
 
-**Its name comes from the Turkish word “keif,” which means “good feeling.” Kefir is also known as "Tibetan Milk Mushroom" or "Tara" in Tibetan milk culture. Tara- originating from Sanskrit, meaning "star" and symbolizes *"the light of the soul."**
+Its name comes from the Turkish word “keif,” which means “good feeling.” Kefir is also known as "Tibetan Milk Mushroom" or "Tara" in Tibetan milk culture. Tara- originating from Sanskrit, meaning "star" and symbolizes *"the light of the soul."*
 
 ![*Freshly washed kefir grains prepared for natural dehydration.*](./kefirImages/kefirGrainsFreshWashForDrying_web.JPG)
+*Freshly washed kefir grains prepared for natural dehydration.*
 
 #### A Culinary Culture Of Delight ~ The Champagne Of Milk
 Producing a beverage thicker than milk that can be made from ever so mildly tart to super-sour and if properly prepared is effervescent.
 
 The symbiotic community of organisms that ferment milk into kefir includes yeasts, which produce alcohol at levels ranging from tenths of a percentage to as high as 3 percent (depending upon length of fermentation and other factors). Because of its alcohol content and effervescence, kefir has been called “the champagne of milks.” Kefir pairs wonderfully with raw or cooked vegetables, fruits and meats, makes beautiful salad dressings, dips, cold soups and can be further cultured into artisan cheese and bread starters.
+
+![Freshly Pressed Kefir Cheese](./kefirImages/pressedFreshKefirCheese_201612_web.jpg)
+*Freshly Pressed Kefir Cheese*
 
 For centuries, it’s been used in European and Asian folk medicine due to the wide variety of conditions it’s been known to cure. Kefir milk benefits are broad and can impact the state of daily life and health dramatically, healing issues like leaky gut and strengthening the immune system.
 
@@ -47,6 +51,8 @@ Called grains solely due to the granular structure and appearance. Kefir grains 
 The dominant micro-flora are Saccharomyces kefir, Torula kefir, Lactobacillus caucasicus, Leuconnostoc species and lactic streptococci. Some yeast are also present. These many beneficial microorganisms are what separates kefir from virtually all other cultured milk products, which typically use only one, and rarely more than three species in the culturing process.
 
 This unique synergy of bacteria and yeasts interact with the milk to make the lightly fermented drink. Kefir can be cultured from any source of animal milk, such as goat, sheep, cow, buffalo and camel, even human milk. Kefir grains can also ferment other non dairy beverages such as; rice or coconut milk and many other nut milks as well as coconut water and herbal teas. The medicinal profile of these will be much different and grain growth will stop, details shared here is in regards to Traditional Kefir Milk, milk being naturally from an animal.
+
+![*Kefir milk under ferment, grains in process of drying and grains fully dehydrated for storage or further processing.*](./kefirImages/
 
 #### *There are many benefits to pro-biotic foods and Kefir is a Star among them.*
 
