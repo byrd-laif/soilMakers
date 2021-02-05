@@ -5,15 +5,15 @@ date: 2018-08-13
 
 # *An Ancient Living Legacy - The Miracle Of Kefir Milk Culture*
 
-## *A Powerful Functional Food Medicine.*
+## *A Powerful Therapeutic Food Medicine.*
 
 ***Kefir exhibits many health benefits due to its gastrointestinal tract effects and gut micro-biota modulation.***
 
 **Naturally antibacterial, antifungal, anti-oxidative, anti-allergic, anti-inflammatory, anti-diabetic, anti-mutagenic,... are some of the beneficial properties of the ancient kefir grains.**
 
-### *Kefir Milk is a unique bacterial fermentation from a naturally occurring "Mother Culture" producing one of the most Pro-biotic Rich Functional Food Medicine On The Planet.*
+### *Kefir Milk is a unique bacterial fermentation from a naturally occurring Mother Culture called "Kefir Grains" and produces one of the most Pro-biotic Rich Therapeutic Food Medicine On The Planet.*
 
-**Its name comes from the Turkish word “keif,” which means “good feeling.” Kefir is also known as "Tibetan Milk Mushroom" or "Tara" in Tibetan milk culture. Tara- originating from Sanskrit, meaning "star" and symbolizes *"the light of the soul."***
+**Its name comes from the Turkish word “keif,” which means “good feeling.” Kefir is also known as "Tibetan Milk Mushroom" or "Tara" in Tibetan milk culture. Tara- originating from Sanskrit, meaning "star" and symbolizes *"the light of the soul."**
 
 #### A Culinary Culture Of Delight ~ The Champagne Of Milk
 Producing a beverage thicker than milk that can be made from ever so mildly tart to super-sour and if properly prepared is effervescent.
@@ -23,23 +23,26 @@ The symbiotic community of organisms that ferment milk into kefir includes yeast
 For centuries, it’s been used in European and Asian folk medicine due to the wide variety of conditions it’s been known to cure. Kefir milk benefits are broad and can impact the state of daily life and health dramatically, healing issues like leaky gut and strengthening the immune system.
 
 ### *Milk Alchemy* 
-***Culturing Kefir requires cycles, to return to, to inspect, to refresh and renew.***
 
-**The processes required for fermentation were present on earth when Wo-Man appeared on the scene. Bacterial Fermentation- The alchemy of the most intimate relationships between Wo-Man, microbe and food. A Symbiotic Gaian Connection.**
+***Culturing Kefir requires cycles, to return to, to inspect, to refresh and renew.* The processes required for fermentation were present on earth when Wo-Man appeared on the scene. Bacterial fermentation; The alchemy of the most intimate relationships between Wo-Man, microbe and food.**
 
-#### Kefir grains are a true *Living Legacy* and can theoretically live forever! Alive they require care and feeding to thrive. Given adequate nutrition and tolerable environmental conditions, healthy kefir grains grow and reproduce rapidly.
+#### *A Symbiotic Gaian Connection; Coevolution.*
 
-**Kefir is made using the ancient descendant of a naturally occurring living *Mother-culture* called "kefir grains",* symbiotic human engagement keeps this culture alive.** 
+**Ancient descendants of the living *Mother-culture,* "kefir grains" are a true *Living Legacy* that can theoretically live forever! Alive they require care and feeding to thrive.**
+
+***Symbiotic human engagement keeps this culture alive.* Given adequate nutrition and tolerable environmental conditions, healthy kefir grains grow and reproduce rapidly.**
+
+***Before the 'fridge' there was Fermentation. Kefir milk cultured and stored properly, remains safe to consume for Over A YEAR with No Refrigeration.***
+
+#### Biologically kefir grains evolved from spontaneous symbiosis, are a symbiotic entity that self-reproduces and can not be recreated by science.
+
+***Kefir is a living demonstration of the integration processes by which symbiotic cells evolving from bacteria still occur.***
 
 Kefir grains are soft gelatinous clusters of microorganisms, bacterial and fungal cells that has evolved an elaborate symbiotic arrangement; sharing nutrients, coordinating reproduction and co-create a shared physical form that varies in appearance.
 
 Called grains solely due to the granular structure and appearance. Kefir grains often grow into clumps measuring up to a few inches. Some are smaller and grow in small clusters. Some clumps can be spread out like a sheet. The variation is vast, as in all biological creations, exhibit diverging branches of the family tree.
 
 The dominant micro-flora are Saccharomyces kefir, Torula kefir, Lactobacillus caucasicus, Leuconnostoc species and lactic streptococci. Some yeast are also present. These many beneficial microorganisms are what separates kefir from virtually all other cultured milk products, which typically use only one, and rarely more than three species in the culturing process.
-
-Biologically kefir grains evolved from spontaneous symbiosis, are a symbiotic entity that self-reproduces and can not be recreated by science.
-
-**Kefir is a living demonstration of the integration processes by which symbiotic cells evolving from bacteria still occur.** 
 
 This unique synergy of bacteria and yeasts interact with the milk to make the lightly fermented drink. Kefir can be cultured from any source of animal milk, such as goat, sheep, cow, buffalo and camel, even human milk. Kefir grains can also ferment other non dairy beverages such as; rice or coconut milk and many other nut milks as well as coconut water and herbal teas. The medicinal profile of these will be much different and grain growth will stop, details shared here is in regards to Traditional Kefir Milk, milk being naturally from an animal.
 
@@ -95,15 +98,13 @@ The active ingredient in kefir helps break lactose down into lactic acid, reduci
 
 #### *Kefir Nutrition Facts*
 
-Like all other home ferments kefir milk does not have a standardized nutrition content.
+Like all home ferments kefir milk does not have a standardized nutrition content.
 
-*The quality of the milk used in the process, preparation method and the presenting microorganisms in the kefir grains determine the quantity and the type of vitamin and mineral compositions.* 
+*The quality of milk used in the process, preparation method and the presenting microorganisms in the kefir grains determine the quantity and the type of vitamin and mineral compositions.* 
 
 **- Vitamins:** carotene, vitamins A, K, B 1, ­B 2, ­B 5, B 6, C, B 12 and folic acid.
 
 **- Minerals:** Mg, Ca, P, Zn, Cu, Mn, Fe, Co and Mo.
-
-**A pro-biotic functional food medicine with several important pro-biotic microbial strains.** 
 
 ***Rich in amino acids-*** ammonia, serine, lysine, alanine, threonine, tryptophan, valine, lysine, methionine, phenylalanine and isoleucine. Which play a major role in the central nervous system. 
 
@@ -120,7 +121,7 @@ Kluyveromyces marxianus/Candida kefyr, Lactococcus lactis subsp. lactis, Lactoco
 **Ingredients & Utensils for 2 cups of Milk Kefir**
 
 - Milk Kefir Grains: 1 - 2 tablespoons 
-- Glass jar with lid, 3 - 4 cup 
+- Glass jar with lid, 3 - 4 cup volume
 - Mesh strainer, nylon or stainless steel 
 - Spoon (wood or plastic)
 - Wide bowl to strain Kefir
@@ -132,19 +133,15 @@ Suitable milk types: Raw, unpasteurized or pasteurized whole milk. Goat, Cow, Sh
 
 1. Place fresh Kefir Grains in clean glass jar and add fresh milk.
 
-2. Gently stir contents, cover with a secure lid, and let **sit at room temperature for about 24 hours, or until product thickens or sours to liking.**
+2. Gently stir contents, cover with a secure lid, and let sit at room temperature for about 24 hours, or until product thickens or sours to liking.
 
 Traditional kefir was made in goatskin bags hung near a doorway as to be knocked by anyone passing through and keep the milk and kefir grains well mixed.
 
-3. Straining Liquid-Kefir
+3. Straining Liquid Kefir
 
-Once Kefir has fermented to taste, separate the Kefir Grains from the Liquid-Kefir. First, stir or shake to gain an even consistency. Placing a strainer over the open mouth of a wide container, pour the whole contents through the strainer. If necessary use a spoon to gently encourage the kefir milk through the strainer. Do Not press the grain into the strainer. 
+Once Kefir has fermented to taste, separate the Kefir Grains from the Liquid Kefir. First, stir or shake to gain an even consistency. Placing a strainer over the open mouth of a wide container, pour the whole contents through the strainer. If necessary use a spoon to gently encourage the kefir milk through the strainer. Do Not press the grain into the strainer. 
 
-4. Store the Liquid-Kefir in a clean airtight sealed bottle. Kefir may be consumed at once.
-
-1 to 2 days storage in the fridge or ripened at room temperature improves flavor and increases nutritional value. Vitamins B1, B6 and B9(folic acid) increase during storage.
-
-**Before the 'fridge' there was Fermentation. Kefir milk cultured and stored properly, remains safe to consume for Over A YEAR with No Refrigeration.**
+4. Store the Kefir Milk in a clean airtight sealed bottle. Kefir milk may be consumed at once. 1 to 2 days storage in the fridge or ripened at room temperature improves flavor and increases nutritional value. Vitamins B1, B6 and B9(folic acid) increase during storage.
 
 5. Wash the fermenting jar and repeat.
 
