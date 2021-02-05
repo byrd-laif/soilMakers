@@ -11,7 +11,7 @@ date: 2018-08-13
 
 **Naturally antibacterial, antifungal, anti-oxidant, anti-allergic, anti-inflammatory, anti-diabetic, anti-mutagenic,... are some of the beneficial properties of the ancient kefir grains.**
 
-### Kefir Milk is a unique bacterial fermentation from a naturally occurring Mother Culture called "Kefir Grains" and produces one of the most *Pro-biotic Rich Therapeutic Food Medicine On The Planet.*
+### Kefir Milk is a unique bacterial fermentation from a naturally occurring *Mother Culture* called "Kefir Grains," that produces one of the most *Pro-biotic Rich Therapeutic Food Medicine On The Planet.*
 
 Its name comes from the Turkish word “keif,” which means “good feeling.” Kefir is also known as "Tibetan Milk Mushroom" or "Tara" in Tibetan milk culture. Tara- originating from Sanskrit, meaning "star" and symbolizes *"the light of the soul."*
 
@@ -107,7 +107,7 @@ Kefiran, aside from aiding in the immune system, helps improve the quality of sk
 
 #### *Improves Lactose Intolerance Symptoms*
 
-The active ingredient in kefir helps break lactose down into lactic acid, reducing overall content and making it easier to digest. Kefir has a larger range of bacterial strains and nutrients, some only specific to kefir, that help remove almost all of the lactose in the dairy, improving lactose digestion and tolerance.
+Kefir has a larger range of bacterial strains and nutrients, some only specific to kefir that help break lactose down into lactic acid, reducing overall content, improving lactose digestion and tolerance.
 
 #### *Kefir Nutrition Facts*
 
