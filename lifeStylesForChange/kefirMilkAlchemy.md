@@ -7,8 +7,6 @@ date: 2018-08-13
 
 ## *A Powerful Therapeutic Food Medicine.*
 
-***Kefir exhibits many health benefits due to extraordinary pro-biotic power.***
-
 **Naturally antibacterial, antifungal, anti-oxidant, anti-allergic, anti-inflammatory, anti-diabetic, anti-mutagenic,... are some of the beneficial properties of the ancient kefir grains.**
 
 ### Kefir Milk is a unique bacterial fermentation from a naturally occurring *Mother Culture* called "Kefir Grains," that produces one of the most *Pro-biotic Rich Therapeutic Food Medicine On The Planet.*
@@ -19,9 +17,9 @@ Its name comes from the Turkish word “keif,” which means “good feeling.”
 *Freshly washed kefir grains prepared for natural dehydration.*
 
 #### A Culinary Culture Of Delight ~ The Champagne Of Milk
-Producing a beverage thicker than milk that can be made from ever so mildly tart to super-sour and if properly prepared is effervescent.
+*Producing a beverage thicker than milk that can be made from ever so mildly tart to super-sour and if properly prepared is effervescent.*
 
-The symbiotic community of organisms that ferment milk into kefir includes yeasts, which produce alcohol at levels ranging from tenths of a percentage to as high as 3 percent (depending upon length of fermentation and other factors). Because of its alcohol content and effervescence, kefir has been called “the champagne of milks.” Kefir pairs wonderfully with raw or cooked vegetables, fruits and meats, makes beautiful salad dressings, dips, cold soups and can be further cultured into artisan cheese and bread starters.
+The symbiotic community of organisms that ferment milk into kefir includes yeasts, which produce alcohol at levels ranging from tenths of a percentage to as high as 3 percent (depending upon length of fermentation and other factors). Because of its alcohol content and effervescence, kefir has been called “the champagne of milks.” Kefir pairs wonderfully with raw or cooked vegetables, fruits and meats, makes beautiful salad dressings, dips, cold soups, smoothies and can be further cultured into artisan cheese and bread starters.
 
 ![Freshly Pressed Kefir Cheese](./kefirImages/pressedFreshKefirCheese_201612_web.jpg)
 *Freshly Pressed Kefir Cheese*
@@ -36,9 +34,11 @@ For centuries, it’s been used in European and Asian folk medicine due to the w
 
 *The processes required for fermentation were present on earth when Wo-Man appeared on the scene. Bacterial fermentation; The alchemy of the most intimate relationships between Wo-Man, microbe and food.*
 
-#### *A Symbiotic Gaian Connection; Coevolution.*
+*Recolonize a domesticated digestive track with ancient native cultures that heal.*
 
-**Ancient descendants of the living *Mother-culture,* "kefir grains" are a true *Living Legacy* that can theoretically live forever! *Symbiotic human engagement keeps this culture alive.* Given adequate nutrition and tolerable environmental conditions, healthy kefir grains grow and reproduce rapidly.**
+#### *A Symbiotic Gaian Connection; Coevolution.* 
+
+**Ancient descendants of the living *Mother-culture,* "kefir grains" are a true *Living Legacy* that can theoretically live forever! *Symbiotically nurturing each other, human engagement keeps the kefir culture alive.* Given adequate nutrition and tolerable environmental conditions, healthy kefir grains grow and reproduce rapidly.**
 
 #### Biologically kefir grains evolved from spontaneous symbiosis, are a symbiotic entity that self-reproduces and can not be recreated by science.
 
@@ -75,23 +75,17 @@ Kefir also contains another powerful compound found only in this pro-biotic drin
 
 #### *Builds Bone Strength*
 
-Calcium is essential for bone health. 
-
 Kefir made from whole fat dairy has high levels of calcium and holds bio-active compounds that improve nutrient absorption. With all of the most important nutrients including phosphorus, calcium, magnesium, vitamin D and vitamin K2, which are vital in improving bone health and density.
 
 #### *Fights Cancer*
 
-Kefir can be a seriously effective weapon against the spread of these multiplying and dangerous cells.
-
-Some of the bio-active compounds of kefir such as polysaccharides and bio-active peptides have great potential for inhibition of proliferation and induction of apoptosis in tumor cells. Kefiran is also used as an antioxidant and anti-tumor agent. Many studies revealed that kefir acts on different cancers such as colorectal cancer, malignant T lymphocytes, breast cancer and lung carcinoma. 
+The bio-active compounds of kefir such as polysaccharides and bio-active peptides have great potential for inhibition of proliferation and induction of apoptosis in tumor cells. Kefiran is also used as an antioxidant and anti-tumor agent. Many studies revealed that kefir acts on different cancers such as colorectal cancer, malignant T lymphocytes, breast cancer and lung carcinoma. 
 
 Kefir benefits in the fight against cancer are due to its large anti-carcinogenic role inside the body, slowing the growth of early tumors.
 
 #### *Supports Digestion and Combats IBS*
 
-Give the alimentary canal, the main digestive passageway in the body, an easy boost with kefir. 
-
-Bacteria in the gut is a tricky balance. Kefir milk helps restore that balance and fight against gastrointestinal diseases like irritable bowel syndrome, Crohn’s and ulcers. Drinking kefir, naturally loaded pro-biotics, also helps your gut after taking antibiotics. The pro-biotic compounds help restore the lost flora that fight against pathogens and aids against the disruptive diarrhea and other gastrointestinal side effects caused by these types of medications.
+Kefir milk helps restore balance and fight against gastrointestinal diseases like irritable bowel syndrome, Crohn’s and ulcers. Drinking kefir, naturally loaded pro-biotics, also helps the gut recover after taking antibiotics. The pro-biotic compounds help restore the lost flora that fight against pathogens and aids against the disruptive diarrhea and other gastrointestinal side effects caused by these types of medications.
 
 #### *Improves Allergies*
 
@@ -119,7 +113,7 @@ Like all home ferments kefir milk does not have a standardized nutrition content
 
 **- Minerals:** Mg, Ca, P, Zn, Cu, Mn, Fe, Co and Mo.
 
-***Rich in amino acids-*** ammonia, serine, lysine, alanine, threonine, tryptophan, valine, lysine, methionine, phenylalanine and isoleucine. Which play a major role in the central nervous system. 
+**Rich in amino acids-** ammonia, serine, lysine, alanine, threonine, tryptophan, valine, lysine, methionine, phenylalanine and isoleucine. Which play a major role in the central nervous system. 
 
 **Beneficial bacteria and yeasts may include the following:**
 Kluyveromyces marxianus/Candida kefyr, Lactococcus lactis subsp. lactis, Lactococcus lactis subsp. cremoris, Streptococcus thermophilus, Lactobacillus delbrueckii subsp. bulgaricus, Lactobacillus casei, Kazachstania unispora, Lactobacillus acidophilus, Bifidobacterium lactis, Leuconostoc mesenteroides subsp. and Saccaromyces unisporus.
@@ -144,19 +138,25 @@ Suitable milk types: Raw, unpasteurized or pasteurized whole milk. Goat, Cow, Sh
 
 #### *Method*
 
-1. Place fresh Kefir Grains in clean glass jar and add fresh milk.
+**1. Place fresh Kefir Grains in clean glass jar and add fresh milk.**
 
-2. Gently stir contents, cover with a secure lid, and let sit at room temperature for about 24 hours, or until product thickens or sours to liking.
+**2. Gently stir contents and cover with a secure lid.**
 
-Traditional kefir was made in goatskin bags hung near a doorway as to be knocked by anyone passing through and keep the milk and kefir grains well mixed.
+Ferment at room temperature for about 24 hours, or until product thickens or sours to liking.
 
-3. Straining Liquid Kefir
+*Traditional kefir was made in goatskin bags hung near a doorway as to be knocked by anyone passing through and keep the milk and kefir grains well mixed.*
+
+**3. Straining Liquid Kefir**
 
 Once Kefir has fermented to taste, separate the Kefir Grains from the Liquid Kefir. First, stir or shake to gain an even consistency. Placing a strainer over the open mouth of a wide container, pour the whole contents through the strainer. If necessary use a spoon to gently encourage the kefir milk through the strainer. Do Not press the grain into the strainer. 
 
-4. Store the Kefir Milk in a clean airtight sealed bottle. Kefir milk may be consumed at once. 1 to 2 days storage in the fridge or ripened at room temperature improves flavor and increases nutritional value. Vitamins B1, B6 and B9(folic acid) increase during storage.
+**4. Store the Kefir Milk** 
 
-5. Wash the fermenting jar and repeat.
+Store in a clean airtight sealed bottle. Kefir milk may be consumed at once. 
+
+1 to 2 days storage in the fridge or ripened at room temperature improves flavor and increases nutritional value. Vitamins B1, B6 and B9(folic acid) increase during storage.
+
+**5. Wash the fermenting jar and repeat.**
 
 After straining, the grains are placed back into a clean fermenting vessel with fresh milk, repeating the process without rinsing the grains.
 
