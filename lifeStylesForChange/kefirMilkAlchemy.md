@@ -142,7 +142,7 @@ Suitable milk types: Raw, unpasteurized or pasteurized whole milk. Goat, Cow, Sh
 
 **1. Place fresh Kefir Grains in clean glass jar and add fresh milk.**
 
-Avoid antibacterial soaps. For sterile jars and hands, use vinegar to rinse or [Pro-biotic Eco-Enzyme.](./waterAlchemy)
+Avoid antibacterial soaps. For sterile jars and hands, use vinegar to rinse or [Pro-biotic Eco-Enzyme.](.waterAlchemy.md)
 
 **2. Gently stir contents and cover with a secure lid.**
 
