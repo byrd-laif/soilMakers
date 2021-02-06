@@ -34,6 +34,8 @@ For centuries, it’s been used in European and Asian folk medicine due to the w
 
 *The processes required for fermentation were present on earth when Wo-Man appeared on the scene. Bacterial fermentation; The alchemy of the most intimate relationships between Wo-Man, microbe and food.*
 
+*Processed food are starving the micro-biota of genetic stimulation (body and soil), live-culture foods are rich depositories of bacterial genes that are part of the human cultural legacy.*
+
 *Recolonize a domesticated digestive track with ancient native cultures that heal.*
 
 #### *A Symbiotic Gaian Connection; Coevolution.* 
@@ -139,6 +141,8 @@ Suitable milk types: Raw, unpasteurized or pasteurized whole milk. Goat, Cow, Sh
 #### *Method*
 
 **1. Place fresh Kefir Grains in clean glass jar and add fresh milk.**
+
+Avoid antibacterial soaps. For sterile jars and hands, use vinegar to rinse or [Pro-biotic Eco-Enzyme.](./waterAlchemy)
 
 **2. Gently stir contents and cover with a secure lid.**
 
