@@ -5,7 +5,7 @@ date: 2018-08-13
 
 # *The Soil Rehabilitation Miracle of Bokashi*
 
-## *A Revival Of The Gian Connection; a journey of symbiotic healing, Soil to Soul.*
+## *A Revival Of The Gaian Connection; a journey of symbiotic healing, Soil to Soul.*
 
 **Humans are Symbiotic body and soil microbial gardens. Life is not possible without Rich Fertile Soil.**
 
