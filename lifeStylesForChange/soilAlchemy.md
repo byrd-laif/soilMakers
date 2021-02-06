@@ -115,7 +115,7 @@ Making Bokashi starter using small dry leaf as a substrate.
 
 - 1:2 rice to water ratio, soak rice for about 15 minutes, stir vigorously then strain and ferment the water in a open air vessel with a secured cloth cover to allow exposure to the air for 5 - 8 days. (rice can be cooked and consumed)
 
-**2) Home ferment [Kefir Milk](./lifeStylesForChange/kefirMilkAlchemy.md) whey or sauerkraut juice**
+**2) Home ferment [Kefir Milk](./kefirMilkAlchemy.md) whey or sauerkraut juice**
 
 Kefir Whey made available from straining kefir milk through cloth to separate the milk solids from the liquid whey. If neither whey or sauerkraut juice is available then add 1 part fermented rice water to 10 parts whole milk, cover and allow to ferment 10 - 14 days. The ferment will separate into three distinct layers. Use a turkey baster or some such device to retrieve the middle layer.
 
