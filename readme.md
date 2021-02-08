@@ -2,7 +2,7 @@
 
 **The Art Of Ecology; cultivating relationships between Wo-Man, organisms and their environments.**
 
-**The defining challenge of our time; Find the potential for the Cultivation of a more Attuned and Responsive Awareness of our Ecological Interconnection.**
+**The defining challenge; to find the potential for cultivation of a more attuned and responsive awareness of ecological interconnections.**
 
 [Live Blog On Matrix - Soil Seekers](https://matrix.to/#/!EwezVvVjpxKVCMIuRM:matrix.org?via=matrix.org&via=kde.org&via=converser.eu)
 
