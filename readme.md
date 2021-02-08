@@ -2,8 +2,6 @@
 
 **The Art Of Ecology; cultivating relationships between Wo-Man, organisms and their environments.**
 
-**The defining challenge; to find the potential for cultivation of a more attuned and responsive awareness of ecological interconnections.**
-
 [Live Blog On Matrix - Soil Seekers](https://matrix.to/#/!EwezVvVjpxKVCMIuRM:matrix.org?via=matrix.org&via=kde.org&via=converser.eu)
 
 ## *Sharing Circle Salons ~ LifeStyles For Change*
@@ -24,23 +22,23 @@
 
 **Projecting ones lifestyle into a future possibility, living the creative process and designing a Living that feeds the Soul, honors the Soil and pays the Bills.**
 
-#### *The Ecology Is The Economy*
-
-**A new Eco Conscious breed of Wo-Man has evolved from the adage of "The American Dream", the wild places of this world need Wo-Man to do better than that.**
+#### *The Ecology Is The Economy
 
 **It's Time to start comparing consumption and lifestyles, and checking this against nature's ability to provide for this consumption. It's Time to own up to the realities of what that translates to for the generations to come, aesthetically and otherwise. It's time to be Ecologically Realistic and get back to the Heart of what Life is all about.** 
 
 #### *Environ-Mental Health*
 
-**The loss of biodiversity on the planet is directly related to the behaviors of human beings. Humans have destroyed and continue to destroy the habitats of species on a daily basis. The catastrophic impact of loss of biodiversity (The Sixth Extinction) will affect the planet and its inhabitants for generations to come.** 
+**The cultivation of a more attuned and responsive awareness of Wo-Mans ecological interconnections.**
 
-**Having accepted this circumstance, Responsibility then means the *Ability* to have a Creative Response to the situation as it is Now. The *Seeds of Opportunity*, and awareness to take the moment and transform it into a better situation.** 
+**The loss of biodiversity on the planet is directly related to the lifestyles of human beings. Humans have destroyed and continue to destroy the habitats of species on a daily basis. The catastrophic impact of loss of biodiversity (The Sixth Extinction) will affect the planet and its inhabitants for generations to come.** 
+
+**Having accepted this circumstance, *responsibility* then means the *ability* to have a *creative response* to the situation as it is now. The *seeds of opportunity*, and awareness to take the moment and transform it into a better situation.** 
 
 #### *An opportunity for the creation of something new and beautiful.*
 
-**Today’s young Generation are being handed the biggest challenge of all; saving biodiversity the living *'Quality of Life'* on this planet. The indiscriminate use of the earth's resources, at a rate faster than the earth can regenerate, leave the next generation with shrinking reserves.**
+**Today’s young generation are being handed the biggest challenge of all; cultivating biodiversity the symbiotic living *'Quality of Life'* of this planet.**
 
-**Not addressing immediate needs is an insult to the young. People with passion, purpose and practical skills make the world a better place. Its time to Act on the environ-mental realities they face.**
+**Not addressing immediate needs is an insult to the young. People with passion, purpose and practical skills make the world a better place. Its time to *act* on the environ-mental realities they face.**
 ...
 
 
