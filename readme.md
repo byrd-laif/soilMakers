@@ -44,14 +44,14 @@
 ...
 
 
-### Cooperation and Harmony ~ Sharing Circle Salons
+### *Cooperation and Harmony ~ Sharing Circle Salons*
 
-#### SOCIOCRACY AND DYNAMIC GOVERNANCE VALUES
+#### *DYNAMIC GOVERNANCE VALUES*
 - Effectiveness: Get things done
 - Transparency: Open - Everyone knows
 - Equivalence: Fairness/ equality
 
-#### GOVERNING PRINCIPLES
+#### *GOVERNING PRINCIPLES*
 - Consent decision making : decisions are made by consent not consensus.
 
 - Circle organization : semi-autonomous self-governing groups, each of which has its own goals, and the responsibility to direct, operate and measure its own processes.
