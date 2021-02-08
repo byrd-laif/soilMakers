@@ -1,6 +1,6 @@
 # *Soil Seekers ~ Cultivating Ecological Literacy*
 
-**Ecology As Art; cultivating symbiotic relationships between Wo-Man, organisms and their environments.**
+**Ecology As Art; curating symbiotic relationships between Wo-Man, organisms and their environments.**
 
 [Live Blog On Matrix - Soil Seekers](https://matrix.to/#/!EwezVvVjpxKVCMIuRM:matrix.org?via=matrix.org&via=kde.org&via=converser.eu)
 
@@ -40,11 +40,11 @@
 
 #### *An opportunity for the creation of something new and beautiful.*
 
-**Today’s young generation are being handed the biggest challenge of all; cultivating biodiversity the symbiotic living *'Quality of Life'* on this planet.**
-
-#### *Its time to act on the environ-mental realities they face, soil to soul.*
+**Today’s young generation are being handed the biggest challenge of all; *Cultivating Biodiversity* the symbiotic living *'Quality of Life'* on this planet.**
 
 **Not addressing immediate needs is an insult to the young. People with passion, purpose and practical skills make the world a better place.** 
+
+#### *Its time to act on the environ-mental realities they face, soil to soul.*
 
 ...
 
