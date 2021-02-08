@@ -26,7 +26,7 @@
 
 #### *The Ecology Is The Economy*
 
-**The loss of biodiversity on the planet is directly related to the lifestyles of human beings. Humans have destroyed and continue to destroy the habitats of species on a daily basis.**
+**Loss of biodiversity is directly related to the lifestyles of human beings. Humans have destroyed and continue to destroy the habitats of species on a daily basis.**
 
 **It's time to start comparing consumption and lifestyle, and checking this against nature's ability to provide for this consumption. To own up to the realities of what that translates to for the generations to come, aesthetically and otherwise. It's time to be *Ecologically Realistic* and get back to the *Heart* of what *Life* is all about.** 
 
