@@ -4,11 +4,11 @@
 
 [Live Blog On Matrix - Soil Seekers](https://matrix.to/#/!EwezVvVjpxKVCMIuRM:matrix.org?via=matrix.org&via=kde.org&via=converser.eu)
 
-## *Sharing Circle Salons ~ LifeStyles For Change*
+## *LifeStyles For Change* ~ Sharing Circle Salons
 
 **Art, as the vehicle of feeling with and thinking through living in a damaged world, connecting and healing soil to soul.**
 
-**Designed To Be Fun, Creative, Interactive And Resourceful. At a time of ecological and economic precarity, 'Salon Style' Sharing Circles, offer space for rethinking and remaking relations with each other and the environment.**
+**Designed To Be Fun, Creative, Interactive And Resourceful. At a time of ecological and economic precarity, 'Salon Style' *Sharing Circles*, offer space for rethinking and remaking relations with each other and Mother Earth.**
 
 ### *Global Comm-Unity for Local Impact*
 
@@ -20,13 +20,13 @@
 
 **Knowledge to design a more desirable, fulfilling, life supporting; Ecologically Modern and Realistic Lifestyle.**
 
-**Projecting ones lifestyle into a future possibility, living the creative process and designing a Living that feeds the Soul, honors the Soil and pays the Bills.**
+**Projecting ones lifestyle into a future possibility, living the creative process and designing a living that feeds the Soul, honors the Soil and pays the Bills.**
 
-#### *The Ecology Is The Economy
+#### *The Ecology Is The Economy*
 
-**It's Time to start comparing consumption and lifestyles, and checking this against nature's ability to provide for this consumption. It's Time to own up to the realities of what that translates to for the generations to come, aesthetically and otherwise. It's time to be Ecologically Realistic and get back to the Heart of what Life is all about.** 
+**It's time to start comparing consumption and lifestyle, and checking this against nature's ability to provide for this consumption. To own up to the realities of what that translates to for the generations to come, aesthetically and otherwise. It's time to be *Ecologically Realistic* and get back to the *Heart* of what *Life* is all about.** 
 
-#### *Environ-Mental Health*
+#### *Environ-Mental Health ~ Soil to Soul*
 
 **The cultivation of a more attuned and responsive awareness of Wo-Mans ecological interconnections.**
 
