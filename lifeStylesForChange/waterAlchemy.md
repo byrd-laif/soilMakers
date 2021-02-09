@@ -11,19 +11,23 @@ date: 2018-08-13
 ## *Water Alchemy - Recycling organic materials through living organisms naturally purifies water.*
 ***Water Alchemy*** is the ongoing exploration of what happens when people connect head, heart, and body in the crucible of the water. The ancient alchemists combined substances and used the influence of their own minds to study the transmutation of matter and of spirit. Observe when the discursive mind becomes quieter and the intelligence of the heart comes to the foreground, a new ecologically symbiotic consciousness emerges. Work in symbiotic partnership with the more-than-human world and make incredible discoveries. 
 
-### *Water Therapy; the practice of spending time *Cultivating Living Healing Water* for the purpose of enhancing Whole Health, Earth Care, Wellness, and Happiness. A practice of *Symbiotic Connection* with the natural world and with each other, healing water to soul.*
+### *Water Therapy;* the practice of spending time *Cultivating Living Healing Water* for the purpose of enhancing Whole Health, Earth Care, Wellness, and Happiness. A practice of *Symbiotic Connection* with the natural world and with each other, *healing water to soul.*
 
-#### *Conservation as a consequence of production.*
+#### ***Conservation as a consequence of production.***
 ***Symbiotic Living; Cleaning is Healing and Caring for Earth Mothers- Water, Soil and Air.***
+
 **Explore an alternative way to connect; Symbiotically clean, heal and support the whole body in a way that cleans, heals and supports the environment. A pro-biotic rich super food for the micro-biome of the Physical Body and Mother Earth.** 
 
 #### *Self-care that goes far beyond the self.*
+
 **Symbiotically nourishing, fortifying and gentle, pro-biotic cleaning is healing.** 
 
 **Remarkably enough the Physical Body and Mother Earth find natural healing benefits from this one easy process.**
+
 *Yes, Nature is that simple, effective and synergistic.*
 
 #### *What is Pro-biotic Eco-enzyme*
+
 **A simple process of encouraging natural fermentation by lactic acid-forming bacteria such as Lactobacillus species and naturally-occurring wild yeasts of fruit and plant food remnants and brown sugar.**
 
 **Teaming with antioxidants, Pro-Biotic Eco-enzyme is a powerful multi-functional tool.**
@@ -76,12 +80,15 @@ It is very difficult to reverse the effects of water pollution. Natural processe
 *On Behalf Of Life.* A Gift of Life, given symbiotically by healing and cleaning the whole body and built environment with Pro-biotic Eco-enzymes. More than skin deep, **Soul Food for the Micro-biome of Mother Earth's Water, Soil, Air and Soul.**
 
 ### *Symbiotic Body And Soil Microbial Gardens.* 
-#### *There is a micro-biome connection between Humans and the Soil.* 
+
+#### *There is a micro-biome connection between Humans and the Soil.*
+ 
 **A healthy micro-biome, which consists of an overwhelming majority of beneficial pro-biotic bacteria, is one of the most fundamental aspects of health.**
 
 **The human body contain 10 times more bacteria than human cells, meaning around 100 trillion microbes make up the physical human body. Humans are Wild in this way.** The largest colony is located in the stomach and intestines. The bacteria digest substances that help the immune system defend against invaders. This exact same process happens symbiotically, in soil, water and the food that comes from it. Protect the microbes with Pro-biotic Eco-enzymes. Doing so will keep the micro-biome full of live beneficial organisms, which will help keep digestion, immunity and overall health on track. **Body, Soil and Water encourage the growth of healthy bacteria.**
 
 ### Re-Act To The Environ-Mental Realities 
+
 **Eco-Enzyme is an ecologically responsible solution,** for those living in apartments/condos or for those looking to use their fresh food remnants as a **nutrient rich pro-biotic water and soil amendment.** Use in the garden, plant pots or the environment as a gift of thanks, pro-biotic water for Mother Earth. No traditional 'garden' is required! Be creative. Whats around ...
 
 #### Discover the Miracle of Pro-Biotic Eco-Enzyme and how it impacts:
@@ -94,31 +101,32 @@ It is very difficult to reverse the effects of water pollution. Natural processe
 
 **Lifestyles For Change- Fermenting fresh organic kitchen matter can reduce 70% of the total waste production and reduce the bad gases produced during organic decomposition, while saving the environment by creating a beneficial, symbiotic substance to combat the negative use of toxic chemicals and pollutants.**
 
-#### *Some Eco-Enzyme Benefits:*
+Methane gas released from poorly disposed organic food waste can trap 21 times more heat than CO2, worsening the global warming condition.
+
+#### *Pro-biotic Eco-enzyme Benefits:*
+
 ***Naturally; Anti-Bacterial, Anti-Fungal, Anti-Viral and a Natural Antiseptic.***
 
-**Stable**- If the Eco-enzyme is full of its necessary nutrients, it can survive even at pH value below 3.5, this ferment usually produces a beautiful safe and stable pH range of 4.5-5. The fermentation can remain active even at temperatures as high as 100C. 
+**Stable**- If the ferment is full of its necessary nutrients, it can survive even at pH value below 3.5, this ferment usually produces a beautiful safe and stable pH range of 4.5-5. The fermentation can remain active even at temperatures as high as 100C. 
 
-**Safe**- Naturally teaming with antimicrobial goodness, these bacteria inhibit the growth of pathogens naturally eliminating the need for preservatives. Eco-Enzymes are toxic free and perfect for the most sensitive at any age.
-
-Enzymes exhibit a number of features that make their use advantageous. They do not present disposal problems, are biodegradable being mostly proteins and peptides. Enzymes as catalysts have been exploited since the 1960s, easily isolated, several enzyme-catalyzed processes have been successfully introduced to industry, e.g. in the production of certain foodstuffs, pharmaceuticals and agrochemicals.
+**Safe**- Naturally teaming with antimicrobial goodness, these bacteria inhibit the growth of pathogens naturally eliminating the need for preservatives. Ferments are toxic free and perfect for the most sensitive at any age.
 
 **Medicinal**- LAB ferments are part of normal micro-flora of gastrointestinal and genitourinary (the urinary and genital organs) tracts, hence they are used as components of pro-biotic products.
 
 **Bioremediation**- Biotechnology employs the use of living organisms, microbes and bacteria, in the removal of contaminants, pollutants, and toxins from soil, water, and other environments.
 
 **Reduce Water Pollution**- Water pollution is a major global problem, one of the leading worldwide **causes of death and disease**, accounting for the deaths of more than 14,000 people daily(2006). Eco-Enzyme is utilized as a low-cost alternative to
-improve wastewater treatment processes. A 9% solution of Eco-Enzyme is effective in removing ammonia, nitrogen and phosphorus, and in neutralizing municipal wastewater, within a period of 5 days. The enzyme converts ammonia to nitrate (NO3-), a natural and useful hormone and nutrient for plants.
+improve wastewater treatment processes. A 9% solution of Eco-Enzyme has been effective in removing ammonia, nitrogen and phosphorus, and in neutralizing municipal wastewater, within a period of 5 days. The enzyme converts ammonia to nitrate (NO3-), a natural and useful hormone and nutrient for plants.
 
-**Multiple Usage**- Natural household cleaner, body wash, mouth wash, wound healing, air purifier, laundry detergent, fabric softener, de-scaler, organic fertilizer, etc. Adding Eco Enzyme to food and water for feeding domestic animals can boost their immune system and improve the quality of poultry or meat.
+**Multiple Usage**- Natural household cleaner, body wash, mouth wash, wound healing, air purifier, laundry detergent, fabric softener, de-scaler, organic fertilizer, etc. Adding pro-biotic Eco-enzyme to food and water for feeding domestic animals can boost their immune system and improve the quality of poultry or meat.
 
 **Purify Underground Water**- Eco-Enzyme residues flow underground and help to purify ground water they come in contact with. 
 
-**Purify Air**- Remove odors from toxic air released from smoking, car exhaust, chemical residues of household products, etc. Methane gas released from poorly disposed organic food waste can trap 21 times more heat than CO2, worsening the global warming condition.
+**Purify Air**- Cleaning with Eco-enzyme remove odors from toxic air released from smoking, car exhaust, chemical residues of household products, etc. 
 
 **Clearing Drains**- Eco-enzyme can be used for clearing urban drains after a storm.
 
-**Any plant matter can be used in this process, choose citrus and pineapple peel for there powerful cleaning abilities and pleasing aroma.**
+**Any plant matter can be used in this process, choose citrus and pineapple peel for there powerful cleaning and healing abilities and pleasing aroma.**
 
 #### Pro-Biotic Eco-Enzyme is easy to make, three ingredients are required:
 - molasses or brown sugar
@@ -132,15 +140,16 @@ improve wastewater treatment processes. A 9% solution of Eco-Enzyme is effective
 **The fermentation process produces amino acids and peptides that promote healthy cellular renewal.**
 **The lightweight essence is readily accepted and absorbed, immediately seeping deep into the skin, rich in antioxidants that decelerate the aging of cells.**
 
-**Used as a *whole body* healing wash, moisturizer, serum or mask.**
+**A perfect balance for the most sensitive skin. Used as a *whole body* healing wash, moisturizer, serum or mask.**
 
-**Fermentation naturally produce Alpha hydroxy acid- AHA, the all-important ingredient that mildly exfoliates. Working by accelerating skin cell turnover gently exfoliating, helping slough away dead skin cells to reveal its natural gorgeous glow. Acts as a moisturizer and humectant, meaning it draws water into the skin, helping to plump-up the skin producing a smooth, luminous appearance.**
+**Fermentation naturally produce:** 
 
-**Lactic acid, the gentle sister of the AHA, the ideal combination for those with sensitive skin. Lactic acid is known for making the skin extremely soft while also brightening. Effectively improving skin tone of post-inflammatory hyper-pigmentation (the darkness that gets left behind after acne, a burn or injury to the skin), pigment issues like melisma, sun spots and dull looking skin. Like AHAs it also helps with acne, blackheads, and whiteheads.**
+**Alpha hydroxy acid-** AHA, the all-important ingredient that mildly exfoliates. Working by accelerating skin cell turnover gently exfoliating, helping slough away dead skin cells to reveal its natural gorgeous glow. Acts as a moisturizer and humectant, meaning it draws water into the skin, helping to plump-up the skin producing a smooth, luminous appearance.
 
-**Lactic acid works to clear pores and control breakouts on the face and body without stripping moisture levels. Gently removes dirt and oil without over-drying the skin, and helps protect skin from environmental aggressors.**
+**Lactic acid-** LA, is known for making the skin extremely soft while also brightening. Lactic acid helps prevent and reverse signs of aging by increasing the collagen production of the skin. Effectively improving skin tone of post-inflammatory hyper-pigmentation (the darkness that gets left behind after acne, a burn or injury to the skin), pigment issues like melisma, sun spots and dull looking skin. 
 
-**Lactic acid can be used to help prevent and reverse signs of aging by increasing the collagen production of the skin.** 
+Like AHAs it also helps with acne, blackheads, and whiteheads. Working to clear pores and control breakouts without stripping moisture levels. Gently removes dirt and oil without over-drying the skin, and helps protect skin from environmental aggressors.
+
 
 #### *Functions*
 *What can be done with it:*
@@ -172,11 +181,11 @@ improve wastewater treatment processes. A 9% solution of Eco-Enzyme is effective
 - Put 1 part brown sugar in the container and stir.
 
 **Step 3:**
-- Put up to 3 parts fruit remnants into the container.
-This is just a guideline, experiment and play. The smaller chopped the pieces the better the ferment.
+- Put 4-5 parts fruit remnants into the container. The smaller chopped the pieces the better the ferment.
+This is just a guideline, experiment and play with the ratio.
 
 **Step 4:**
-- Close the container and let the mixture **ferment for 3 months.** It’s important not to expose the ferment to the air. During the first month, gases will be released during fermentation process. Pressure will built up in the container, release daily to avoid rupturing or use an airlock. Leave the cap a little lose or put a balloon over to avoid an explosion. A cloth with elastic is not suitable for this type of fermentation. Date the bin!
+- Top up with water, close the container and let the mixture **ferment for 3 months.** It’s important not to expose the ferment to the air. During the first month, gases will be released during fermentation process. Pressure will built up in the container, release daily to avoid rupturing or use an airlock. Leave the cap a little lose or put a balloon over to avoid an explosion. A cloth with elastic is not suitable for this type of fermentation. Date the bin!
 
 Fermentation time & environment: 3 months minimum, from the time stopped adding food remnants. Store in a dark environment away from excessive heat.
 
