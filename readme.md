@@ -4,11 +4,11 @@
 
 [Live Blog On Matrix - Soil Seekers](https://matrix.to/#/!EwezVvVjpxKVCMIuRM:matrix.org?via=matrix.org&via=kde.org&via=converser.eu)
 
-## *LifeStyles For Change* ~ Sharing Circle Salons
+## *LifeStyles For Change* ~ Sharing Circle *Salons*
 
 **Art, as the vehicle of feeling with and thinking through living in a damaged world, connecting and healing soil to soul.**
 
-**Cultivating relationships and comm-unity by revitalizing 'The Art of Conversation'. Designed to be fun, creative, interactive and resourceful.**
+**Cultivating relationships and comm-unity by revitalizing *'The Art of Conversation'*. Designed to be Fun, Creative, Interactive and Resourceful.**
 
 #### *Global Comm-Unity for Local Impact*
 
@@ -26,9 +26,9 @@
 
 #### *The Ecology Is The Economy*
 
-**Loss of biodiversity is directly related to the lifestyles of human beings. Humans have destroyed and continue to destroy the habitats of species on a daily basis.**
+**Loss of biodiversity is directly related to the lifestyles of human beings.**
 
-**It's time to start comparing consumption and lifestyle, and checking this against nature's ability to provide for this consumption. To own up to the realities of what that translates to for the generations to come, aesthetically and otherwise. It's time to be *Ecologically Realistic* and get back to the *Heart* of what *Life* is all about.** 
+**It's time to start comparing consumption and lifestyle, and checking this against nature's ability to provide for this consumption. Humans have destroyed and continue to destroy the habitats of species on a daily basis. It's time to own up to the realities of what that translates to for the generations to come, aesthetically and otherwise. It's time to be *Ecologically Realistic* and get back to the *heart* of what *life* is all about.** 
 
 #### *Environ-Mental Health ~ Soil to Soul*
 
@@ -40,7 +40,7 @@
 
 #### *An opportunity for the creation of something new and beautiful.*
 
-**Today’s young generation are being handed the biggest challenge of all; *Cultivating Biodiversity* the symbiotic living *'Quality of Life'* on this planet.**
+**Today’s young generation are being handed the biggest challenge of all; *'Cultivating Biodiversity'* the symbiotic living *'Quality of Life'* on this planet.**
 
 **Not addressing immediate needs is an insult to the young. People with passion, purpose and practical skills make the world a better place.** 
 

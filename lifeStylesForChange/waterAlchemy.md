@@ -13,19 +13,19 @@ date: 2018-08-13
 
 #### ***Conservation as a consequence of production.***
 ***Symbiotic Living; Healing and Caring for Earth Mothers- Water, Soil and Air.***
-*Explore an alternative way to connect; Symbiotically heal and support the whole body in a way that heals and supports the environment. A pro-biotic rich super food for the micro-biome of the body, Soil to Soul.* 
+*Explore an alternative way to connect; Symbiotically heal and support the whole body in a way that heals and supports the environment. A pro-biotic rich super food for the micro-biome of the physical Body, Water and Soil.* 
 
 Remarkably enough the physical body, the Water and all that come in contact with that, the Soil, find natural healing benefits from pro-biotic eco-enzymes with this one easy process.
 
 #### Self-care that goes far beyond the self.
 Through natural fermentation of organic fresh fruit remnants produce luxury pro-biotic and multi purpose; **Healing and Cleaning Products.**
 
-#### *Symbiotically Nourishing, fortifying and gentle. Whole Body, Built Environment, *Earth Care* Products; Water, Soil and Soul.* 
+#### *Symbiotically Nourishing, fortifying and gentle. Whole Body, Built Environment and *Earth Care* Products; Water, Soil and Soul.* 
 
 **Yes, Nature is that simple, effective and synergistic.**
 
 #### *What is Pro-biotic Eco-enzyme*
-***Fermented Fruit Peel (Orange, lemon, lime and pineapple)***
+***Fermented Fruit Peel (Orange, lemon, lime, and pineapple)***
 **Teaming with antioxidants, Eco-enzyme is a powerful multi-functional tool.**
 
 Eco-enzymes are complex organic substance of protein chains, mineral salts and juvenile hormones.
@@ -38,19 +38,19 @@ What all cultured 'foods' have in common is an abundance of lactic acid bacteria
 
 #### *Few create a product that can truly rival real, live home ferments.*
 
-Fermentation produces Lactic Acid Bacteria (LAB), one of the most well studied bacterial groups known from ancient times. These valuable micro-organisms are used in numerous areas, especially food industry and medicine. LAB produce a wide range of compounds for food upgrading. Moreover, LAB can find special applications like generation of bio-energy not affecting the surrounding environment.
+Fermentation naturally produces Lactic Acid Bacteria (LAB), one of the most well studied bacterial groups known from ancient times. These valuable micro-organisms are used in numerous areas, especially food industry and medicine. LAB produce a wide range of compounds for food upgrading. Moreover, LAB can find special applications like generation of bio-energy not affecting the surrounding environment.
 
 #### *Why make Eco-Enzyme?*
 
 **Waterborne infections account for 80% of all infectious diseases.**
-There is a serious global environmental resource problem of water, soil and energy that are now coming to bear on Life As People Know It: food production, malnutrition, the incidence of diseases, ... . By 2025, half the world population will be living in water-stressed areas.(WHO) People are literally killing the micro-biome with chemicals that alter this grand vast unknowable microbial balance of Mother Earth. 
+There is a serious global environmental resource problem of water, soil and energy that are now coming to bear on *Life As People Know It:* food production, malnutrition, the incidence of diseases, ... . By 2025, half the world population will be living in water-stressed areas.(WHO) People are literally killing the micro-biome with chemicals that alter this grand vast unknowable microbial balance of Mother Earth. 
 
 **Re-use of wastewater, to recover water, nutrients, or energy, is becoming an important strategy.**
 
 #### *water*
 It is very difficult to reverse the effects of water pollution. Natural processes that cleanse the water can take years, decades, or even centuries, and even with costly technological processes, it can take years to remove all of the harmful substances from the water. There are many aspects of the contamination that must be removed. **First, and most importantly, the source of the water pollution must be removed, so that additional water contamination does not occur.**
 
-**Cleaning products and fertilizers made with chemicals and pesticides pollute the underground water, rivers and surrounding ecosystems.** Pharmaceutical drugs and personal care products, also manufactured by many pharmaceutical companies (such as sunscreen lotions, lipsticks, deodorants, perfumes, and shampoos), are produced in staggeringly huge quantities; **often equaling or surpassing agrochemicals in tonnage.** The volume consumed is simply astounding. All of these go into the ecosystem, most of them into waste treatment systems. These conventional cleaning products contain harmful amounts of chemicals such as phosphate, nitrates, ammonia, chlorine etc. The accumulated effect of these chemicals released from every household causes significant damage to the health of the environment and the body. 
+**Cleaning products and fertilizers made with chemicals and pesticides pollute the underground water, rivers and surrounding ecosystems.** Pharmaceutical drugs and personal care products, also manufactured by many pharmaceutical companies (such as sunscreen lotions, lipsticks, deodorants, perfumes, body soaps, laundry/dish washing detergents, and shampoos, ...), are produced in staggeringly huge quantities; **often equaling or surpassing agrochemicals in tonnage.** The volume consumed is simply astounding. All of these go into the ecosystem, most of them into waste treatment systems. These conventional cleaning products contain harmful amounts of chemicals such as phosphate, nitrates, ammonia, chlorine etc. The accumulated effect of these chemicals released from every household causes significant damage to the health of the environment and the body. 
 
 **Pro-biotic Eco-enzyme is a solution to some very big problems. By symbiotically keeping the body healthy and restoring vitality and strength to the environment. It is easily done at negligible cost, free of harmful pollutants, effective, and multipurpose.**
 
