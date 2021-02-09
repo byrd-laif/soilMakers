@@ -4,37 +4,44 @@ date: 2018-08-13
 ---
 
 # *The Water Rehabilitation Miracle Of Pro-Biotic Eco-Enzyme*
-**Pro-biotic enzymes are naturally; Anti-Bacterial, Anti-Fungal, Anti-Viral and a Natural Antiseptic.**
+
+**Multi Purpose Cleaning and Healing Products: Whole Body, Built Environment and *Earth Care*.**
+**Naturally; Anti-Bacterial, Anti-Fungal, Anti-Viral and a Natural Antiseptic.**
 
 ## *Water Alchemy - Recycling organic materials through living organisms naturally purifies water.*
 ***Water Alchemy*** is the ongoing exploration of what happens when people connect head, heart, and body in the crucible of the water. The ancient alchemists combined substances and used the influence of their own minds to study the transmutation of matter and of spirit. Observe when the discursive mind becomes quieter and the intelligence of the heart comes to the foreground, a new ecologically symbiotic consciousness emerges. Work in symbiotic partnership with the more-than-human world and make incredible discoveries. 
 
 ### *Water Therapy; the practice of spending time *Cultivating Living Healing Water* for the purpose of enhancing Whole Health, Earth Care, Wellness, and Happiness. A practice of *Symbiotic Connection* with the natural world and with each other, healing water to soul.*
 
-#### ***Conservation as a consequence of production.***
-***Symbiotic Living; Healing and Caring for Earth Mothers- Water, Soil and Air.***
-*Explore an alternative way to connect; Symbiotically heal and support the whole body in a way that heals and supports the environment. A pro-biotic rich super food for the micro-biome of the physical Body, Water and Soil.* 
+#### *Conservation as a consequence of production.*
+***Symbiotic Living; Cleaning is Healing and Caring for Earth Mothers- Water, Soil and Air.***
+**Explore an alternative way to connect; Symbiotically clean, heal and support the whole body in a way that cleans, heals and supports the environment. A pro-biotic rich super food for the micro-biome of the Physical Body and Mother Earth.** 
 
-Remarkably enough the physical body, the Water and all that come in contact with that, the Soil, find natural healing benefits from pro-biotic eco-enzymes with this one easy process.
+#### *Self-care that goes far beyond the self.*
+**Symbiotically nourishing, fortifying and gentle, pro-biotic cleaning is healing.** 
 
-#### Self-care that goes far beyond the self.
-Through natural fermentation of organic fresh fruit remnants produce luxury pro-biotic and multi purpose; **Healing and Cleaning Products.**
-
-#### *Symbiotically Nourishing, fortifying and gentle. Whole Body, Built Environment and *Earth Care* Products; Water, Soil and Soul.* 
-
-**Yes, Nature is that simple, effective and synergistic.**
+**Remarkably enough the Physical Body and Mother Earth find natural healing benefits from this one easy process.**
+*Yes, Nature is that simple, effective and synergistic.*
 
 #### *What is Pro-biotic Eco-enzyme*
-***Fermented Fruit Peel (Orange, lemon, lime, and pineapple)***
-**Teaming with antioxidants, Eco-enzyme is a powerful multi-functional tool.**
+**A simple process of encouraging natural fermentation by lactic acid-forming bacteria such as Lactobacillus species and naturally-occurring wild yeasts of fruit and plant food remnants and brown sugar.**
+
+**Teaming with antioxidants, Pro-Biotic Eco-enzyme is a powerful multi-functional tool.**
+
+**Through fermentation, the ingredients used for making Pro-biotic Eco-enzyme will have effect on each other, creating a complex but stable enzymatic ecosystem.** 
+
+The microbes eat the sugars, digesting them and excrete metabolites. A detoxification and transfer of anti-nutrients into nutrients occurs, with nutrient enhancement and the creation of micro-nutrients. An abundance of LAB lactic acid bacteria, yeasts, and molds that produce enzymes, break down and alter the original foods. 
+
+Following fermentation, the natural anti-bacterial properties of fruit peels are further enhanced as organic substances are decomposed, yielding secondary metabolites known as bio-active compounds or phytochemicals. The process creates new amino acids, organic acids, and antioxidants that didn’t originally exist in the raw material, naturally optimized to provide the most nutrition.
+
+**A pro-biotic power house is born.**
+The fermentation process naturally increases the bio-availability, making it so the physical body and Mother Earth are able to absorb the nutrients. 
 
 Eco-enzymes are complex organic substance of protein chains, mineral salts and juvenile hormones.
 
-Through fermentation, the ingredients used for making Pro-biotic Eco-enzyme will have effect on each other, creating a complex but stable enzymatic ecosystem. A detoxification and transfer of anti-nutrients into nutrients occurs, with nutrient enhancement and the creation of micro-nutrients.
+The extraction of enzymes, organic acids, and phenolic compounds through the fermentation process is preferred over conventional methods that require costly solvents, involve the possible degradation of heat-labile compounds, and through which it is difficult to obtain high purity extracts.
 
-Following fermentation, the natural anti-bacterial properties of fruit peels are further enhanced as organic substances are decomposed, yielding secondary metabolites known as bioactive compounds or phytochemicals. The extraction of enzymes, organic acids, and phenolic compounds through the fermentation process is preferred over conventional methods that require costly solvents, involve the possible degradation of heat-labile compounds, and through which it is difficult to obtain high purity extracts.
-
-What all cultured 'foods' have in common is an abundance of lactic acid bacteria, yeasts, and molds that produce enzymes which break down and alter the original foods. The microbes eat the sugars, digesting them and excrete metabolites. There are many targeted uses for these metabolites. LAB are applied in food production and preservation, companies package them and sell them at a high cost. The majority of products on the market are powdered or freeze-dried, this process causes damage to the microbes, resulting in 90 to 95% die off. This means, even though colony counts are high, only 5 to 10% of the microbes are actually alive.
+There are many targeted uses for these metabolites. LAB are applied in food production and preservation, companies package them and sell them at a high cost. The majority of products on the market are powdered or freeze-dried, this process causes damage to the microbes, resulting in 90 to 95% die off. This means, even though colony counts are high, only 5 to 10% of the microbes are actually alive.
 
 #### *Few create a product that can truly rival real, live home ferments.*
 
@@ -50,9 +57,9 @@ There is a serious global environmental resource problem of water, soil and ener
 #### *water*
 It is very difficult to reverse the effects of water pollution. Natural processes that cleanse the water can take years, decades, or even centuries, and even with costly technological processes, it can take years to remove all of the harmful substances from the water. There are many aspects of the contamination that must be removed. **First, and most importantly, the source of the water pollution must be removed, so that additional water contamination does not occur.**
 
-**Cleaning products and fertilizers made with chemicals and pesticides pollute the underground water, rivers and surrounding ecosystems.** Pharmaceutical drugs and personal care products, also manufactured by many pharmaceutical companies (such as sunscreen lotions, lipsticks, deodorants, perfumes, body soaps, laundry/dish washing detergents, and shampoos, ...), are produced in staggeringly huge quantities; **often equaling or surpassing agrochemicals in tonnage.** The volume consumed is simply astounding. All of these go into the ecosystem, most of them into waste treatment systems. These conventional cleaning products contain harmful amounts of chemicals such as phosphate, nitrates, ammonia, chlorine etc. The accumulated effect of these chemicals released from every household causes significant damage to the health of the environment and the body. 
+**Home Cleaning products and fertilizers made with chemicals and pesticides pollute the underground water, rivers and surrounding ecosystems.** Pharmaceutical drugs and personal care products, also manufactured by many pharmaceutical companies (such as sunscreen lotions, lipsticks, deodorants, perfumes, body soaps, and shampoos, ...), are produced in staggeringly huge quantities; **often equaling or surpassing agrochemicals in tonnage.** The volume consumed is simply astounding. All of these go into the ecosystem, most of them into waste treatment systems. These conventional cleaning products contain harmful amounts of chemicals such as phosphate, nitrates, ammonia, chlorine etc. The accumulated effect of these chemicals released from every household causes significant damage to the health of the environment and the body. 
 
-**Pro-biotic Eco-enzyme is a solution to some very big problems. By symbiotically keeping the body healthy and restoring vitality and strength to the environment. It is easily done at negligible cost, free of harmful pollutants, effective, and multipurpose.**
+#### *Pro-biotic Eco-enzyme is a solution to some very big problems. By symbiotically keeping the body healthy and restoring vitality and strength to the environment. It is easily done at negligible cost, free of harmful pollutants, effective, and multipurpose.*
 
 ### *Stop the killing Gaia is a Micro-biome - Cultivate Cultures That Heal*
 
@@ -66,17 +73,13 @@ It is very difficult to reverse the effects of water pollution. Natural processe
 
 **Why make Pro-Biotic Eco-Enzymes?**
 
-*On Behalf Of Life.* A Gift of Life, given symbiotically by healing and cleaning the whole body and built environment with Pro-biotic Eco-enzymes. More than skin deep, **Soul Food for the Micro-biome of Mother Earth's Water and Soil.**
+*On Behalf Of Life.* A Gift of Life, given symbiotically by healing and cleaning the whole body and built environment with Pro-biotic Eco-enzymes. More than skin deep, **Soul Food for the Micro-biome of Mother Earth's Water, Soil, Air and Soul.**
 
 ### *Symbiotic Body And Soil Microbial Gardens.* 
 #### *There is a micro-biome connection between Humans and the Soil.* 
 **A healthy micro-biome, which consists of an overwhelming majority of beneficial pro-biotic bacteria, is one of the most fundamental aspects of health.**
 
 **The human body contain 10 times more bacteria than human cells, meaning around 100 trillion microbes make up the physical human body. Humans are Wild in this way.** The largest colony is located in the stomach and intestines. The bacteria digest substances that help the immune system defend against invaders. This exact same process happens symbiotically, in soil, water and the food that comes from it. Protect the microbes with Pro-biotic Eco-enzymes. Doing so will keep the micro-biome full of live beneficial organisms, which will help keep digestion, immunity and overall health on track. **Body, Soil and Water encourage the growth of healthy bacteria.**
-
-**A simple process of encouraging natural fermentation by lactic acid-forming bacteria such as Lactobacillus species and naturally-occurring wild yeasts of fruit and plant food remnants and brown sugar. The fermentation process produces amino acids and peptides that promote healthy cellular renewal.**
-
-This process naturally increases the bio-availability, making it so the physical body and Mother Earth are able to absorb the nutrients. The process creates new amino acids, organic acids, and antioxidants that didn’t originally exist in the raw material, naturally optimized to provide the most nutrition.
 
 ### Re-Act To The Environ-Mental Realities 
 **Eco-Enzyme is an ecologically responsible solution,** for those living in apartments/condos or for those looking to use their fresh food remnants as a **nutrient rich pro-biotic water and soil amendment.** Use in the garden, plant pots or the environment as a gift of thanks, pro-biotic water for Mother Earth. No traditional 'garden' is required! Be creative. Whats around ...
@@ -126,13 +129,14 @@ improve wastewater treatment processes. A 9% solution of Eco-Enzyme is effective
 
 #### **Deliciously rich, gourmet food for the micro-biome of the skin. *Fermented ingredients are a supercharged turbo boost skincare routine.***
 
-**This fermentation process creates a product rich in antioxidants, which decelerate the aging of cells.**
+**The fermentation process produces amino acids and peptides that promote healthy cellular renewal.**
+**The lightweight essence is readily accepted and absorbed, immediately seeping deep into the skin, rich in antioxidants that decelerate the aging of cells.**
 
-**The lightweight essence enables the skin to readily accept and absorb the ingredients, immediately seeping deep into the skin. A product that can be used as a healing wash, moisturizer, serum or mask.**
+**Used as a *whole body* healing wash, moisturizer, serum or mask.**
 
 **Fermentation naturally produce Alpha hydroxy acid- AHA, the all-important ingredient that mildly exfoliates. Working by accelerating skin cell turnover gently exfoliating, helping slough away dead skin cells to reveal its natural gorgeous glow. Acts as a moisturizer and humectant, meaning it draws water into the skin, helping to plump-up the skin producing a smooth, luminous appearance.**
 
-**Lactic acid, the gentle sister of the AHA, the ideal combination for those with sensitive skin. Lactic acid is known for making the skin extremely soft while also brightening. Effective in improving skin tone of post-inflammatory hyper-pigmentation (the darkness that gets left behind after acne, a burn or injury to the skin), pigment issues like melisma, sun spots and dull looking skin. Like AHAs it also helps with acne, blackheads, and whiteheads.**
+**Lactic acid, the gentle sister of the AHA, the ideal combination for those with sensitive skin. Lactic acid is known for making the skin extremely soft while also brightening. Effectively improving skin tone of post-inflammatory hyper-pigmentation (the darkness that gets left behind after acne, a burn or injury to the skin), pigment issues like melisma, sun spots and dull looking skin. Like AHAs it also helps with acne, blackheads, and whiteheads.**
 
 **Lactic acid works to clear pores and control breakouts on the face and body without stripping moisture levels. Gently removes dirt and oil without over-drying the skin, and helps protect skin from environmental aggressors.**
 
