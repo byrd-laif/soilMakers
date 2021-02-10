@@ -15,20 +15,26 @@ date: 2018-08-13
 
 A series of guided invitations, natural cycles, bring one into the present moment, opening the doors of symbiotic communication with the soil, waters, and landscapes they explore. Encounter not just the soil, but the many ways nature mirrors humans, encountering ourselves, Soil to Soul Food.
 
+#### *Cultivating soil is cultivating compassion for mother earth; an act of humility.*
+
+***Humility:*** The state of being Humble; Middle English, from Anglo-French, from Latin humilis low, humble, ***from humus earth;*** akin to Greek chthōn earth, chamai on the ground.
+
 ![Pro-biotic Fluffy Soil](./bokashiImages/fluffyBokashiSoil_web.jpg)
 Pro-biotic fluffy soil.
 
 #### **What is Bokashi?**
 
 **Pro-biotic Soul Food For The Soil.**
-Bokashi is a Japanese term meaning fermented organic matter and refers to a 2-step method of indoor composting that uses beneficial micro-organisms to quickly ferment many types of organic matter including food remnants, fruit, vegetables, meat, dairy and bread.
+Bokashi is a Japanese term meaning fermented organic matter and refers to a 2-step method of indoor soil building that uses beneficial micro-organisms to quickly ferment many types of organic matter including food remnants, fruit, vegetables, meat, dairy and bread.
+
+Although the terms humus and compost are informally used interchangeably, they are distinct soil components with different origins; humus is created through anaerobic fermentation, while compost is the result of aerobic decomposition. This is the very important difference between composting and bokashi method. There is no purification or desegregation happening here. Bokashi is working symbiotically with nature to accelerate the process using beneficial microbes. 
+
+Bokashi conserves water in the ground, nutrients are less prone to leaching and run-off because the organic nutrients literally are the soil after Bokashi fermentation is complete. Humus soils are not as water soluble and less prone to leaching away with watering and run-off after rains.
 
 #### *Method*
 
 **Step 1: Anaerobic Fermentation** - takes place indoors in a sealed Bokashi bin.
 Layering food remnants with a starter mix, the microbes present in the starter mix quickly ferment the food remnants. Once filled set the bin aside for 10 - 14 days and start using another bin. Two weeks later the initial bin of organic matter will be fully fermented and ready for Step 2.
-
-Although the terms humus and compost are informally used interchangeably, they are distinct soil components with different origins; humus is created through anaerobic fermentation, while compost is the result of aerobic decomposition.
 
 **Step 2:** - is done in the garden, compost pile, or a semi closed pro-biotic *soil factory*. Shallow bury the contents of the bin in the garden or compost bin. Up to 1/3 can be added to the bottom of indoor or outdoor pots.
 
