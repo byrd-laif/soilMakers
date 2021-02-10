@@ -4,15 +4,17 @@
 
 [Live Blog On Matrix - Soil Seekers](https://matrix.to/#/!EwezVvVjpxKVCMIuRM:matrix.org?via=matrix.org&via=kde.org&via=converser.eu)
 
-## *LifeStyles For Change* ~ Sharing Circle *Salons*
+## *LifeStyles For Change ~ Sharing Circle *Salons*
 
-**Art, as the vehicle of feeling with and thinking through living in a damaged world, connecting and healing soil to soul.**
+**Art, as the vehicle of feeling with and thinking through living in a damaged world, cultivating cultures that heal, connecting and healing soil to soul.**
 
-**Cultivating relationships and comm-unity by revitalizing *'The Art of Conversation'*. Designed to be Fun, Creative, Interactive and Resourceful.**
+### *Global Comm-Unity for Local Impact*
 
-#### *Global Comm-Unity for Local Impact*
+**Cultivating relationships and comm-unity by revitalizing *'The Art of Conversation'*.**
 
 **At a time of ecological and economic precarity, 'Salon Style' *Sharing Circles*, offer space for rethinking and remaking symbiotic relations with each other and Mother Earth.**
+
+#### *Designed to be Fun, Creative, Interactive and Resourceful.*
 
 **To awaken possibility and creative insight, refine the taste and increase the knowledge of the participants through guided conversation organized around cultures and ideas reflective of the era in which they live.**
 

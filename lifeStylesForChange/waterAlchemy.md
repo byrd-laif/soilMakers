@@ -4,7 +4,7 @@ date: 2018-08-13
 ---
 
 # *The Water Rehabilitation Miracle Of Pro-Biotic Eco-Enzyme*
-**A pro-biotic rich super food for the micro-biome of the Physical Body and Mother Earth.***
+***A pro-biotic rich super food for the micro-biome of the Physical Body and Mother Earth.***
 
 *Multi Purpose Whole Body, Built Environment and *Earth Care* Products. Naturally; Anti-Bacterial, Anti-Fungal, Anti-Viral and a Natural Antiseptic.*
 
