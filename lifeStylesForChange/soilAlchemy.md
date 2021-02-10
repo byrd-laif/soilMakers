@@ -38,6 +38,9 @@ Layering food remnants with a starter mix, the microbes present in the starter m
 
 **Step 2:** - is done in the garden, compost pile, or a semi closed pro-biotic *soil factory*. Shallow bury the contents of the bin in the garden or compost bin. Up to 1/3 can be added to the bottom of indoor or outdoor pots.
 
+![In the garden, dig a shallow trench and cover with soil.](./bokashiImages/bokashiGardenBury_web.jpg)
+In the garden, dig a shallow trench, deposit contents and cover with soil.
+
 Most food remnants will be indistinguishable from the soil in a week or two, although certain items like bones, egg shells, and corn cobs will take longer to disappear and will act as a slow release fertilizer. While the organic matter is converted into soil it is still quite acidic so wait 10 days before planting.
 
 The active ingredients in the process are the effective microorganisms – a combination of lactic acid bacteria (also found in home kefir whey and lacto ferments), photosynthetic bacteria, and yeast - that ferment the organic matter. These microbes, present in the Bokashi Starter Mix, are sprinkled over the layers of food remnants as the bin is filled.
