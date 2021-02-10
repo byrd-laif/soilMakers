@@ -16,15 +16,15 @@
 
 **To awaken possibility and creative insight, refine the taste and increase the knowledge of the participants through guided conversation organized around cultures and ideas reflective of the era in which they live.**
 
+**Knowledge to design a more desirable, fulfilling, life supporting; Ecologically Modern and Realistic Lifestyle.**
+
 [Real time interactive salon style sharing circle on Matrix. Join the conversation in the **Vivarium Interactive Salon**](https://matrix.to/#/!LSpVaMCiYQehpJONFF:matrix.org?via=matrix.org&via=t2bot.io&via=stux.chat)
 
-### *Examining ecologic behaviors; Conservation as a consequence of lifestyle / production.*
-
-**Knowledge to design a more desirable, fulfilling, life supporting; Ecologically Modern and Realistic Lifestyle.**
+### *The Ecology Is The Economy*
 
 **Projecting ones lifestyle into a future possibility, living the creative process and designing a living that feeds the Soul, honors the Soil and pays the Bills.**
 
-#### *The Ecology Is The Economy*
+#### *Examining ecologic behaviors; Conservation as a consequence of lifestyle / production.*
 
 **Loss of biodiversity is directly related to the lifestyles of human beings.**
 
@@ -46,7 +46,7 @@
 
 **Not addressing immediate needs is an insult to the young. People with passion, purpose and practical skills make the world a better place.** 
 
-#### *Its time to act on the environ-mental realities they face, soil to soul.*
+#### *Its time to act on the environ-mental realities they face, soil to soul, cultivate cultures that heal.*
 
 ...
 
