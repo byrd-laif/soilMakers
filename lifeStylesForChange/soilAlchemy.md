@@ -13,9 +13,9 @@ date: 2018-08-13
 
 ### *Soil Therapy;* the practice of spending time *Cultivating Fertile Soil* for the purpose of Enhancing Whole Health, Earth Care, Wellness, and Happiness. A practice of *Symbiotic Connection* with the natural world and with each other, healing soil to soul.
 
-A series of guided invitations, natural cycles, bring one into the present moment, opening the doors of symbiotic communication with the soil, waters, and landscapes they explore. Encounter not just the soil, but the many ways nature mirrors humans, encountering ourselves, Soil to Soul Food.
+A series of guided invitations, natural cycles, bring one into the present moment, opening the doors of symbiotic communication with the soil, waters, and landscapes explored. Encounter not just the soil, but the many ways nature mirrors humans, encountering oneself, Soil to Soul Food.
 
-#### *Cultivating soil is cultivating compassion for mother earth; an act of humility.*
+#### *Cultivating cultures that heal cultivates compassion for mother earth; an act of humility.*
 
 ***Humility:*** The state of being Humble; Middle English, from Anglo-French, from Latin humilis low, humble, ***from humus earth;*** akin to Greek chthōn earth, chamai on the ground.
 
@@ -45,7 +45,7 @@ Most food remnants will be indistinguishable from the soil in a week or two, alt
 
 The active ingredients in the process are the effective microorganisms – a combination of lactic acid bacteria (also found in home kefir whey and lacto ferments), photosynthetic bacteria, and yeast - that ferment the organic matter. These microbes, present in the Bokashi Starter Mix, are sprinkled over the layers of food remnants as the bin is filled.
 
-A healthy Bokashi bucket does not create bad odors, greenhouse gas, or heat - uses no power, and is completely natural. The aroma of the open bin is slightly sweet, fermented (sour), perhaps slightly alcoholic odor and should not be offensive.
+A healthy Bokashi bucket does not create bad odors,  greenhouse gas, or heat - uses no power, no aeration is required (no turning) and is completely natural. The aroma of the open bin is slightly sweet, fermented (sour), perhaps slightly alcoholic odor and should not be offensive.
 
 #### *Benefits of Bokashi*
 
@@ -70,7 +70,7 @@ Bokashi, the ecologically responsible option for food remnants, perfect for thos
 Bokashi gives a finished pro-biotic humus soil in 30–45 days all in. The speed of the fermentation process is a big advantage, cycling organic remnants faster by going straight from kitchen to fermentation, to soil, over and over again in small batches. With out the need to collect a critical mass of scraps to start, the fermentation process starts right away. Scale the fermentation
 vessel to the amount of scraps being generated, going straight into the bokashi bucket as soon as they are produced.
 
-Note: Fresh citrus and pineapple remnants are packed with powerful organic cleaning enzymes that can be easily fermented to produce luxury [Pro-biotic and multi purpose; Symbiotic Healing and Cleaning Products.](./waterAlchemy.md)
+Note: Fresh citrus and pineapple remnants are packed with powerful organic cleaning enzymes that can be easily fermented to produce luxury [Pro-biotic and multi purpose; Symbiotic Healing and Cleaning Products.](./waterAlchemy.md) That can be added to the bokashi system as a byproduct.
 
 #### *Materials and Tools Needed*
 

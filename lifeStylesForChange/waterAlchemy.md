@@ -4,24 +4,21 @@ date: 2018-08-13
 ---
 
 # *The Water Rehabilitation Miracle Of Pro-Biotic Eco-Enzyme*
+**A pro-biotic rich super food for the micro-biome of the Physical Body and Mother Earth.***
 
-**Multi Purpose Cleaning and Healing Products: Whole Body, Built Environment and *Earth Care*.**
-**Naturally; Anti-Bacterial, Anti-Fungal, Anti-Viral and a Natural Antiseptic.**
+*Multi Purpose Whole Body, Built Environment and *Earth Care* Products. Naturally; Anti-Bacterial, Anti-Fungal, Anti-Viral and a Natural Antiseptic.*
 
-## *Water Alchemy - Recycling organic materials through living organisms naturally purifies water.*
+## *Conservation as a consequence of production.*
+
+**Cultivate cultures that heal; Symbiotically clean, heal and support the whole body in a way that cleans, heals and supports the environment.** 
+
+### *Water Alchemy - Recycling organic materials through living organisms naturally purifies water.*
 ***Water Alchemy*** is the ongoing exploration of what happens when people connect head, heart, and body in the crucible of the water. The ancient alchemists combined substances and used the influence of their own minds to study the transmutation of matter and of spirit. Observe when the discursive mind becomes quieter and the intelligence of the heart comes to the foreground, a new ecologically symbiotic consciousness emerges. Work in symbiotic partnership with the more-than-human world and make incredible discoveries. 
 
-### *Water Therapy;* the practice of spending time *Cultivating Living Healing Water* for the purpose of enhancing Whole Health, Earth Care, Wellness, and Happiness. A practice of *Symbiotic Connection* with the natural world and with each other, *healing water to soul.*
+#### *Water Therapy;* the practice of spending time *Cultivating Living Healing Water* for the purpose of enhancing Whole Health, Earth Care, Wellness, and Happiness. A practice of *Symbiotic Connection* with the natural world and with each other, *healing water to soul.*
 
-#### ***Conservation as a consequence of production.***
 
-***Symbiotic Living; Pro-biotic Eco-enzyme Cleaning is Healing and Caring for Earth Mothers- Water, Soil and Air.***
-
-**Explore an alternative way to connect; Symbiotically clean, heal and support the whole body in a way that cleans, heals and supports the environment. A pro-biotic rich super food for the micro-biome of the Physical Body and Mother Earth.** 
-
-#### *Self-care that goes far beyond the self.*
-
-**Symbiotically nourishing, fortifying and gentle. Remarkably enough the Physical Body and Mother Earth find natural healing benefits from this one easy process.**
+***Self-care that goes far beyond the self.* Symbiotically nourishing, fortifying and gentle. Remarkably enough the Physical Body and Mother Earth find natural healing benefits from this one easy process.**
 
 *Yes, Nature is that simple, effective and synergistic.*
 

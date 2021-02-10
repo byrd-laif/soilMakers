@@ -32,7 +32,7 @@
 
 **This is about honesty and responsibility. Honesty meaning admitting to what is. Responsibility meaning not blaming it on anybody else.**
 
-#### *Environ-Mental Health ~ Soil to Soul*
+### *Environ-Mental Health ~ Cultivating cultures that heal, Soil to Soul*
 
 **The cultivation of a more attuned and responsive awareness of Wo-Mans ecological interconnections.**
 
