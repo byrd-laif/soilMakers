@@ -19,7 +19,9 @@ date: 2019-02-04
 
 #### Cultivate cultures that heal.
  
-LAB culture (lactic acid) fermentation is a symbiotic relationship between humans and bacteria that preforms three basic functions.
+Lactic Acid Bacteria (LAB), one of the most well studied bacterial groups known from ancient times. *Lactic acid - this molecule occurs in almost every living organism and it plays an essential role in the anaerobic energy metabolism of billions of life forms.* These valuable micro-organisms are used in numerous areas, especially food industry and medicine. LAB produce a wide range of compounds for food upgrading.
+ 
+LAB(lactic acid) fermentation is a symbiotic relationship between humans and bacteria that preforms three basic functions.
 
 (1) Pre-digestion of nutrients into more accessible and bio-available forms.
 (2) Nutritional enhancement and creation of unique
