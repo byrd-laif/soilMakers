@@ -14,23 +14,20 @@ date: 2018-08-13
 ### *Water Therapy;* the practice of spending time *Cultivating Living Healing Water* for the purpose of enhancing Whole Health, Earth Care, Wellness, and Happiness. A practice of *Symbiotic Connection* with the natural world and with each other, *healing water to soul.*
 
 #### ***Conservation as a consequence of production.***
-***Symbiotic Living; Cleaning is Healing and Caring for Earth Mothers- Water, Soil and Air.***
+
+***Symbiotic Living; Pro-biotic Eco-enzyme Cleaning is Healing and Caring for Earth Mothers- Water, Soil and Air.***
 
 **Explore an alternative way to connect; Symbiotically clean, heal and support the whole body in a way that cleans, heals and supports the environment. A pro-biotic rich super food for the micro-biome of the Physical Body and Mother Earth.** 
 
 #### *Self-care that goes far beyond the self.*
 
-**Symbiotically nourishing, fortifying and gentle, pro-biotic cleaning is healing.** 
-
-**Remarkably enough the Physical Body and Mother Earth find natural healing benefits from this one easy process.**
+**Symbiotically nourishing, fortifying and gentle. Remarkably enough the Physical Body and Mother Earth find natural healing benefits from this one easy process.**
 
 *Yes, Nature is that simple, effective and synergistic.*
 
 #### *What is Pro-biotic Eco-enzyme*
 
 **A simple process of encouraging natural fermentation by lactic acid-forming bacteria such as Lactobacillus species and naturally-occurring wild yeasts of fruit and plant food remnants and brown sugar.**
-
-**Teaming with antioxidants, Pro-Biotic Eco-enzyme is a powerful multi-functional tool.**
 
 **Through fermentation, the ingredients used for making Pro-biotic Eco-enzyme will have effect on each other, creating a complex but stable enzymatic ecosystem.** 
 
@@ -48,6 +45,8 @@ The extraction of enzymes, organic acids, and phenolic compounds through the fer
 There are many targeted uses for these metabolites. LAB are applied in food production and preservation, companies package them and sell them at a high cost. The majority of products on the market are powdered or freeze-dried, this process causes damage to the microbes, resulting in 90 to 95% die off. This means, even though colony counts are high, only 5 to 10% of the microbes are actually alive.
 
 #### *Few create a product that can truly rival real, live home ferments.*
+
+**Teaming with antioxidants, Pro-Biotic Eco-enzyme is a powerful multi-functional tool.**
 
 Fermentation naturally produces Lactic Acid Bacteria (LAB), one of the most well studied bacterial groups known from ancient times. These valuable micro-organisms are used in numerous areas, especially food industry and medicine. LAB produce a wide range of compounds for food upgrading. Moreover, LAB can find special applications like generation of bio-energy not affecting the surrounding environment.
 
@@ -75,17 +74,17 @@ It is very difficult to reverse the effects of water pollution. Natural processe
 
 **Biotic- ‘life’.**
 
-**Why make Pro-Biotic Eco-Enzymes?**
+**Why make Pro-Biotic Eco-Enzyme?**
 
-*On Behalf Of Life.* A Gift of Life, given symbiotically by healing and cleaning the whole body and built environment with Pro-biotic Eco-enzymes. More than skin deep, **Soul Food for the Micro-biome of Mother Earth's Water, Soil, Air and Soul.**
+*On Behalf Of Life.* A Gift of Life, given symbiotically by cleaning and healing the whole body and built environment with Pro-biotic Eco-enzyme. More than skin deep, **Soul Food for the Micro-biome, Soil to Soul.**
 
-### *Symbiotic Body And Soil Microbial Gardens.* 
+### *Symbiotic Microbial Gardens, Body and Soil .* 
 
-#### *There is a micro-biome connection between Humans and the Soil.*
+#### *There is a micro-biome connection between Humans and the Soil, Humus.*
  
 **A healthy micro-biome, which consists of an overwhelming majority of beneficial pro-biotic bacteria, is one of the most fundamental aspects of health.**
 
-**The human body contain 10 times more bacteria than human cells, meaning around 100 trillion microbes make up the physical human body. Humans are Wild in this way.** The largest colony is located in the stomach and intestines. The bacteria digest substances that help the immune system defend against invaders. This exact same process happens symbiotically, in soil, water and the food that comes from it. Protect the microbes with Pro-biotic Eco-enzymes. Doing so will keep the micro-biome full of live beneficial organisms, which will help keep digestion, immunity and overall health on track. **Body, Soil and Water encourage the growth of healthy bacteria.**
+**The human body contain 10 times more bacteria than human cells, meaning around 100 trillion microbes make up the physical human body. Humans are Wild in this way.** The largest colony is located in the stomach and intestines. The bacteria digest substances that help the immune system defend against invaders. This exact same process happens symbiotically, in soil, water and the food that comes from it. Protect the microbes with Pro-biotic Eco-enzyme. Doing so will keep the micro-biome full of live beneficial organisms, which will help keep digestion, immunity and overall health on track. **Body, Soil and Water encourage the growth of healthy bacteria.**
 
 ### Re-Act To The Environ-Mental Realities 
 
