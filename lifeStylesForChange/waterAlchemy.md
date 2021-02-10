@@ -48,8 +48,6 @@ There are many targeted uses for these metabolites. LAB are applied in food prod
 
 **Teaming with antioxidants, Pro-Biotic Eco-enzyme is a powerful multi-functional tool.**
 
-Fermentation naturally produces Lactic Acid Bacteria (LAB), one of the most well studied bacterial groups known from ancient times. These valuable micro-organisms are used in numerous areas, especially food industry and medicine. LAB produce a wide range of compounds for food upgrading. Moreover, LAB can find special applications like generation of bio-energy not affecting the surrounding environment.
-
 #### *Why make Eco-Enzyme?*
 
 **Waterborne infections account for 80% of all infectious diseases.**
@@ -85,6 +83,8 @@ It is very difficult to reverse the effects of water pollution. Natural processe
 **A healthy micro-biome, which consists of an overwhelming majority of beneficial pro-biotic bacteria, is one of the most fundamental aspects of health.**
 
 **The human body contain 10 times more bacteria than human cells, meaning around 100 trillion microbes make up the physical human body. Humans are Wild in this way.** The largest colony is located in the stomach and intestines. The bacteria digest substances that help the immune system defend against invaders. This exact same process happens symbiotically, in soil, water and the food that comes from it. Protect the microbes with Pro-biotic Eco-enzyme. Doing so will keep the micro-biome full of live beneficial organisms, which will help keep digestion, immunity and overall health on track. **Body, Soil and Water encourage the growth of healthy bacteria.**
+
+Fermentation naturally produces Lactic Acid Bacteria (LAB), one of the most well studied bacterial groups known from ancient times. *Lactic acid - this molecule occurs in almost every living organism and it plays an essential role in the anaerobic energy metabolism of billions of life forms.* These valuable micro-organisms are used in numerous areas, especially food industry and medicine. LAB produce a wide range of compounds for food upgrading. Moreover, LAB can find special applications like generation of bio-energy not affecting the surrounding environment.
 
 ### Re-Act To The Environ-Mental Realities 
 
