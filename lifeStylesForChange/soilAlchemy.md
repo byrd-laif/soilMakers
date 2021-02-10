@@ -7,11 +7,11 @@ date: 2018-08-13
 
 ## *A Revival Of The Gaian Connection; a journey of symbiotic healing, Soil to Soul.*
 
-**Humans and Humus are Symbiotic body and soil microbial gardens. Life is not possible without Rich Fertile Humus Soil.**
+**Humans and Humus are Symbiotic body and soil microbial gardens. Life is not possible without Rich Fertile Soil.**
 
 ***Soil Alchemy*** is the ongoing exploration of what happens when people connect head, heart, and body in the crucible of the soil. The ancient alchemists combined substances and used the influence of their own minds to study the transmutation of matter and of spirit. Observe when the discursive mind becomes quieter and the intelligence of the heart comes to the foreground, a new ecologically symbiotic consciousness emerges. Work in symbiotic partnership with the more-than-human world and make incredible discoveries. 
 
-### *Soil Therapy;* the practice of spending time *Cultivating Fertile Humus Soil* for the purpose of Enhancing Whole Health, Earth Care, Wellness, and Happiness. A practice of *Symbiotic Connection* with the natural world and with each other, healing soil to soul.
+### *Soil Therapy;* the practice of spending time *Cultivating Fertile Soil* for the purpose of Enhancing Whole Health, Earth Care, Wellness, and Happiness. A practice of *Symbiotic Connection* with the natural world and with each other, healing soil to soul.
 
 A series of guided invitations, natural cycles, bring one into the present moment, opening the doors of symbiotic communication with the soil, waters, and landscapes they explore. Encounter not just the soil, but the many ways nature mirrors humans, encountering ourselves, Soil to Soul Food.
 
@@ -30,9 +30,9 @@ Layering food remnants with a starter mix, the microbes present in the starter m
 
 Although the terms humus and compost are informally used interchangeably, they are distinct soil components with different origins; humus is created through anaerobic fermentation, while compost is the result of aerobic decomposition.
 
-**Step 2:** - is done in the garden, compost pile, or a semi closed pro-biotic *humus soil factory*. Shallow bury the contents of the bin in the garden or compost bin. Up to 1/3 can be added to the bottom of indoor or outdoor pots.
+**Step 2:** - is done in the garden, compost pile, or a semi closed pro-biotic *soil factory*. Shallow bury the contents of the bin in the garden or compost bin. Up to 1/3 can be added to the bottom of indoor or outdoor pots.
 
-Most food remnants will be indistinguishable from the soil in a week or two, although certain items like bones, egg shells, and corn cobs will take longer to disappear and will act as a slow release fertilizer. While the organic matter is converted into humus it is still quite acidic so wait 10 days before planting.
+Most food remnants will be indistinguishable from the soil in a week or two, although certain items like bones, egg shells, and corn cobs will take longer to disappear and will act as a slow release fertilizer. While the organic matter is converted into soil it is still quite acidic so wait 10 days before planting.
 
 The active ingredients in the process are the effective microorganisms – a combination of lactic acid bacteria (also found in home kefir whey and lacto ferments), photosynthetic bacteria, and yeast - that ferment the organic matter. These microbes, present in the Bokashi Starter Mix, are sprinkled over the layers of food remnants as the bin is filled.
 
