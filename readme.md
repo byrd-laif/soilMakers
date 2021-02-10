@@ -30,6 +30,8 @@
 
 **It's time to start comparing consumption and lifestyle, and checking this against nature's ability to provide for this consumption. Humans have destroyed and continue to destroy the habitats of species on a daily basis. It's time to own up to the realities of what that translates to for the generations to come, aesthetically and otherwise. It's time to be *Ecologically Realistic* and get back to the *heart* of what *life* is all about.** 
 
+**This is about honesty and responsibility. Honesty meaning admitting to what is. Responsibility meaning not blaming it on anybody else.**
+
 #### *Environ-Mental Health ~ Soil to Soul*
 
 **The cultivation of a more attuned and responsive awareness of Wo-Mans ecological interconnections.**

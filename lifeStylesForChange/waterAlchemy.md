@@ -136,10 +136,7 @@ improve wastewater treatment processes. A 9% solution of Eco-Enzyme has been eff
 
 #### **Deliciously rich, gourmet food for the micro-biome of the skin. *Fermented ingredients are a supercharged turbo boost skincare routine.***
 
-**The fermentation process produces amino acids and peptides that promote healthy cellular renewal.**
-**The lightweight essence is readily accepted and absorbed, immediately seeping deep into the skin, rich in antioxidants that decelerate the aging of cells.**
-
-**A perfect balance for the most sensitive skin. Used as a *whole body* healing wash, moisturizer, serum or mask.**
+**The lightweight essence is readily accepted and absorbed, immediately seeping deep into the skin, rich in antioxidants that decelerate the aging of cells. The fermentation process produces amino acids and peptides that promote healthy cellular renewal.**
 
 **Fermentation naturally produce:** 
 
@@ -149,6 +146,7 @@ improve wastewater treatment processes. A 9% solution of Eco-Enzyme has been eff
 
 Like AHAs it also helps with acne, blackheads, and whiteheads. Working to clear pores and control breakouts without stripping moisture levels. Gently removes dirt and oil without over-drying the skin, and helps protect skin from environmental aggressors.
 
+**A perfect balance for the most sensitive skin. Used as a *whole body* healing wash, moisturizer, serum or mask.**
 
 #### *Functions*
 *What can be done with it:*
@@ -223,11 +221,11 @@ Eco-Enzymes can be used safely at full strength, undiluted, on the most sensitiv
 - Wound healing, diaper rash wash - 1:10 or undiluted
 - Dish washing - 1:500
 - Fruit and vegetable wash (submerge for 5 min) to remove chemicals and pesticides - 1:200
+- Laundry detergent, natural fabric softener - 1:500
 - Evaporative cooler - air freshener - 1:500
 - Insect replant and fertilizer for the garden - 1:500
-- Laundry detergent, natural fabric softener - 1:500
 
-*Adding 50ml of liquid store bought detergent/shampoo to 1000ml of Eco-Enzyme make a great concentrated de-greaser/cleaner/shampoo. Drastically reducing consumption and mitigating harmful effects. Perfect for dish washing, laundry and shampoo.*
+*Adding 50ml of liquid store bought detergent/shampoo to 1000ml of Eco-Enzyme make a great concentrated de-greaser/cleaner/shampoo. Drastically reducing consumption and mitigating harmful effects. Perfect for dish washing, laundry, shampoo and body wash.*
 
 ... The list goes on.
 
