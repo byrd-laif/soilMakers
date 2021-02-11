@@ -7,9 +7,9 @@ date: 2018-08-13
 
 ## *A Revival Of The Gaian Connection; a journey of symbiotic healing, Soil to Soul.*
 
-**Humans and Humus are Symbiotic body and soil microbial gardens. Life is not possible without Rich Fertile Soil.**
+**Humans and Humus are Symbiotic Body and Soil Microbial Gardens. Life is not possible without Rich Fertile Soil.**
 
-***Soil Alchemy*** is the ongoing exploration of what happens when people connect head, heart, and body in the crucible of the soil. The ancient alchemists combined substances and used the influence of their own minds to study the transmutation of matter and of spirit. Observe when the discursive mind becomes quieter and the intelligence of the heart comes to the foreground, a new ecologically symbiotic consciousness emerges. Work in symbiotic partnership with the more-than-human world and make incredible discoveries. 
+***Soil Alchemy*** is the ongoing exploration of what happens when people connect head, heart, and body in the crucible of the soil. The ancient alchemists combined substances and used the influence of their own minds to study the transmutation of matter and of spirit. Observe when the discursive mind becomes quieter and the intelligence of the heart comes to the foreground, a new *ecologically symbiotic consciousness* emerges. Work in *symbiotic partnership with the more-than-human world* and make incredible discoveries. 
 
 ### *Soil Therapy;* the practice of spending time *Cultivating Fertile Soil* for the purpose of Enhancing Whole Health, Earth Care, Wellness, and Happiness. A practice of *Symbiotic Connection* with the natural world and with each other, healing soil to soul.
 
@@ -67,10 +67,9 @@ Bokashi, the ecologically responsible option for food remnants, perfect for thos
 - can use most food remnants (including meat, dairy and cooked foods)
 - provides a nutrient rich pro-biotic soil amendment and liquid fertilizer for house plants, the garden, or potted plants.
 
-Bokashi gives a finished pro-biotic humus soil in 30–45 days all in. The speed of the fermentation process is a big advantage, cycling organic remnants faster by going straight from kitchen to fermentation, to soil, over and over again in small batches. With out the need to collect a critical mass of scraps to start, the fermentation process starts right away. Scale the fermentation
-vessel to the amount of scraps being generated, going straight into the bokashi bucket as soon as they are produced.
+**Bokashi gives a finished pro-biotic humus soil in 30–45 days all in.** The speed of the fermentation process is a big advantage, cycling organic remnants faster by going straight from kitchen to fermentation, to soil, over and over again in small batches. With out the need to collect a critical mass of scraps to start, the fermentation process starts right away. Scale the fermentation vessel to the amount of scraps being generated, going straight into the bokashi bucket as soon as they are produced.
 
-Note: Fresh citrus and pineapple remnants are packed with powerful organic cleaning enzymes that can be easily fermented to produce luxury [Pro-biotic and multi purpose; Symbiotic Healing and Cleaning Products.](./waterAlchemy.md) That can be added to the bokashi system as a byproduct.
+**Note:** Fresh citrus and pineapple remnants are packed with powerful organic cleaning enzymes that can be easily fermented to produce luxury [Pro-biotic and multi purpose; Symbiotic Healing and Cleaning Products.](./waterAlchemy.md) That can be added to the bokashi system as a byproduct.
 
 #### *Materials and Tools Needed*
 
@@ -93,10 +92,10 @@ Melting holes in larger bins for bokashi.
 - Start adding food remnants and bokashi inoculant, Starter Mix to the bucket.
 - Harvest liquid fertilizer (bokashi tea) by lifting the top bucket off of the bottom bucket, pouring any liquid into a separate container. Observe on a regular basis.
 
+Note: The brick creates space for the liquid fertilizer to collect and to ensure the buckets do not get stuck together as the inner bucket fills. 
+
 ![Apartment setup is easy and clean.](./bokashiImages/bokashiWorkingSetClosed_web.JPG)
 Apartment setup is easy, clean and scalable.
- 
-Note: The brick creates space for the liquid fertilizer to collect and to ensure the buckets do not get stuck together as the inner bucket fills. 
 
 #### *Making Bokashi Bran / Starter Mix*
 
@@ -104,8 +103,7 @@ Note: The brick creates space for the liquid fertilizer to collect and to ensure
 
 EM means effective micro-organisms. EM is a laboratory cultured mixture of naturally occurring micro-organisms consisting mainly of lactic acid bacteria, photosynthetic bacteria (purple bacteria) and yeasts which co-exist for the benefit of whichever environment they are introduced. EM can be purchased or easily cultured in house with readily available ingredients (instructions provided below). 
 
-Molasses have several uses beyond that of a straightforward food additive. It can be used as the **base material for
-fermentation** into rum and as the carbon source for in situ remediation of chlorinated hydrocarbons. It can be used as a chelating agent to remove rust where a rusted part stays a few weeks in a mixture of 1 part molasses and 10 parts water.
+Molasses have several uses beyond that of a straightforward food additive. It can be used as the **base material for fermentation** into rum and as the carbon source for in situ remediation of chlorinated hydrocarbons. It can be used as a chelating agent to remove rust where a rusted part stays a few weeks in a mixture of 1 part molasses and 10 parts water.
 
 ![Making bokashi starter using small dry leaf as a substrate.](./bokashiImages/bokashiMakingBran_web.JPG)
 Making Bokashi starter using small dry leaf as a substrate.
@@ -144,10 +142,10 @@ Making Bokashi starter using small dry leaf as a substrate.
 
 #### *Inside the Bokashi Bucket*
 
-- Assemble buckets and start adding food remnants, compact with a potato masher or use the bottom of a cup.
-
 ![Apartment bokashi setup, adding kitchen remnants.](./bokashiImages/bokashiOpenAddingKitchenRemnants_web.JPG) 
 Apartment bokashi setup, adding kitchen remnants.
+
+- Assemble buckets and start adding food remnants, compact with a potato masher or use the bottom of a cup.
 
 - Once the bin is about 1/2 inch of compacted food remnants dust with the bokashi starter.
 

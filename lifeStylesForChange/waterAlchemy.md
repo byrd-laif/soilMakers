@@ -6,7 +6,7 @@ date: 2018-08-13
 # *The Water Rehabilitation Miracle Of Pro-Biotic Eco-Enzyme*
 ***A pro-biotic rich super food for the micro-biome of the Physical Body and Mother Earth.***
 
-*Multi Purpose Whole Body, Built Environment and *Earth Care* Products. Naturally; Anti-Bacterial, Anti-Fungal, Anti-Viral and a Natural Antiseptic.*
+*Multi Purpose: Whole Body, Built Environment and *Earth Care* Products. Naturally; Anti-Bacterial, Anti-Fungal, Anti-Viral and a Natural Antiseptic.*
 
 ## *Conservation as a consequence of production.*
 
@@ -74,11 +74,11 @@ It is very difficult to reverse the effects of water pollution. Natural processe
 
 ### *Symbiotic Microbial Gardens, Body and Soil .* 
 
-#### *There is a micro-biome connection between Humans and the Soil, Humus.*
+#### *There is a micro-biome connection between Humans and the Soil.*
  
 **A healthy micro-biome, which consists of an overwhelming majority of beneficial pro-biotic bacteria, is one of the most fundamental aspects of health.**
 
-**The human body contain 10 times more bacteria than human cells, meaning around 100 trillion microbes make up the physical human body. Humans are Wild in this way.** The largest colony is located in the stomach and intestines. The bacteria digest substances that help the immune system defend against invaders. This exact same process happens symbiotically, in soil, water and the food that comes from it. Protect the microbes with Pro-biotic Eco-enzyme. Doing so will keep the micro-biome full of live beneficial organisms, which will help keep digestion, immunity and overall health on track. **Body, Soil and Water encourage the growth of healthy bacteria.**
+**The human body contain 10 times more bacteria than human cells, meaning around 100 trillion microbes make up the physical human body. Humans are Wild in this way, symbiotically connected to the environment.** The largest colony is located in the stomach and intestines. The bacteria digest substances that help the immune system defend against invaders. This exact same process happens symbiotically, in soil, water and the food that comes from it. Protect the microbes with Pro-biotic Eco-enzyme. Doing so will keep the micro-biome full of live beneficial organisms, which will help keep digestion, immunity and overall health on track. **Body, Soil and Water encourage the growth of healthy bacteria.**
 
 Fermentation naturally produces Lactic Acid Bacteria (LAB), one of the most well studied bacterial groups known from ancient times. ***Lactic acid - this molecule occurs in almost every living organism and it plays an essential role in the anaerobic energy metabolism of billions of life forms.*** These valuable micro-organisms are used in numerous areas, especially food industry and medicine. LAB produce a wide range of compounds for food upgrading. Moreover, LAB can find special applications like generation of bio-energy not affecting the surrounding environment.
 
@@ -110,7 +110,7 @@ Methane gas released from poorly disposed organic food waste can trap 21 times m
 
 **Bioremediation**- Biotechnology employs the use of living organisms, microbes and bacteria, in the removal of contaminants, pollutants, and toxins from soil, water, and other environments.
 
-**Reduce Water Pollution**- Water pollution is a major global problem, one of the leading worldwide **causes of death and disease**, accounting for the deaths of more than 14,000 people daily(2006). Eco-Enzyme is utilized as a low-cost alternative to
+**Reduce Water Pollution**- Water pollution is a major global problem, **one of the leading worldwide causes of death and disease**, accounting for the deaths of more than 14,000 people daily(2006). Eco-Enzyme is utilized as a low-cost alternative to
 improve wastewater treatment processes. One study showed: A 9% solution of Eco-Enzyme has been effective in removing ammonia, nitrogen and phosphorus, and in neutralizing municipal wastewater, within a period of 5 days. The enzyme converts ammonia to nitrate (NO3-), a natural and useful hormone and nutrient for plants.
 
 **Multiple Usage**- Natural household cleaner, body wash, mouth wash, wound healing, air purifier, laundry detergent, fabric softener, de-scaler, organic fertilizer, etc. Adding pro-biotic Eco-enzyme to food and water for feeding domestic animals can boost their immune system, improve the quality of poultry or meat and can be used as an egg wash.

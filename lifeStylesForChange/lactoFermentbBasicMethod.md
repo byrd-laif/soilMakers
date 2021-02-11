@@ -15,7 +15,9 @@ date: 2019-02-04
 
 ### The Alchemy Of Fermentation ~ Gaia's Kitchen
 
-**Fermentation is cooking with Gaia, *symbiotic food* that almost makes itself. Transforming simple raw vegetables like cabbage into *functional food medicine* that does not require a Modern Kitchen nor Fire (electricitly).**
+**Fermentation is the most intimate relationships between Wo-Man, microbe and Gaia, Earth. A tangible way of interacting with the larger web of life, a way to cultivate and reclaim a relationship with Nature, Gaia.**
+
+**Symbiotic food preservation with Gaia, food that almost makes itself. Transforming simple raw vegetables like cabbage into *functional food medicine* that does not require a Modern Kitchen nor Fire (electricity).**
 
 #### Cultivate cultures that heal.
  
@@ -80,13 +82,15 @@ Vegetables under the brine will remain edible for up to eight months before they
 ## Tips For Beginners
 - Colder and saltier = slower ferment. Warmer and less salt = faster ferment.
 
-- Check & taste the ferment daily and skim off any film that forms and get a sense for the fermented flavors desired (flavors change daily).
+- Check & taste the ferment daily and skim off any film that forms, get a sense for the fermented flavors desired (flavors change daily).
 
 - When fermenting, particularly with vegetables and fruits, at one point or another a white film may form, this is called kham yeast. It often covers the top of the ferment. It is sometimes confused for mold, it’s not something that is harmful to the body or the ferment but if not removed it can make the ferment bitter. Skim off the film, remove any discolored/darkened vegetables, and wash the follower. 
 
 - Avoid antibacterial soaps. For sterile jars and hands, use vinegar to rinse or [Pro-biotic Eco-enzyme.](./waterAlchemy.md)
 
 - All the “starter” needed is on the vegetables, there is no need to buy anything special or keep a starter culture alive between ferments.
+
+- Add spices and aromatic seasonings like garlic, onion, fennel, dill, whole pepper, cloves, ... .
 
 ## Health and Nutrition
 
@@ -95,11 +99,5 @@ Eating live, fermented foods directly supplies the digestive tract with living c
 This flora inhibits the growth of diarrhea related bacteria such as Shigella, Salmonella, and e.coli. Human intestines are lined with a mucosal cell surface which acts as a protection against stomach acids, lactobacillus compete with potential pathogens and protect the mucosal cell surface. They are essentially occupying space that pathogens would be occupying. Eating fermented foods is recommended to prevent a variety of gastrointestinal conditions including diarrhea, constipation, ulcers, and various other digestive disorders.
 
 Fermented foods are highly nutritious. Fermentation improves bio-availability of minerals present in food. As they go through their cycle of succession, microbial cultures create B-vitamins including folic acid, niacin, thiamin, and biotin. Lactobacilli creates omega 3 fatty acids, essential for cell membrane and immune system function. Lacto-fermentation can also remove toxins from food. 
-
-#### Cultivate Cultures That Heal.
-*Fermentation is the most intimate relationships between Wo-Man, microbe and Gaia, Earth.*
-
-### *Fermentation is a tangible way of interacting with the larger web of life, a way to cultivate and reclaim a relationship with Nature, Gaia.*
-
 
 
