@@ -83,6 +83,7 @@ Bokashi, the ecologically responsible option for food remnants, perfect for thos
 #### *Setting up The Bokashi Buckets*
 
 ![Melting holes in larger bins for bokashi.](./bokashiImages/bokashiBinBuildHole_web.jpg)
+
 Melting holes in larger bins for bokashi.
 
 - On the bottom of one bucket, drill or melt with a soldering iron, 20 to 30 holes with a 1/8- to 1/4-inch drill bit.
