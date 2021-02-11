@@ -4,7 +4,7 @@
 
 [Live Blog On Matrix - Soil Seekers](https://matrix.to/#/!EwezVvVjpxKVCMIuRM:matrix.org?via=matrix.org&via=kde.org&via=converser.eu)
 
-## *LifeStyles For Change ~ Sharing Circle *Salons*
+## *LifeStyles For Change ~ Sharing Circle Salons*
 
 **Art, as the vehicle of feeling with and thinking through living in a damaged world, cultivating cultures that heal, connecting and healing soil to soul.**
 
@@ -24,9 +24,9 @@
 
 ### *The Ecology Is The Economy*
 
-**Projecting ones lifestyle into a future possibility, living the creative process and designing a living that feeds the Soul, honors the Soil and pays the Bills.**
-
 #### *Examining ecologic behaviors; Conservation as a consequence of lifestyle / production.*
+
+**Projecting ones lifestyle into a future possibility, living the creative process and designing a living that feeds the Soul, honors the Soil and pays the Bills.**
 
 **Loss of biodiversity is directly related to the lifestyles of human beings.**
 
