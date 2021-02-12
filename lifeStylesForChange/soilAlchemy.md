@@ -8,6 +8,7 @@ date: 2018-08-13
 ## *A Revival Of The Gaian Connection; a journey of symbiotic healing, Soil to Soul.*
 
 **Humans and Humus are Symbiotic Body and Soil Microbial Gardens. Life is not possible without Rich Fertile Soil.**
+*All components of an ecosystem are dependent on healthy soil for the system to function optimally.*
 
 ***Soil Alchemy*** is the ongoing exploration of what happens when people connect head, heart, and body in the crucible of the soil. The ancient alchemists combined substances and used the influence of their own minds to study the transmutation of matter and of spirit. Observe when the discursive mind becomes quieter and the intelligence of the heart comes to the foreground, a new *ecologically symbiotic consciousness* emerges. Work in *symbiotic partnership with the more-than-human world* and make incredible discoveries. 
 
@@ -31,6 +32,8 @@ Although the terms humus and compost are informally used interchangeably, they a
 
 ***Humus Soil Is A Garden.***
 Bokashi conserves water in the ground, nutrients are less prone to leaching and run-off because the organic nutrients literally are the soil after Bokashi fermentation is complete. Humus soils are not as water soluble and less prone to leaching away with watering and run-off after rains.
+
+Bokashi provides essential nutrients to rebuild soil organic matter content, and re-establish microbial populations. Benefits directly associated with improved organic matter content are: enhanced water infiltration and moisture-holding, aggregation, aeration, nutrient supply for plant growth, and microbial activity.
 
 #### *Method*
 
@@ -59,14 +62,16 @@ A healthy Bokashi bucket does not create bad odors,  greenhouse gas, or heat - u
 Fermentation naturally produces Lactic Acid Bacteria (LAB), one of the most well studied bacterial groups known from ancient times. *Lactic acid - this molecule occurs in almost every living organism and it plays an essential role in the anaerobic energy metabolism of billions of life forms.* These valuable micro-organisms are used in numerous areas, especially food industry and medicine. LAB produce a wide range of compounds for food upgrading. Moreover, LAB can find special applications like generation of bio-energy not affecting the surrounding environment.
 
 #### *Conservation as a consequence of production.*
-Bokashi, the ecologically responsible option for food remnants, perfect for those living in apartments/condos and those looking to use their food remnants as a nutrient rich pro-biotic soil amendment in their garden, plant pots or the environment as a gift of thanks, fertile pro-biotic soil for Mother Earth. No modern garden is required! Be creative. Whats around ...
+***Urban soil cultivation practices can have a significant impact on urban ecosystem.***
+Bokashi, the ecologically responsible option for food remnants, perfect for those living in apartments/condos and those looking to use their food remnants as a nutrient rich pro-biotic soil amendment in their garden, plant pots or the surrounding environment (ecosystem) as a gift of thanks, fertile pro-biotic soil for Mother Earth. No modern garden is required, be creative, whats around ...
 
 **Bokashi can be:**
 
 - fairly easy to maintain
 - very affordable
 - can use most food remnants (including meat, dairy and cooked foods)
-- provides a nutrient rich pro-biotic soil amendment and liquid fertilizer for house plants, the garden, or potted plants.
+- provides a rich pro-biotic soil amendment for remediation, revitalization and reuse
+- emotionally nutritive 
 
 **Bokashi gives a finished pro-biotic humus soil in 30–45 days all in.** The speed of the fermentation process is a big advantage, cycling organic remnants faster by going straight from kitchen to fermentation, to soil, over and over again in small batches. With out the need to collect a critical mass of scraps to start, the fermentation process starts right away. Scale the fermentation vessel to the amount of scraps being generated, going straight into the bokashi bucket as soon as they are produced.
 
