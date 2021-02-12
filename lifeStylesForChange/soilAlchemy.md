@@ -26,21 +26,19 @@ Pro-biotic fluffy soil.
 #### **What is Bokashi?**
 
 **Pro-biotic Soul Food For The Soil.**
-Bokashi is a Japanese term meaning fermented organic matter and refers to a 2-step method of indoor soil building that uses beneficial micro-organisms to quickly ferment many types of organic matter including food remnants, fruit, vegetables, meat, dairy and bread.
+Bokashi is a Japanese term meaning fermented organic matter and refers to a 2-step method of ***indoor soil building*** that uses beneficial micro-organisms to quickly ferment many types of organic matter including food remnants, fruit, vegetables, meat, dairy and bread.
 
 Although the terms humus and compost are informally used interchangeably, they are distinct soil components with different origins; humus is created through anaerobic fermentation, while compost is the result of aerobic decomposition. This is the very important difference between composting and bokashi method. There is no purification or desegregation happening here. Bokashi is working symbiotically with nature to accelerate the process using beneficial microbes. 
 
 ***Humus Soil Is A Garden.***
 Bokashi conserves water in the ground, nutrients are less prone to leaching and run-off because the organic nutrients literally are the soil after Bokashi fermentation is complete. Humus soils are not as water soluble and less prone to leaching away with watering and run-off after rains.
 
-Bokashi provides essential nutrients to rebuild soil organic matter content, and re-establish microbial populations. Benefits directly associated with improved organic matter content are: enhanced water infiltration and moisture-holding, aggregation, aeration, nutrient supply for plant growth, and microbial activity.
-
 #### *Method*
 
-**Step 1: Anaerobic Fermentation** - takes place indoors in a sealed Bokashi bin.
+**Step 1: Anaerobic Fermentation - *takes place indoors* in a sealed Bokashi bin.**
 Layering food remnants with a starter mix, the microbes present in the starter mix quickly ferment the food remnants. Once filled set the bin aside for 10 - 14 days and start using another bin. Two weeks later the initial bin of organic matter will be fully fermented and ready for Step 2.
 
-**Step 2:** - is done in the garden, compost pile, or a semi closed pro-biotic ***soil building system.*** Shallow bury the contents of the bin in the garden or compost bin. Up to 1/3 can be added to the bottom of indoor or outdoor pots.
+**Step 2:** - is done in the garden, compost pile, or an ***indoor semi closed soil building system for year round soil production.*** Shallow bury the contents of the bin in the garden or compost bin. Up to 1/3 can be added to the bottom of indoor or outdoor pots.
 
 ![In the garden, dig a shallow trench and cover with soil.](./bokashiImages/bokashiGardenBury_web.jpg)
 In the garden, dig a shallow trench, deposit contents and cover with soil.
@@ -49,13 +47,15 @@ Most food remnants will be indistinguishable from the soil in a week or two, alt
 
 The active ingredients in the process are the effective microorganisms – a combination of lactic acid bacteria (also found in home kefir whey and lacto ferments), photosynthetic bacteria, and yeast - that ferment the organic matter. These microbes, present in the Bokashi Starter Mix, are sprinkled over the layers of food remnants as the bin is filled.
 
-A healthy Bokashi bucket does not create bad odors,  greenhouse gas, or heat - uses no power, no aeration is required (no turning) and is completely natural. The aroma of the open bin is slightly sweet, fermented (sour), perhaps slightly alcoholic odor and should not be offensive.
+A healthy Bokashi bin does not create bad odors,  greenhouse gas, or heat - uses no power, no aeration is required (no turning) and is completely natural. The aroma of the open bin is slightly sweet, fermented (sour), perhaps slightly alcoholic odor and should not be offensive.
 
 #### *Benefits of Bokashi*
 
 ***A solution to some very big problems.***
 
 **Ecologically Responsible management of organic kitchen remnants can reduce 70% of the total waste production and reduce the bad gases produced during organic decomposition, while saving the environment by creating bio-active humus soil and pro-biotic fertilizer to combat the negative use of toxic chemicals and pollutants.**
+
+**Bokashi provides essential nutrients to rebuild soil organic matter content, and re-establish microbial populations. Benefits directly associated with improved organic matter content are: enhanced water infiltration and moisture-holding, aggregation, aeration, nutrient supply for plant growth, and microbial activity.**
 
 **Bioremediation**- Biotechnology employs the use of living organisms, microbes and bacteria, in the removal of contaminants, pollutants, and toxins from soil, water, and other environments.
 
@@ -68,6 +68,7 @@ Bokashi, the ecologically responsible option for food remnants, perfect for thos
 **Bokashi can be:**
 
 - fairly easy to maintain
+- can be done indoors, suitable for urban environments
 - very affordable
 - can use most food remnants (including meat, dairy and cooked foods)
 - provides a rich pro-biotic soil amendment for remediation, revitalization and reuse
