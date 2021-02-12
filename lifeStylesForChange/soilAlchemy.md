@@ -30,7 +30,7 @@ Bokashi is a Japanese term meaning fermented organic matter and refers to a 2-st
 
 Although the terms humus and compost are informally used interchangeably, they are distinct soil components with different origins; humus is created through anaerobic fermentation, while compost is the result of aerobic decomposition. This is the very important difference between composting and bokashi method. There is no purification or desegregation happening here. Bokashi is working symbiotically with nature to accelerate the process using beneficial microbes. 
 
-***Humus Soil Is A Garden.***
+***The Soil Is A Garden.***
 Bokashi conserves water in the ground, nutrients are less prone to leaching and run-off because the organic nutrients literally are the soil after Bokashi fermentation is complete. Humus soils are not as water soluble and less prone to leaching away with watering and run-off after rains.
 
 #### *Method*
