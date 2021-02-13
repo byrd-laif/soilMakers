@@ -23,6 +23,8 @@ date: 2019-02-04
  
 Lactic Acid Bacteria (LAB), one of the most well studied bacterial groups known from ancient times. *Lactic acid - this molecule occurs in almost every living organism and it plays an essential role in the anaerobic energy metabolism of billions of life forms.* These valuable micro-organisms are used in numerous areas, especially food industry and medicine. LAB produce a wide range of compounds for food upgrading.
  
+A healthy microbiome of the physical body is like a healthy microbiome of the soil, when cared for correctly creates space for more healthy lifeforms to exist. When cleaning with harsh chemicals all microorganisms are killed off, everything, and over time members of the morcobiome can't grow back. The flora and fauna, healthy bacteria and yeast of the body and soil, actually can, do and have gone extinct! Especially in the gut, from a life time of unhealthy eating they just become eliminated. Fermentation is the way to bring that balance back, body and soil, all life is 'built' the same.
+ 
 LAB(lactic acid) fermentation is a symbiotic relationship between humans and bacteria that preforms three basic functions.
 
 (1) Pre-digestion of nutrients into more accessible and bio-available forms.
@@ -54,11 +56,13 @@ Chop vegetables to easily fit in the vessel making sure they can be submerged.
 
 **2. Salt the vegetables.**
 Salt draws water out of the vegetables creating a brine.
-There’s a great deal of flexibility in salt brines, experiment to find personal preference.
+There’s a great deal of flexibility with salt brine, experiment to find personal preference.
 
 **Method one: Sprinkled with sea or mountain salt.** About 1 tablespoon salt per two pounds of cabbage is a good rule of thumb. Massage the cabbage by hand, gently pound with a wood pestle or mix thoroughly with a spoon to break down the cell wall of the cabbage and draw out water.
 
 **Method two: Create a brine** by mixing 2-3 Tablespoons of Salt in 4 cups of non-chlorinated water. Store in a sealed jar at room temperature, use as needed. 
+
+Most vegetables are fermented at around 2.5%-5% brine solution. Some vegetables like olives are fermented at 10%.
 
 Chlorinated water can be boiled in an open pot to evaporate. Cool water to body temperature before use.
 
