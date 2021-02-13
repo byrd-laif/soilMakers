@@ -65,7 +65,7 @@ Fermentation naturally produces Lactic Acid Bacteria (LAB), one of the most well
 ***Urban soil cultivation practices can have a significant impact on urban ecosystem.***
 Bokashi, the ecologically responsible option for food remnants, perfect for those living in apartments/condos and those looking to use their food remnants as a nutrient rich pro-biotic soil amendment in their garden, plant pots or the surrounding environment (ecosystem) as a gift of thanks, fertile pro-biotic soil for Mother Earth. No modern garden is required, be creative, whats around ...
 
-A healthy microbiome of the physical body is like a healthy microbiome of the soil, when cared for correctly creates space for more healthy lifeforms to exist. When cleaning with harsh chemicals all microorganisms are killed off, everything, and over time members of the morcobiome can't grow back. The flora and fauna, healthy bacteria and yeast of the body and soil, actually can, do and have gone extinct! Especially in the gut, from a life time of unhealthy eating they just become eliminated. Fermentation is the way to bring that balance back, body and soil, all life is 'built' the same.
+A healthy microbiome of the physical body is like a healthy microbiome of the soil, when cared for correctly creates space for more healthy lifeforms to exist. The flora and fauna, healthy bacteria and yeast of the body and soil, actually can, do and have gone extinct! Especially in the gut, from a life time of unhealthy eating they just become eliminated. Fermentation is the way to bring that balance back, body and soil all life is 'built' the same.
 
 **Bokashi can be:**
 
@@ -76,7 +76,7 @@ A healthy microbiome of the physical body is like a healthy microbiome of the so
 - provides a rich pro-biotic soil amendment for remediation, revitalization and reuse
 - emotionally nutritive 
 
-**Bokashi gives a finished pro-biotic humus soil in 30–45 days all in.** The speed of the fermentation process is a big advantage, cycling organic remnants faster by going straight from kitchen to fermentation, to soil, over and over again in small batches. With out the need to collect a critical mass of scraps to start, the fermentation process starts right away. Scale the fermentation vessel to the amount of scraps being generated, going straight into the bokashi bucket as soon as they are produced.
+**Bokashi gives a finished pro-biotic living soil in 30–45 days all in.** The speed of the fermentation process is a big advantage, cycling organic remnants faster by going straight from kitchen to fermentation, to soil, over and over again in small batches. With out the need to collect a critical mass of scraps to start, the fermentation process starts right away. Scale the fermentation vessel to the amount of scraps being generated, going straight into the bokashi bucket as soon as they are produced.
 
 **Note:** Fresh citrus and pineapple remnants are packed with powerful organic cleaning enzymes that can be easily fermented to produce luxury [Pro-biotic and multi purpose; Symbiotic Healing and Cleaning Products.](./waterAlchemy.md) That can be added to the bokashi system as a byproduct.
 

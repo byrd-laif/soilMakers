@@ -6,19 +6,19 @@
 
 ## *LifeStyles For Change ~ Sharing Circle Salons*
 
-**Art, as the vehicle of feeling with and thinking through living in a damaged world, cultivating cultures that heal, connecting and healing soil to soul.**
+**Art, as the vehicle of feeling with and thinking through living in a damaged world, cultivating cultures that heal, connecting soil to soul.**
 
 ### *Global Comm-Unity for Local Impact*
 
-**Cultivating relationships and comm-unity by revitalizing *'The Art of Conversation'*.**
+**Revitalizing *'The Art of Conversation'*.**
 
 **At a time of ecological and economic precarity, 'Salon Style' *Sharing Circles*, offer space for rethinking and remaking symbiotic relations with each other and Mother Earth.**
 
 #### *Designed to be Fun, Creative, Interactive and Resourceful.*
 
-**To awaken possibility and creative insight, refine the taste and increase the knowledge of the participants through guided conversation organized around cultures and ideas reflective of the era in which they live.**
-
 **Knowledge to design a more desirable, fulfilling, life supporting; Ecologically Modern and Realistic Lifestyle.**
+
+**To awaken possibility and creative insight, refine the taste and increase the knowledge of the participants through guided conversation organized around cultures and ideas reflective of the era in which they live.**
 
 [Real time interactive salon style sharing circle on Matrix. Join the conversation in the **Vivarium Interactive Salon**](https://matrix.to/#/!LSpVaMCiYQehpJONFF:matrix.org?via=matrix.org&via=t2bot.io&via=stux.chat)
 
