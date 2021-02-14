@@ -1,17 +1,17 @@
 # *Soil Seekers ~ Cultivating Ecological Literacy*
 
-**Ecology As Art; curating symbiotic relationships between Wo-Man, organisms and their environments.**
+***Ecology As Art; curating symbiotic relationships between Wo-Man, organisms and their environments.***
 
 [Live Blog On Matrix - Soil Seekers](https://matrix.to/#/!EwezVvVjpxKVCMIuRM:matrix.org?via=matrix.org&via=kde.org&via=converser.eu)
 
-## *LifeStyles For Change ~ Sharing Circle Salons*
+## LifeStyles For Change ~ Sharing Circle *Salons*
 *Global Comm-Unity For Local Impact*
 
-**Art, as the vehicle of feeling with and thinking through living in a damaged world, cultivating cultures that heal, connecting soil to soul.**
+**Art, as the vehicle of feeling with and thinking through living in a damaged world, cultivating cultures that heal connecting soil to soul.**
 
-### *Creating a renewed culture of conversation, honoring personal intention within group process.*
+### *A renewed culture of conversation, honoring personal intention within group process.*
 
-**At a time of ecological and economic precarity, 'Salon Style' *Sharing Circles*, offer space for rethinking and remaking symbiotic relations with each other and Mother Earth.**
+**At a time of ecological and economic precarity, *'Salon Style'* Sharing Circles, offer space for rethinking and remaking symbiotic relations with each other and Mother Earth.**
 
 #### *Designed to be Fun, Creative, Interactive and Resourceful.*
 
@@ -31,9 +31,9 @@
 
 **It's time to start comparing consumption and lifestyle, and checking this against nature's ability to provide for this consumption. Humans have destroyed and continue to destroy the habitats of species on a daily basis. It's time to own up to the realities of what that translates to for the generations to come, aesthetically and otherwise. It's time to be *Ecologically Realistic* and get back to the *heart* of what *life* is all about.** 
 
-**This is about honesty and responsibility. Honesty meaning admitting to what is. Responsibility meaning not blaming it on anybody else.**
+#### *This is about honesty and responsibility. Honesty meaning admitting to what is. Responsibility meaning not blaming it on anybody else.*
 
-## *Environ-Mental Health ~ Learning In The Light Of Nature*
+## Environ-Mental Health ~ *Learning in the light of Nature*
 
 ### *The cultivation of a more attuned and responsive awareness of Wo-Mans ecological interconnections.**
 
@@ -41,7 +41,7 @@
 
 **Having accepted this circumstance, *responsibility* then means the *ability* to have a *creative response* to the situation as it is now. The *seeds of opportunity*, and awareness to take the moment and transform it into a better situation.** 
 
-#### *An opportunity for the creation of something new and beautiful.*
+#### An opportunity for the creation of something new and beautiful. *Living in the light of Nature.*
 
 **Today’s young generation are being handed the biggest challenge of all; *'Cultivating Biodiversity'* the symbiotic living *'Quality of Life'* on this planet.**
 
