@@ -33,7 +33,7 @@
 
 **This is about honesty and responsibility. Honesty meaning admitting to what is. Responsibility meaning not blaming it on anybody else.**
 
-### *Environ-Mental Health ~ Cultivating cultures that heal, Soil to Soul*
+### *Environ-Mental Health ~ Learning In The Light Of Nature*
 
 **The cultivation of a more attuned and responsive awareness of Wo-Mans ecological interconnections.**
 
