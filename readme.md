@@ -9,7 +9,7 @@
 
 **Art, as the vehicle of feeling with and thinking through living in a damaged world, cultivating cultures that heal, connecting soil to soul.**
 
-### *Creating a renewed culture of conversation.*
+### *Creating a renewed culture of conversation, honoring personal intention within group process.*
 
 **At a time of ecological and economic precarity, 'Salon Style' *Sharing Circles*, offer space for rethinking and remaking symbiotic relations with each other and Mother Earth.**
 
