@@ -33,7 +33,7 @@
 
 #### *This is about honesty and responsibility. Honesty meaning admitting to what is. Responsibility meaning not blaming it on anybody else.*
 
-## Environ-Mental Health ~ *Learning in the light of Nature*
+## Environ-Mental Health ~ *Learning to live in the light of Nature*
 
 ### *The cultivation of a more attuned and responsive awareness of Wo-Mans ecological interconnections.*
 
@@ -42,13 +42,12 @@
 **Having accepted this circumstance, *responsibility* then means the *ability* to have a *creative response* to the situation as it is now. The *seeds of opportunity*, and awareness to take the moment and transform it into a better situation.** 
 
 #### An opportunity for the creation of something new and beautiful. 
-***Living in the light of Nature.***
 
 **Today’s young generation are being handed the biggest challenge of all; *'Cultivating Biodiversity'* the symbiotic living *'Quality of Life'* on this planet.**
 
 **Not addressing immediate needs is an insult to the young. People with passion, purpose and practical skills make the world a better place.** 
 
-#### *Its time to act on the environ-mental realities they face, soil to soul, cultivate cultures that heal.*
+#### *Its time to act on the environ-mental realities they face, soil to soul cultivate cultures that heal.*
 
 ...
 
