@@ -35,13 +35,14 @@
 
 ## Environ-Mental Health ~ *Learning in the light of Nature*
 
-### *The cultivation of a more attuned and responsive awareness of Wo-Mans ecological interconnections.**
+### *The cultivation of a more attuned and responsive awareness of Wo-Mans ecological interconnections.*
 
 #### *Loss of biodiversity is catastrophic, impacts are symbiotic and happen within the physical body and Mother Earth, far into future generations.*
 
 **Having accepted this circumstance, *responsibility* then means the *ability* to have a *creative response* to the situation as it is now. The *seeds of opportunity*, and awareness to take the moment and transform it into a better situation.** 
 
-#### An opportunity for the creation of something new and beautiful. *Living in the light of Nature.*
+#### An opportunity for the creation of something new and beautiful. 
+***Living in the light of Nature.***
 
 **Today’s young generation are being handed the biggest challenge of all; *'Cultivating Biodiversity'* the symbiotic living *'Quality of Life'* on this planet.**
 
