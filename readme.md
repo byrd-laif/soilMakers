@@ -33,11 +33,11 @@
 
 **This is about honesty and responsibility. Honesty meaning admitting to what is. Responsibility meaning not blaming it on anybody else.**
 
-### *Environ-Mental Health ~ Learning In The Light Of Nature*
+## *Environ-Mental Health ~ Learning In The Light Of Nature*
 
-**The cultivation of a more attuned and responsive awareness of Wo-Mans ecological interconnections.**
+### *The cultivation of a more attuned and responsive awareness of Wo-Mans ecological interconnections.**
 
-**Loss of biodiversity is catastrophic, impacts are symbiotic and happen within the physical body and Mother Earth, far into future generations.**
+#### *Loss of biodiversity is catastrophic, impacts are symbiotic and happen within the physical body and Mother Earth, far into future generations.*
 
 **Having accepted this circumstance, *responsibility* then means the *ability* to have a *creative response* to the situation as it is now. The *seeds of opportunity*, and awareness to take the moment and transform it into a better situation.** 
 
