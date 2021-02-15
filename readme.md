@@ -33,7 +33,7 @@
 
 #### *This is about honesty and responsibility. Honesty meaning admitting to what is. Responsibility meaning not blaming it on anybody else.*
 
-## Environ-Mental Health ~ *Learning to live in the light of Nature*
+## Environ-Mental Health ~ *Learning to live in the light of Nature.*
 
 ### *The cultivation of a more attuned and responsive awareness of Wo-Mans ecological interconnections.*
 
@@ -47,7 +47,7 @@
 
 **Not addressing immediate needs is an insult to the young. People with passion, purpose and practical skills make the world a better place.** 
 
-#### *Its time to act on the environ-mental realities they face, soil to soul cultivate cultures that heal.*
+#### *Its time to act on the environ-mental realities, soil to soul cultivate cultures that heal.*
 
 ...
 
@@ -78,7 +78,7 @@
 - Requires training of all participants to be effective
 - Requires efficient and timely communication and facilitation
 
-#### Connect
+#### Connect ~ Join a Sharing Circle Salon / Become a Facilitator 
 [Contact Direct on Matrix](https://matrix.to/#/!ibYXXCkubbZiWtkmhX:matrix.org?via=matrix.org)
 
 #### Resources
