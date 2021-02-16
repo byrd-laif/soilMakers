@@ -11,7 +11,7 @@
 
 ### *A renewed culture of conversation; honoring personal intention within group process to create egalitarian forums.*
 
-**At a time of ecological and economic precarity, *'salon style'* sharing circles, offer space for rethinking and remaking symbiotic relations with one-self, one-another and Mother Earth.**
+**At a time of ecological and economic precarity, *salon style* "wisdom circles", offer space for rethinking and remaking symbiotic relations with one-self, one-another and Mother Earth.**
 
 #### *Designed to be Fun, Creative, Interactive and Resourceful.*
 
@@ -52,7 +52,7 @@
 ...
 
 
-### *Cooperation and Harmony ~ Salon Sharing Circles*
+### *Cooperation and Harmony ~ Vivarium Salon Circles*
 
 #### *Dynamic Governance Values*
 - Effectiveness: Get things done
