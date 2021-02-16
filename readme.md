@@ -4,14 +4,14 @@
 
 [Live Blog On Matrix - Soil Seekers](https://matrix.to/#/!EwezVvVjpxKVCMIuRM:matrix.org?via=matrix.org&via=kde.org&via=converser.eu)
 
-## LifeStyles For Change ~ Sharing Circle *Salons*
-*Global Comm-Unity For Local Impact*
+## *Vivarium Interactive Salons ~ Sharing Circles*
+*Global Communities For Local Impact.*
 
-**Art, as the vehicle of feeling with and thinking through living in a damaged world, cultivating cultures that heal connecting soil to soul.**
+**Life*Styles* For Change; *Art,* as the vehicle of feeling with and thinking through living in a damaged world, cultivating cultures that heal connecting soil to soul.**
 
-### *A renewed culture of conversation, honoring personal intention within group process.*
+### *A renewed culture of conversation; honoring personal intention within group process to create egalitarian forums.*
 
-**At a time of ecological and economic precarity, *'Salon Style'* Sharing Circles, offer space for rethinking and remaking symbiotic relations with each other and Mother Earth.**
+**At a time of ecological and economic precarity, *'salon style'* sharing circles, offer space for rethinking and remaking symbiotic relations with one-self, one-another and Mother Earth.**
 
 #### *Designed to be Fun, Creative, Interactive and Resourceful.*
 
@@ -19,7 +19,7 @@
 
 *Knowledge to design a more desirable, fulfilling, life supporting; Ecologically Modern and Realistic Lifestyle.*
 
-[Real time interactive salon style sharing circle on Matrix. Join the conversation in the **Vivarium Interactive Salon**](https://matrix.to/#/!LSpVaMCiYQehpJONFF:matrix.org?via=matrix.org&via=t2bot.io&via=stux.chat)
+[Real time on Matrix; Join the conversation in the **Vivarium Interactive Salon**](https://matrix.to/#/!LSpVaMCiYQehpJONFF:matrix.org?via=matrix.org&via=t2bot.io&via=stux.chat)
 
 ### *The Ecology Is The Economy*
 
@@ -52,7 +52,7 @@
 ...
 
 
-### *Cooperation and Harmony ~ Sharing Circle Salons*
+### *Cooperation and Harmony ~ Salon Sharing Circles*
 
 #### *Dynamic Governance Values*
 - Effectiveness: Get things done
