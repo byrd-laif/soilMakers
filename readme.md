@@ -4,7 +4,7 @@
 
 [Live Blog On Matrix - Soil Seekers](https://matrix.to/#/!EwezVvVjpxKVCMIuRM:matrix.org?via=matrix.org&via=kde.org&via=converser.eu)
 
-## *Vivarium Interactive Salons ~ Sharing Circles*
+## *Vivarium ~ Salon Circles*
 *Global Communities For Local Impact.*
 
 **Life*Styles* For Change; *Art,* as the vehicle of feeling with and thinking through living in a damaged world, cultivating cultures that heal connecting soil to soul.**
