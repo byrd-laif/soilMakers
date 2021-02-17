@@ -52,7 +52,7 @@
 ...
 
 
-### *Cooperation and Harmony ~ Vivarium Salon Circles*
+### *Cooperation and Harmony ~ Soil Seekers and Vivarium Salon Circles*
 
 #### *Dynamic Governance Values*
 - Effectiveness: Get things done
@@ -78,7 +78,7 @@
 - Requires training of all participants to be effective
 - Requires efficient and timely communication and facilitation
 
-#### Connect ~ Join a Sharing Circle Salon / Become a Facilitator 
+#### Connect ~ Join a Vivarium Salon Circle / Become a Facilitator 
 [Contact Direct on Matrix](https://matrix.to/#/!ibYXXCkubbZiWtkmhX:matrix.org?via=matrix.org)
 
 #### Resources
