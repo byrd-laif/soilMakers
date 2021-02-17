@@ -80,7 +80,7 @@ Once people have gathered, it is helpful for the host, or any volunteer particip
 
 ***Establishing the center***
 
-The center of a circle is like the hub of a wheel: all energies pass through it, and it holds the rim together. To help people remember how the hub helps the group, the center of a circle usually holds objects that represent the intention of the circle. Any symbol that fits this purpose or adds beauty will serve: flowers, a bowl or basket, a candle. Choose something fairly simple that suits the environment, honors local culture, or symbolically represents group intention.
+The center of a circle is like the hub of a wheel: all energies pass through it, and it holds the rim together. To help people remember how the hub helps the group, the center of a circle usually holds objects that represent the intention of the circle. Any symbol that fits this purpose or adds beauty will serve: flowers, a bowl or basket, a candle. Choose something fairly simple that suits the environment, honors local ecological culture, or symbolically represents group intention.
 
 ***Check-in/Greeting***
 
