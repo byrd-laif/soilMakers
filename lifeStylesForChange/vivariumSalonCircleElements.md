@@ -80,7 +80,7 @@ Once people have gathered, it is helpful for the host, or any volunteer particip
 
 ***Establishing the center***
 
-The center of a circle is like the hub of a wheel: all energies pass through it, and it holds the rim together. To help people remember how the hub helps the group, the center of a circle usually holds objects that represent the intention of the circle. Any symbol that fits this purpose or adds beauty will serve: flowers, a bowl or basket, a candle. Choose something fairly simple that suits the environment, honors local ecological culture, or symbolically represents group intention.
+The center of a circle is like the hub of a wheel: all energies pass through it, and it holds the rim together. To help people remember how the hub helps the group, the *center* of a circle usually holds object/s that represent the intention of the circle. Any symbol that fits this purpose or adds beauty will serve: flowers, a bowl or basket, a candle. Choose something fairly simple that suits the environment, honors local ecological culture, or symbolically represents group intention.
 
 ***Check-in/Greeting***
 
@@ -96,7 +96,7 @@ Check-in usually starts with a volunteer and proceeds around the circle. If an i
 
 The use of agreements creates an interpersonal container that allows all members to have a free and profound exchange, to respect a diversity of views, and to share responsibility of the well-being and direction of the group.
 
-**Agreements often used as a basis in Vivarium Salon Circles include:***
+***Agreements often used as a basis in Vivarium Salon Circles include:***
 
 - To hold stories or personal material in confidentiality and honor other material, information or decisions with a level of confidentiality appropriate to the setting.
 
@@ -113,27 +113,27 @@ This signal may be a chime, bell or rattle, at which sound all action stops, peo
 Each ongoing circle will consider their agreements and spend time phrasing them in their own words and adding agreements that suit their purpose together.
 
 ***Three principles:***
-The circle is not a leaderless group: It is an all leader group. The structure created by components of the circle becomes a form of self-governance.
+The circle is not a leaderless group, it is an all leader group. The structure created by components of the circle becomes a form of self-governance.
 
-Three principles referenced in wisdom circle work serve as a foundation for this governance. 
+Three principles referenced in wisdom/council circle work serve as a foundation for this governance. 
 
 These principles are:
 
 - Leadership can rotate among all circle members.
 - Responsibility is shared for the quality of experience.
-- People place ultimate reliance on inspiration (or spirit), rather than on any personal agenda.
+- Members place ultimate reliance on inspiration (or spirit), rather than on any personal agenda.
 
 ***Three practices:***
 
 The primary activity of circle is the interaction of speaking and listening.
 
-Three practices of council remind people of the quality of attention that council space invites us:
+Three practices of council remind members of the quality of attention that council space invites us:
 
 - To speak with intention: noting what has relevance to the conversation in the moment.
 
 - To listen with attention: respectful of the learning process all members of the group.
 
-- To tend the well-being of the circle: remaining aware of the impact of our contributions.
+- To tend the well-being of the circle: remaining aware of the impact of ones contributions.
 
 ***Forms of council:***
 
@@ -143,15 +143,15 @@ Talking piece council is often used as part of check-in, check-out, and whenever
 
 Conversation council is often used when what is needed is a reaction, interaction, and an interjection of new ideas, thoughts and opinions. The energy of open conversation stimulates the free flow of ideas. However, in circle, the agreement to pause and gather thoughts can be very helpful in the midst of conversation council. Attention should be paid to pacing so that all contributions are honored.
 
-Reflection, or Silent council gives each member time and space to reflect on what is occurring, or needs to occur, in the course of a meeting. Silence may be called so that each person can consider the role or impact they are having on the group, or to help the group realign with their intention, or to sit with a question until there is clarity. Depending on the setting and purpose of the circle, people may ask for a period of group silence as way to wait for guidance, take time-out from conversation, or center themselves more deeply before making a decision or taking action.
+Reflection, or Silent council gives each member time and space to reflect on what is occurring, or needs to occur, in the course of a meeting. Silence may be called so that each person can consider the role or impact they are having on the group, or to help the group realign with the intention, or to sit with a question until there is clarity. Depending on the setting and purpose of the circle, members may ask for a period of group silence as way to wait for guidance, take time-out from conversation, or center one-self more deeply before making a decision or taking action.
 
 ***Guardian***
 
-The single most important tool for aiding self-governance and bringing the circle back to intention is the role of the guardian. To provide a guardian, one circle member at a time volunteers to watch and safeguard group energy and observe the circle’s process. The guardian has the group's permission to intercede in group process for the purpose of calling the circle back to center, to focus on the issue or topic, to remind people of respectful practices or agreements, or to suggest a rest break.
+The single most important tool for aiding self-governance and bringing the circle back to intention is the role of the guardian. To provide a guardian, one circle member at a time volunteers to watch and safeguard group energy and observe the circle process. The guardian has the group's permission to intercede in group process for the purpose of calling the circle back to center, to focus on the issue or topic, to remind members of respectful practices or agreements, or to suggest a rest break.
 
-The guardian usually employs a gentle noise-maker, such as a chime, bell, or rattle, that signals everyone to stop action, take a breath, rest in a space of silence. Then the guardian makes this signal again and speaks to why he/she called the pause.
+The guardian usually employs a gentle noise-maker, such as a chime, bell, or rattle, that signals members to stop action, take a breath, rest in a space of silence. Then the guardian makes this signal again and speaks to why he/she called the pause.
 
-The guardian may suggest use of the talking piece, if the conversation has become hurried, jumbled or unproductive. The guardian may call for time out or a rest break as needed, watch timeliness, and help people see conflict arising and face it creatively. It should be noted that anyone can call for a time-out, or ask for the talking piece, but the guardian should be especially looking for these opportunities.
+The guardian may suggest use of the talking piece, if the conversation has become hurried, jumbled or unproductive. The guardian may call for time out or a rest break as needed, watch timeliness, and help members see conflict arising and face it creatively. It should be noted that anyone can call for a time-out, or ask for the talking piece, but the guardian should be especially looking for these opportunities.
 
 ***Talking Piece***
 
@@ -161,7 +161,7 @@ A talking piece is used whenever there is a desire to move the conversation more
 
 ***Checkout and Farewell***
 
-At the close of a circle meeting, it is important to allow a few minutes for each person to comment on what they learned, or what stays in their heart and mind as they leave.
+At the close of a circle meeting, it is important to allow a few minutes for each member to comment on what they learned, or what stays in their heart and mind as they leave.
 
 Closing the circle by checking out provides a formal end to the meeting, a chance for members to reflect on anything that has transpired.
 
@@ -171,6 +171,6 @@ Circle is not a dogmatic form. Each circle will develop its own unique personali
 
 ***Love and Light***
 
-
+[Vivarium Salon Circle ~ Singing bowl gathering video compilation](https://youtu.be/7zCHFSwraeY)
 
 
