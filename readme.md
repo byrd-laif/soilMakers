@@ -1,6 +1,6 @@
 # *Soil Seekers ~ Cultivating Ecological Literacy*
 
-***Ecology As Art; curating symbiotic relationships between Wo-Man, organisms and their environments.***
+***A Living Legacy - Ecology As Art; curating symbiotic relationships between Wo-Man, organisms and their environments.***
 
 [Live Blog On Matrix - Soil Seekers](https://matrix.to/#/!EwezVvVjpxKVCMIuRM:matrix.org?via=matrix.org&via=kde.org&via=converser.eu)
 
@@ -50,7 +50,6 @@
 #### *Its time to act on the environ-mental realities, soil to soul cultivate cultures that heal.*
 
 ...
-
 
 ### *Cooperation and Harmony ~ Soil Seekers and Vivarium Salon Circle*
 
