@@ -1,4 +1,4 @@
-# *Vivarium Salon Circles ~ place of life*
+# *Vivarium Salon Circle ~ place of life*
 
 ## *Evoking the Wisdom of the World.*
 *Learning to live in the light of Nature.*
