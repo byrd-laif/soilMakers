@@ -4,14 +4,14 @@
 
 [Live Blog On Matrix - Soil Seekers](https://matrix.to/#/!EwezVvVjpxKVCMIuRM:matrix.org?via=matrix.org&via=kde.org&via=converser.eu)
 
-## *Vivarium ~ Salon Circles*
+## *Vivarium Salon Circle ~ place of life*
 *Global Communities For Local Impact.*
 
 **Life*Styles* For Change; *Art,* as the vehicle of feeling with and thinking through living in a damaged world, cultivating cultures that heal connecting soil to soul.**
 
 ### *A renewed culture of conversation; honoring personal intention within group process to create egalitarian forums.*
 
-**At a time of ecological and economic precarity, *salon style* "wisdom circles", offer space for rethinking and remaking symbiotic relations with one-self, one-another and Mother Earth.**
+**At a time of ecological and economic precarity, *salon style* "wisdom circle", offer space for rethinking and remaking symbiotic relations with one-self, one-another and Mother Earth.**
 
 #### *Designed to be Fun, Creative, Interactive and Resourceful.*
 
@@ -52,7 +52,7 @@
 ...
 
 
-### *Cooperation and Harmony ~ Soil Seekers and Vivarium Salon Circles*
+### *Cooperation and Harmony ~ Soil Seekers and Vivarium Salon Circle*
 
 #### *Dynamic Governance Values*
 - Effectiveness: Get things done
@@ -82,6 +82,7 @@
 [Contact Direct on Matrix](https://matrix.to/#/!ibYXXCkubbZiWtkmhX:matrix.org?via=matrix.org)
 
 #### Resources
+- [Vivarium Salon Circle Elements and Etiquette](.lifeStylesForChange/vivariumSalonCircleElements.md)
 - [Soil Alchemy - The Soil Rehabilitation Miracle Of Bokashi](./lifeStylesForChange/soilAlchemy.md)
 - [Water Alchemy - The Water Rehabilitation Miracle Of Pro-Biotic Eco-Enzyme](./lifeStylesForChange/waterAlchemy.md)
 - [Kefir Milk Alchemy - An Ancient Living Legacy, The Miracle Of Kefir Milk Culture](./lifeStylesForChange/kefirMilkAlchemy.md)

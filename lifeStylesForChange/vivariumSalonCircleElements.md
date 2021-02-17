@@ -11,9 +11,9 @@
 
 ### *Salon Circle Elements and Etiquette*
 
-- Clarify context. Agreements of participation and a definition of respect are articulated. 
-
 - The event has a beginning/middle/end and a structure that holds it.
+
+- Clarify context. Agreements of participation and a definition of respect are articulated. 
 
 - Create hospitable space, slow down and take time to think and reflect. Conversation is viewed as a practice set apart from casual social interaction.
 
@@ -32,22 +32,22 @@ To honor the lineage of the circle and PeerSpirit methodology as one uses this g
 
 These guidelines are an adapted excerpted from the book: Calling the Circle, the First and Future Culture by Christina Baldwin in addition to the ongoing work of PeerSpirit, Inc.
 
-Now more than ever, the circle may serve Wo-Man as a form that honors all voices and invites wisdom into their midst. Now more than ever, the circle offers the human community an interpersonal gathering point inside which one may courageously listen to one another, speak truths, and act with clear intention.
+Now more than ever, the circle may serve Wo-Man as a form that honors all voices and invites wisdom into their midst. The circle offers the human community an interpersonal gathering point inside which members may courageously listen to one another, speak truths, and act with clear intention.
 
 #### *Wisdom or Council Circles are a world wide gift.*
 
-Circle is a social structure that has helped people come together in collaborative dialogue and action since the beginning of time.
+Circle methodology is a social structure that has helped people come together in collaborative dialogue and action since the beginning of time.
 
-Circle is used as a space to be social, to discover safe methods of dialogue, to share stories, build community, and hold meetings in a collaborative manner. Circle enables one to discover the collective wisdom. It helps participants discover who they are to one another as well as the resources one can offer to the conversations and tasks.
+The circle as a global experience has the ability to remind people of common human values and ecological concerns, that continues to expand through this work and other collaborative initiatives.
 
-Circle methodology has been adapted by people in over 37 countries. The circle as a global experience, with the ability to remind people of common human values and concerns, that continues to expand through this work and other collaborative initiatives.
+Circle is used as a space to be social, to discover safe methods of dialogue, to share stories, build community, and hold meetings in a collaborative manner. Circle enables one to discover the collective wisdom. It helps participants discover who they are in relation to one another and their environments as well as the resources each can offer to the conversations and tasks.
 
 The 'circle', or council, is an ancient form of meeting that has gathered human beings into respectful conversation for thousands of years. The circle has served as the foundation for many cultures. In some areas of the world this tradition remains intact, but in other societies it has been nearly
 forgotten. Vivarium Salon Circle is a modern methodology that calls on this tradition and helps people gather in conversations that fulfill their potential for dialogue, replenishment, and wisdom-based ecological change. Soil Seekers form a partnership with Vivarium Salon Circles dedicated to a global ecological shift through conversation.
 
-The circle offers the process (the way of being together in conversation) and the intention of the group offers the content. 
+**The circle offers the process** (the way of being together in conversation) and the intention of the group offers the content.
 
-Each circle experience can be different.
+***Each circle experience can be different.***
 Circle may have similar rituals of opening and closing, but very different content. While other circle may share similar content with very different rituals.
 
 Whatever the setting, what makes a meeting into a circle is the willingness of people to shift from informal socializing or opinionated discussion into a receptive attitude of thoughtful speaking and deep listening often referred to as "the sacred space of council."
