@@ -32,17 +32,15 @@ To honor the lineage of the circle and PeerSpirit methodology as one uses this g
 
 These guidelines are an adapted excerpted from the book: Calling the Circle, the First and Future Culture by Christina Baldwin in addition to the ongoing work of PeerSpirit, Inc.
 
-Now more than ever, the circle may serve Wo-Man as a form that honors all voices and invites wisdom into their midst. The circle offers the human community an interpersonal gathering point inside which members may courageously listen to one another, speak truths, and act with clear intention.
+Now more than ever, the circle may serve Wo-Man as a form that honors all voices and invites wisdom into their midst. The circle offers the human community a safe interpersonal gathering point inside which members may courageously listen to one another, speak truths, and act with clear intention.
 
 #### *Wisdom or Council Circle is a world wide gift.*
 
-The 'circle', or council methodology is an ancient social structure, a way of meeting that has gathered human beings into respectful conversation for thousands of years. Serving as the foundation for collaborative dialogue and action in many cultures. In some areas of the world this tradition remains intact, but in other societies it has been nearly forgotten.
+The 'circle', or council methodology is an ancient social structure that has gathered human beings into respectful conversation for thousands of years. Serving as the foundation for collaborative dialogue and action in many cultures. Circle is used as a space to be social, to discover safe methods of dialogue, to share stories, build community, and hold meetings in a collaborative manner. In some areas of the world this tradition remains intact, but in other societies it has been nearly forgotten.
 
-Circle is used as a space to be social, to discover safe methods of dialogue, to share stories, build community, and hold meetings in a collaborative manner. Circle enables one to discover the collective wisdom. It helps participants discover who they are in relation to one another and their environments, as well as the resources each can offer to the conversations and conservation tasks at hand.
+Vivarium Salon Circle is a modern methodology that calls on this tradition and helps people gather in conversations that fulfill their potential for dialogue, replenishment, and wisdom-based ecological change. Soil Seekers form a partnership with Vivarium Salon Circle, dedicated to a global ecological shift through conversation. Circle enables one to discover the collective wisdom. It helps participants discover who they are in relation to one another and their environments, as well as the resources each can offer to the conversation and conservation tasks at hand.
 
-Vivarium Salon Circle is a modern methodology that calls on this tradition and helps people gather in conversations that fulfill their potential for dialogue, replenishment, and wisdom-based ecological change. Soil Seekers form a partnership with Vivarium Salon Circles dedicated to a global ecological shift through conversation.
-
-The circle as a global experience has the ability to remind people of common human values and ecological concerns.
+The circle as a global experience has the ability to remind people of common human values, ethics and ecological concerns.
 
 **The circle offers the process** (the way of being together in conversation) and the intention of the group offers the content, nature provides the opportunity.
 
