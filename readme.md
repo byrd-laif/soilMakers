@@ -15,7 +15,7 @@
 
 #### *Designed to be Fun, Creative, Interactive and Resourceful.*
 
-**To awaken possibility and creative insight, refine the taste and increase the knowledge of the participants through guided conversation organized around cultures and ideas reflective of the era in which they live.**
+**To awaken possibility and creative insight, refine the taste, and increase the knowledge of the participants through guided conversation organized around cultures and ideas reflective of the era in which they live.**
 
 *Knowledge to design a more desirable, fulfilling, life supporting; Ecologically Modern and Realistic Lifestyle.*
 
@@ -25,13 +25,13 @@
 
 #### *Examining ecologic behaviors; Conservation as a consequence of lifestyle / production.*
 
-**Projecting ones lifestyle into a future possibility, living the creative process and designing a living that feeds the Soul, honors the Soil and pays the Bills.**
+**Projecting ones lifestyle into a future possibility, living the creative process, and designing a living that feeds the Soul and honors the Soil, that pays the Bills.**
 
 **Loss of biodiversity is directly related to the lifestyles of human beings.**
 
 **It's time to start comparing consumption and lifestyle, and checking this against nature's ability to provide for this consumption. Humans have destroyed and continue to destroy the habitats of species on a daily basis. It's time to own up to the realities of what that translates to for the generations to come, aesthetically and otherwise. It's time to be *Ecologically Realistic* and get back to the *heart* of what *life* is all about.** 
 
-#### *This is about honesty and responsibility. Honesty meaning admitting to what is. Responsibility meaning not blaming it on anybody else.*
+#### *This is about honesty and responsibility. Honesty; admitting to what is. Responsibility; not blaming anybody else.*
 
 ## Environ-Mental Health ~ *Learning to live in the light of Nature.*
 
@@ -39,7 +39,7 @@
 
 #### *Loss of biodiversity is catastrophic, impacts are symbiotic and happen within the physical body and Mother Earth, far into future generations.*
 
-**Having accepted this circumstance, *responsibility* then means the *ability* to have a *creative response* to the situation as it is now. The *seeds of opportunity*, and awareness to take the moment and transform it into a better situation.** 
+**Having accepted this circumstance *responsibility* then means *ability,* to have a *creative response* to the situation as it is *now.* The *seeds of opportunity* and awareness, to take the moment and transform it into a better situation.** 
 
 #### An opportunity for the creation of something new and beautiful. 
 
