@@ -15,9 +15,9 @@ date: 2018-08-13
 ### *Water Alchemy - Recycling organic materials through living organisms naturally purifies water.*
 ***Water Alchemy*** is the ongoing exploration of what happens when people connect head, heart, and body in the crucible of the water. The ancient alchemists combined substances and used the influence of their own minds to study the transmutation of matter and of spirit. Observe when the discursive mind becomes quieter and the intelligence of the heart comes to the foreground, a new ecologically symbiotic consciousness emerges. Work in symbiotic partnership with the more-than-human world and make incredible discoveries. 
 
-#### *Water Therapy;* the practice of spending time *Cultivating Living Healing Water* for the purpose of enhancing Whole Health, Earth Care, Wellness, and Happiness. A practice of *Symbiotic Connection* with the natural world and with each other, *healing water to soul.*
+#### Pro-biotic Eco-enzyme is *Water Therapy;* the practice of spending time *cultivating living healing water* for the purpose of enhancing whole health, *Earth Care,* wellness, and happiness. A practice of *symbiotic connection* with the natural world and with each other, *healing water to soul.*
 
-***Self-care that goes far beyond the self.* Symbiotically nourishing, fortifying and gentle. Remarkably enough the Physical Body and Mother Earth find natural healing benefits from this one easy process.**
+***Self-care that goes far beyond the self.* Symbiotically nourishing, fortifying and gentle. Remarkably enough the Physical Body and Mother Earth find natural healing benefits from this one easy process.***
 
 *Yes, Nature is that simple, effective and synergistic.*
 
@@ -84,7 +84,7 @@ Fermentation naturally produces Lactic Acid Bacteria (LAB), one of the most well
 
 ### Re-Act To The Environ-Mental Realities 
 
-**Eco-Enzyme is an ecologically responsible solution,** for those living in apartments/condos or for those looking to use their fresh food remnants as a **nutrient rich pro-biotic water and soil amendment.** Use in the garden, plant pots or the environment as a gift of thanks, pro-biotic water for Mother Earth. No traditional 'garden' is required! Be creative. Whats around ...
+**Eco-Enzyme is an ecologically responsible solution,** for those living in apartments/condos or for those looking to use their fresh fruit and vegetable remnants as a **nutrient rich pro-biotic water and soil amendment.** Use in the garden, plant pots or the environment as a gift of thanks, pro-biotic water for Mother Earth. No traditional 'garden' is required! Be creative. Whats around ...
 
 #### Discover the Miracle of Pro-Biotic Eco-Enzyme and how it impacts:
 
@@ -121,7 +121,7 @@ improve wastewater treatment processes. One study showed: A 9% solution of Eco-E
 
 **Clearing Drains**- Eco-enzyme can be used for clearing urban drains after a storm.
 
-**Any plant matter can be used in this process, choose citrus and pineapple peel for there powerful cleaning and healing abilities and pleasing aroma.**
+**Any plant matter can be used in this process, choose fruits such as citrus and pineapple peel for there powerful cleaning and healing abilities and pleasing aroma.**
 
 #### Pro-Biotic Eco-Enzyme is easy to make, three ingredients are required:
 - molasses or brown sugar

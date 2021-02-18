@@ -12,7 +12,7 @@ date: 2018-08-13
 
 ***Soil Alchemy*** is the ongoing exploration of what happens when people connect head, heart, and body in the crucible of the soil. The ancient alchemists combined substances and used the influence of their own minds to study the transmutation of matter and of spirit. Observe when the discursive mind becomes quieter and the intelligence of the heart comes to the foreground, a new *ecologically symbiotic consciousness* emerges. Work in *symbiotic partnership with the more-than-human world* and make incredible discoveries. 
 
-### *Soil Therapy;* the practice of spending time *Cultivating Fertile Soil* for the purpose of Enhancing Whole Health, Earth Care, Wellness, and Happiness. A practice of *Symbiotic Connection* with the natural world and with each other, healing soil to soul.
+### Bokashi is *Soil Therapy;* the practice of spending time *cultivating fertile soil* for the purpose of enhancing whole health, *Earth Care,* wellness, and happiness. A practice of *symbiotic connection* with the natural world and with each other, healing soil to soul.
 
 A series of guided invitations, natural cycles, bring one into the present moment, opening the doors of symbiotic communication with the soil, waters, and landscapes explored. Encounter not just the soil, but the many ways nature mirrors humans, encountering oneself, Soil to Soul Food.
 
@@ -53,17 +53,17 @@ A healthy Bokashi bin does not create bad odors,  greenhouse gas, or heat - uses
 
 ***A solution to some very big problems.***
 
-**Ecologically Responsible management of organic kitchen remnants can reduce 70% of the total waste production and reduce the bad gases produced during organic decomposition, while saving the environment by creating bio-active humus soil and pro-biotic fertilizer to combat the negative use of toxic chemicals and pollutants.**
+**Responsible management of organic kitchen remnants can reduce 70% of the total waste production and reduce the bad gases produced during organic decomposition, while saving the environment by creating bio-active humus soil and pro-biotic liquid fertilizer to combat the negative use of toxic chemicals and pollutants.**
 
 **Bokashi provides essential nutrients to rebuild soil organic matter content, and re-establish microbial populations. Benefits directly associated with improved organic matter content are: enhanced water infiltration and moisture-holding, aggregation, aeration, nutrient supply for plant growth, and microbial activity.**
 
 **Bioremediation**- Biotechnology employs the use of living organisms, microbes and bacteria, in the removal of contaminants, pollutants, and toxins from soil, water, and other environments.
 
-Fermentation naturally produces Lactic Acid Bacteria (LAB), one of the most well studied bacterial groups known from ancient times. *Lactic acid - this molecule occurs in almost every living organism and it plays an essential role in the anaerobic energy metabolism of billions of life forms.* These valuable micro-organisms are used in numerous areas, especially food industry and medicine. LAB produce a wide range of compounds for food upgrading. Moreover, LAB can find special applications like generation of bio-energy not affecting the surrounding environment.
+Fermentation naturally produces Lactic Acid Bacteria (LAB), one of the most well studied bacterial groups known from ancient times. *Lactic acid - this molecule occurs in almost every living organism and it plays an essential role in the anaerobic energy metabolism of billions of life forms.* LAB can find special applications like generation of bio-energy not affecting the surrounding environment.
 
 #### *Conservation as a consequence of production.*
 ***Urban soil cultivation practices can have a significant impact on urban ecosystem.***
-Bokashi, the ecologically responsible option for food remnants, perfect for those living in apartments/condos and those looking to use their food remnants as a nutrient rich pro-biotic soil amendment in their garden, plant pots or the surrounding environment (ecosystem) as a gift of thanks, fertile pro-biotic soil for Mother Earth. No modern garden is required, be creative, whats around ...
+Bokashi, the ecologically responsible option for all food remnants, perfect for those living in apartments/condos and those looking to use their food remnants as a nutrient rich pro-biotic soil amendment in their garden, plant pots or the surrounding environment (ecosystem) as a gift of thanks, fertile pro-biotic soil for Mother Earth. No modern garden is required, be creative, whats around ...
 
 A healthy microbiome of the physical body is like a healthy microbiome of the soil, when cared for correctly creates space for more healthy lifeforms to exist. The flora and fauna, healthy bacteria and yeast of the body and soil, actually can, do and have gone extinct! Especially in the gut, from a life time of unhealthy eating they just become eliminated. Fermentation is the way to bring that balance back, body and soil all life is 'built' the same.
 
@@ -84,7 +84,7 @@ A healthy microbiome of the physical body is like a healthy microbiome of the so
 
 - A minimum of two 5-gallon (or suitable size) nesting buckets with tight fitting lids (three is best to have a rotation)
 - Absorbent material (peat moss, coconut coir, shredded newspaper, sawdust, dried small leaf or grass...)
-- Bokashi starter mix
+- Bokashi starter mix (can be purchased or home cultured)
 - Food remnants chopped into small pieces
 - drill or soldering iron
 - clay building brick or same size rock
@@ -113,7 +113,7 @@ Apartment setup is easy, clean and scalable.
 
 EM means effective micro-organisms. EM is a laboratory cultured mixture of naturally occurring micro-organisms consisting mainly of lactic acid bacteria, photosynthetic bacteria (purple bacteria) and yeasts which co-exist for the benefit of whichever environment they are introduced. EM can be purchased or easily cultured in house with readily available ingredients (instructions provided below). 
 
-Molasses have several uses beyond that of a straightforward food additive. It can be used as the **base material for fermentation** into rum and as the carbon source for in situ remediation of chlorinated hydrocarbons. It can be used as a chelating agent to remove rust where a rusted part stays a few weeks in a mixture of 1 part molasses and 10 parts water.
+Molasses have several uses beyond that of a straightforward food additive. It can be used as the **base material for fermentation** into rum and as the carbon source for in situ remediation of chlorinated hydrocarbons. (It can be used as a chelating agent to remove rust where a rusted part stays a few weeks in a mixture of 1 part molasses and 10 parts water.)
 
 ![Making bokashi starter using small dry leaf as a substrate.](./bokashiImages/bokashiMakingBran_web.JPG)
 Making Bokashi starter using small dry leaf as a substrate.
