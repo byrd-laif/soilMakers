@@ -9,7 +9,7 @@
 
 **Life*Styles* For Change; *Art,* as the vehicle of feeling with and thinking through living in a damaged world, cultivating cultures that heal connecting soil to soul.**
 
-### *Salon Circle; A renewed culture of conversation, honoring personal intention within group process to create egalitarian forums.*
+### *Salon Circle; A renewed culture of Artful Conversation, honoring personal intention within group process to create egalitarian forums.*
 
 **At a time of ecological and economic precarity, *salon style* "wisdom/council circle", offer space for rethinking and remaking symbiotic relations with one-self, one-another and Mother Earth.**
 
