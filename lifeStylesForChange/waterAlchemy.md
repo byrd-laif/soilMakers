@@ -110,8 +110,7 @@ Methane gas released from poorly disposed organic food waste can trap 21 times m
 
 **Bioremediation**- Biotechnology employs the use of living organisms, microbes and bacteria, in the removal of contaminants, pollutants, and toxins from soil, water, and other environments.
 
-**Reduce Water Pollution**- Water pollution is a major global problem, **one of the leading worldwide causes of death and disease**, accounting for the deaths of more than 14,000 people daily(2006). Eco-Enzyme is utilized as a low-cost alternative to
-improve wastewater treatment processes. One study showed: A 9% solution of Eco-Enzyme has been effective in removing ammonia, nitrogen and phosphorus, and in neutralizing municipal wastewater, within a period of 5 days. The enzyme converts ammonia to nitrate (NO3-), a natural and useful hormone and nutrient for plants.
+**Reduce Water Pollution**- Water pollution is a major global problem, **one of the leading worldwide causes of death and disease**, accounting for the deaths of more than 14,000 people daily(2006). Eco-Enzyme is utilized as a low-cost alternative to improve wastewater treatment processes. One study showed: A 9% solution of Eco-Enzyme has been effective in removing ammonia, nitrogen and phosphorus, and in neutralizing municipal wastewater, within a period of 5 days. The enzyme converts ammonia to nitrate (NO3-), a natural and useful hormone and nutrient for plants.
 
 **Multiple Usage**- Natural household cleaner, body wash, mouth wash, wound healing, air purifier, laundry detergent, fabric softener, de-scaler, organic fertilizer, etc. Adding pro-biotic Eco-enzyme to food and water for feeding domestic animals can boost their immune system, improve the quality of poultry or meat and can be used as an egg wash.
 
@@ -187,9 +186,9 @@ Fermentation time & environment: 3 months minimum, from the time stopped adding 
 
 #### *TIPS and Details:*
 
-**Sugars**- Use molasses, brown sugar, jaggery or some similar sugar, it is full of minerals and will create a more rich product.
+**Sugars**- For best results use molasses, brown sugar, jaggery or some similar sugar, it is full of minerals and will create a more rich product.
 
-**Separate kitchen remnants**, think aroma and decomposition.
+**Separate kitchen remnants**, think aroma.
 Different organics have different benefits aromas and textures. Separate citrus fruits like Orange, Lemon, Lime and Pineapple into a dedicated bin, these create a fantastic and powerful cleaning enzyme. Other aromatics and medicinal plants like Ginger, Aloe Vera Lemongrass, Tea, ... can be added for a luxurious whole body healing wash product.
 
 **Use Airlocks for an anaerobic environment.** Keeping the ferment clean and free of insects. This is important for a nice functional product and for safety, **containers may burst if the gasses are not released.** Plastic containers are best suited for this reason. Repurposed plastic milk containers are perfect.

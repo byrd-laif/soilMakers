@@ -58,26 +58,26 @@ Chop vegetables to easily fit in the vessel making sure they can be submerged.
 Salt draws water out of the vegetables creating a brine.
 There’s a great deal of flexibility with salt brine, experiment to find personal preference.
 
-**Method one: Sprinkled with sea or mountain salt.** About 1 tablespoon salt per two pounds of cabbage is a good rule of thumb. Massage the cabbage by hand, gently pound with a wood pestle or mix thoroughly with a spoon to break down the cell wall of the cabbage and draw out water.
+**Method one: Sprinkled with sea or mountain salt.** About 1 tablespoon salt per two pounds of cabbage is a good rule of thumb. Massage the cabbage by hand, gently pound with a wood pestle or mix thoroughly with a spoon, to break down the cell wall of the cabbage and draw out water.
 
 **Method two: Create a brine** by mixing 2-3 Tablespoons of Salt in 4 cups of non-chlorinated water. Store in a sealed jar at room temperature, use as needed. 
 
-Most vegetables are fermented at around 2.5%-5% brine solution. Some vegetables like olives are fermented at 10%.
+Most vegetables are fermented between 2.5%-5% brine solution. Some vegetables like olives are fermented at 10%.
 
 Chlorinated water can be boiled in an open pot to evaporate. Cool water to body temperature before use.
 
 **4. Pack the fermentation vessel.**
-The vegetables are then put into the vessel and pushed down until the brine completely covers the top of all the vegetables, about two inches. The brine creates the anaerobic environment that favors the growth of lactobacilli, and serves as a protection against the growth of unwanted microorganisms.
+The vegetables are then put into the vessel and pushed down until the brine completely covers the vegetables, about two inches. The brine creates the anaerobic environment that favors the growth of lactobacilli, and serves as a protection against the growth of unwanted microorganisms.
 
 **5. Add the follower.**
-Once the vessel is filled and the brine is completely covering everything, a weight (follower) should be placed on top to keep everything submerged under the brine. Without a weight (follower) and cover the vegetables may float to the top where exposure to air can cause mold. A sacrificial cabbage core or leaf can also be used for the job.
+Once the vessel is filled and the brine is completely covering everything, a weight (follower) should be placed on top, to keep everything submerged under the brine. Without a weight (follower) and cover the vegetables may float to the top, where exposure to air can cause mold. A sacrificial cabbage core or leaf can also be used for the job.
 
 **6. Wait. ... Leave the vessel to ferment!**
-Lacto-fermentation happens faster in warmer temperatures. A cooler, slower fermentation will last longer in cold storage.
+Lacto-fermentation happens faster in warmer temperatures. A cooler, slower fermentation will take longer. All last longer in cold storage.
 
-Temperature ranges; minimum is 50-65 F, optimal is 65-90 F and maximum is 90-112 degrees Fahrenheit. 
+Temperature ranges for fermentation; minimum is 50-65 F, optimal is 65-90 F and maximum is 90-112 degrees Fahrenheit. 
 
-Check on the ferment daily.
+The ferment should be inspected daily.
 
 After about three days the ferment will taste acidic, and will increase in acidity overtime. The longer kraut is left to sit the more time it will have to go through all its microbial transformations and produce the most pro-biotic kraut.
 
@@ -88,7 +88,7 @@ Vegetables under the brine will remain edible for up to eight months before they
 
 - Check & taste the ferment daily and skim off any film that forms, get a sense for the fermented flavors desired (flavors change daily).
 
-- When fermenting, particularly with vegetables and fruits, at one point or another a white film may form, this is called kham yeast. It often covers the top of the ferment. It is sometimes confused for mold, it’s not something that is harmful to the body or the ferment but if not removed it can make the ferment bitter. Skim off the film, remove any discolored/darkened vegetables, and wash the follower. 
+- When fermenting, particularly with vegetables and fruits, at one point or another a white film may form, this is called kham yeast. It often covers the top of the ferment. It is sometimes confused for mold, it’s not something that is harmful to the body or the ferment but if not removed it can make the ferment bitter. Skim off the film, remove any discolored/darkened vegetables, wash the follower and replace as usual.
 
 - Avoid antibacterial soaps. For sterile jars and hands, use vinegar to rinse or [Pro-biotic Eco-enzyme.](./waterAlchemy.md)
 
