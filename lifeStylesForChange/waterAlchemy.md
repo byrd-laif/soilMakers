@@ -72,6 +72,8 @@ It is very difficult to reverse the effects of water pollution. Natural processe
 
 ***On Behalf Of Life.* A Gift of Life, given symbiotically by cleaning and healing the whole body and built environment with Pro-biotic Eco-enzyme. More than skin deep, water is a constituent of the soil, *soul food* for the micro-biome, Soil to Soul.**
 
+**Water, the “universal solvent,”** exerts a strong influence on soil biota because many of the biota are adapted to life in a saturated atmosphere.
+
 ### *Symbiotic Microbial Gardens, Body and Soil .* 
 
 #### *There is a micro-biome connection between Humans and the Soil.*
