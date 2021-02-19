@@ -21,13 +21,14 @@
 
 [Real time on Matrix; Join the conversation in the **Vivarium Interactive Salon**](https://matrix.to/#/!LSpVaMCiYQehpJONFF:matrix.org?via=matrix.org&via=t2bot.io&via=stux.chat)
 
-### *The Ecology Is The Economy*
+### *The Ecology Is The Economy.*
 
-#### *Examining ecologic behaviors; Conservation as a consequence of lifestyle / production.*
+#### *Conservation as a consequence of lifestyle / production.*
 
 **Projecting ones lifestyle into a future possibility, living the creative process, and designing a living that feeds the Soul and honors the Soil, that pays the Bills.**
 
-**Loss of biodiversity is directly related to the lifestyles of human beings.**
+#### *Examining ecologic behaviors.*
+***Loss of biodiversity is directly related to the lifestyles of human beings.***
 
 **It's time to start comparing consumption and lifestyle, and checking this against nature's ability to provide for this consumption. Humans have destroyed and continue to destroy the habitats of species on a daily basis. It's time to own up to the realities of what that translates to for the generations to come, aesthetically and otherwise. It's time to be *Ecologically Realistic* and get back to the *heart* of what *life* is all about.** 
 
