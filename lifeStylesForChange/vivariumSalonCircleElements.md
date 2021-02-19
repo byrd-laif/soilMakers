@@ -1,7 +1,7 @@
 # *Vivarium Salon Circle ~ place of life*
 
 ## *Evoking the Wisdom of the World.*
-*Learning to live in the light of Nature.*
+*The ethics of ecology; Learning to live in the light of Nature.*
 
 ***Supporting Global Communities For Local Impact***
 
