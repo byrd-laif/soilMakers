@@ -70,7 +70,7 @@ It is very difficult to reverse the effects of water pollution. Natural processe
 
 **Why make Pro-Biotic Eco-Enzyme?**
 
-*On Behalf Of Life.* A Gift of Life, given symbiotically by cleaning and healing the whole body and built environment with Pro-biotic Eco-enzyme. More than skin deep, **Soul Food for the Micro-biome, Soil to Soul.**
+***On Behalf Of Life.* A Gift of Life, given symbiotically by cleaning and healing the whole body and built environment with Pro-biotic Eco-enzyme. More than skin deep, water is a constituent of the soil, *soul food* for the micro-biome, Soil to Soul.**
 
 ### *Symbiotic Microbial Gardens, Body and Soil .* 
 
