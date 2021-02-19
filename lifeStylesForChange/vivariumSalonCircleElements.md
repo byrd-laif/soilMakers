@@ -83,9 +83,11 @@ The center of a circle is like the hub of a wheel: all energies pass through it,
 
 Check-in helps people into a frame of mind for council and reminds everyone of their commitment to the expressed intention. It insures that people are truly present in mind as well as in body.
 
+Crafting questions is an art form. The choice of an opening question for check-in is a significant piece of preparation for a host calling a salon circle the first time, and every time. The question is like a flower that beckons to the bee, and the responses pollinate the ensuing conversation.
+
 To check-in with a new circle, people may say their names and offer a brief self-introduction. To check-in with an ongoing circle, people may speak briefly about their hopes for the meeting, offer other social comment, or share anecdotal stories about their lives.
 
-Some circles enjoy the tradition of having each person share an object that represents him or herself in the meeting. As each person contributes an object (or a thought) to center he/she may tell a brief story about what the object represents and what it means to bring it.
+Some circles enjoy the tradition of having each person share an object that represents him or herself in the meeting. As each person contributes an object (or a thought) to 'center'(metaphorically or literally) he/she may tell a brief story about what the object represents and what it means to bring it.
 
 Check-in usually starts with a volunteer and proceeds around the circle. If an individual is not ready to speak, the turn is passed and another opportunity is offered after others have completed their check-ins.
 
