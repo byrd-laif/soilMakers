@@ -55,6 +55,10 @@ Though expressed in slightly different ways in different cultures and through di
 
 ***The role of the host***
 
+- Be modest and humble about what can be accomplished.
+
+- Allow space for all voices, but stress that although the host will try, each opinion may not be heard.
+
 To start a circle, somebody needs to set an intention (content, mission, or direction), offer basic structure, and be ready to model circle skills while others become accustomed to how a circle works. This person is the caller of the circle, sometimes called the circle host. A circle may be held one time or meet many times over a period of months or years. In ongoing circles, the host role can rotate so that responsibility for the group is shared among members.
 
 The host briefly shares the nature of the dialog and explains the ground rules. This is a sharing of experience, not a discussion; avoid analysis and theorizing, respect what all share, refrain from making judgments. Do not probe or cross-question one another; aim to answer with complete honesty and freedom, feeling free to not answer a given question. The host begins, and then the conversation continues around the circle so that all feel they have a proper space in which to participate.
@@ -100,10 +104,6 @@ Check-in usually starts with a volunteer and proceeds around the circle. If an i
 The use of agreements creates an interpersonal container that allows all members to have a free and profound exchange, to respect a diversity of views, and to share responsibility of the well-being and direction of the group.
 
 ***Agreements often used as a basis in Vivarium Salon Circles include:***
-
-- Be modest and humble about what can be accomplished.
-
-- Allow space for all voices, but stress that although the host will try, each opinion may not be heard.
 
 - To hold stories or personal material in confidentiality and honor other material, information or decisions with a level of confidentiality appropriate to the setting.
 
