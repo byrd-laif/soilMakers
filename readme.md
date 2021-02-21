@@ -32,7 +32,7 @@
 
 **It's time to start comparing consumption and lifestyle, and checking this against nature's ability to provide for this consumption. Humans have destroyed and continue to destroy the habitats of species on a daily basis. It's time to own up to the realities of what that translates to for the generations to come, aesthetically and otherwise. It's time to be *Ecologically Realistic* and get back to the *heart* of what *life* is all about.** 
 
-#### *This is about honesty and responsibility. Honesty; admitting to what is. Responsibility; not blaming anybody else.*
+**This is about honesty and responsibility. Honesty; admitting to what is. Responsibility; not blaming anybody else.**
 
 ## Environ-Mental Health ~ *The ethics of ecology; Learning to live in the light of Nature.*
 

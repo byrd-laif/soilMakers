@@ -40,7 +40,7 @@ The 'circle', or council methodology is an ancient social structure that has gat
 
 Vivarium Salon Circle is a modern methodology that calls on this tradition and helps people gather in conversations that fulfill their potential for dialogue, replenishment, and wisdom-based ecological change. Soil Seekers form a partnership with Vivarium Salon Circle, dedicated to a global ecological shift through conversation. Circle enables one to discover the collective wisdom. It helps participants discover who they are in relation to one another and their environments, as well as the resources each can offer to the conversation and conservation tasks at hand.
 
-The circle as a global experience has the ability to remind people of common human values, ethics and ecological concerns.
+The circle as a global experience has the ability to remind people of common human values, ethics and ecological concerns. This form encourages a focus on the issue at hand and, like  council circle, minimizes the tendency for discussion to fall into a debate between individuals.
 
 **The circle offers the process** (the way of being together in conversation) and the intention of the group offers the content, nature provides the opportunity.
 
@@ -57,6 +57,8 @@ Though expressed in slightly different ways in different cultures and through di
 
 To start a circle, somebody needs to set an intention (content, mission, or direction), offer basic structure, and be ready to model circle skills while others become accustomed to how a circle works. This person is the caller of the circle, sometimes called the circle host. A circle may be held one time or meet many times over a period of months or years. In ongoing circles, the host role can rotate so that responsibility for the group is shared among members.
 
+The host briefly shares the nature of the dialog and explains the ground rules. This is a sharing of experience, not a discussion; avoid analysis and theorizing, respect what all share, refrain from making judgments. Do not probe or cross-question one another; aim to answer with complete honesty and freedom, feeling free to not answer a given question. The host begins, and then the conversation continues around the circle so that all feel they have a proper space in which to participate.
+
 ***The components of the circle***
 
 - Welcome Start-point
@@ -69,19 +71,21 @@ To start a circle, somebody needs to set an intention (content, mission, or dire
 
 ***Intention***
 
-Intention shapes the circle and determines who will come, how long the circle will meet, and what kinds of outcomes are to be expected. The caller of the circle needs to articulate an intention that will invite people to the first meeting. Intention may evolve as the circle gathers, but it is very helpful to have an idea that will attract the people the circle needs.
+Intention shapes the circle and determines who will come, how long the circle will meet, and what kinds of outcomes are to be expected. The host/caller of the circle needs to articulate an intention that will invite people to the first meeting. Intention may evolve as the circle gathers, but it is very helpful to have an idea that will attract the people the circle needs. Expect nothing; be ready for anything. Have goals, but defer to greater wisdom.
+
+On-line or in person-  Set the intention pr-gathering with materials. Include an inspirational quote or image so that the discussion begins in a reflective way, even before the circle.
 
 ***Welcome or Start-point***
 
-Once people have gathered, it is helpful for the host, or any volunteer participant, to begin the circle with a gesture that shifts people's attention from social space to council space. This gesture of welcome may be a moment of silence, reading a poem, singing a song, or listening to a musical interlude, whatever invites a sense of calm presence.
+Once people have gathered, it is helpful for the host, or any volunteer participant, to begin the circle with a gesture that shifts people's attention from social space to council space. This gesture of welcome may be a moment of silence, reading a poem, singing a song, or listening to a musical interlude, whatever invites a sense of calm presence and brings people into the space together. 
 
 ***Establishing the center***
 
 The center of a circle is like the hub of a wheel: all energies pass through it, and it holds the rim together. To help people remember how the hub helps the group, the *center* of a circle usually holds object/s that represent the intention of the circle. Any symbol that fits this purpose or adds beauty will serve: flowers, a bowl or basket, a candle. Choose something fairly simple that suits the environment, honors local ecological culture, or symbolically represents group intention.
 
-***Check-in/Greeting***
+***Check-in/Greeting*** 
 
-Check-in helps people into a frame of mind for council and reminds everyone of their commitment to the expressed intention. It insures that people are truly present in mind as well as in body.
+Check-in helps people into a frame of mind for council and reminds everyone of their commitment to the expressed intention. It insures that people are truly present in mind as well as in body, and for on-line gatherings becomes easier to imagine each other in the circle.
 
 Crafting questions is an art form. The choice of an opening question for check-in is a significant piece of preparation for a host calling a salon circle the first time, and every time. The question is like a flower that beckons to the bee, and the responses pollinate the ensuing conversation.
 
@@ -97,11 +101,17 @@ The use of agreements creates an interpersonal container that allows all members
 
 ***Agreements often used as a basis in Vivarium Salon Circles include:***
 
+- Be modest and humble about what can be accomplished.
+
+- Allow space for all voices, but stress that although the host will try, each opinion may not be heard.
+
 - To hold stories or personal material in confidentiality and honor other material, information or decisions with a level of confidentiality appropriate to the setting.
 
-- Listen to each other with compassion and curiosity.
+- Speaking should be from feeling and experience, rather than from theory or opinion.
 
-- Ask for what is needed and offer what one can.
+- Listen to each other with compassion and curiosity. Without judgment listen to understand, not to agree with or believe.
+ 
+- Exercise empathy and generosity. Ask for what is needed and offer what one can. Be kind; assume the best. (There are so many possibilities for misunderstanding.)
 
 - Agree to employ a group guardian to watch the need, timing, and energy. 
 
