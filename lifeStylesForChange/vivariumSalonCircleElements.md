@@ -180,6 +180,36 @@ Circle is not a dogmatic form. Each circle will develop its own unique personali
 
 ***Love and Light***
 
-[Vivarium Salon Circle ~ Singing bowl gathering video compilation](https://youtu.be/7zCHFSwraeY)
+[***Vivarium Salon Circle*** ~ Singing bowl gathering video compilation](https://youtu.be/7zCHFSwraeY)
+
+[Private Tibetan singing bowl session at the ***Vivarium Salon ~ place of life***](https://youtu.be/ypoLV3G9vRU)
+
+.......
+
+### *Cooperation and Harmony ~ Soil Seekers and Vivarium Salon Circle/Programs*
+
+#### *Dynamic Governance Values*
+- Effectiveness: Get things done
+- Transparency: Open - Everyone knows
+- Equivalence: Fairness/ equality
+
+#### *Governing Principles*
+- Consent decision making : decisions are made by consent not consensus.
+
+- Circle organization : semi-autonomous self-governing groups, each of which has its own goals, and the responsibility to direct, operate and measure its own processes.
+
+- Double Linking : An appointed representative of each working group (circle) participates with equal power in the governing group (circle) that oversees and supports the decision making processes and initiatives. Likewise an elected operational leader from the governing group (circle) participates in the working group. The governing group also sends an appointed representative to a higher level governing group, if one exists, and accepts an operational leader elected by that governing group as well.
+
+#### Key Benefits
+- Fast equivalent decision making process
+- Objections are welcome and inform and evolve proposals
+- Objections are validated in relation to the vision and shared aims
+- Power is given to reason
+- Roles are elected, not volunteered
+- Full proposals are brought to meetings and are: Solution based (every problem comes with at least 3 solutions) AND- All decisions are time bound and reevaluated
+
+#### Challenges
+- Requires training of all participants to be effective
+- Requires efficient and timely communication and facilitation
 
 

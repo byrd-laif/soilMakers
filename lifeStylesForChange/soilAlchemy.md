@@ -186,6 +186,6 @@ Pour the concentrated Bokashi tea directly into kitchen and bathroom drains, toi
 #### *Resources*
 **Private Bokashi Soil Building Lessons Available.**
 [**Bokashi Soil Building Instructional Video Link YouTube**](https://youtu.be/6fonPhtzfSc)
-
+[**Day in the life of an apartment garden**](https://youtu.be/O5F19PW9HsQ)
 
  
