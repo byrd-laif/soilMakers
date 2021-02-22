@@ -4,7 +4,7 @@
 
 [Live Blog On Matrix - Soil Seekers](https://matrix.to/#/!EwezVvVjpxKVCMIuRM:matrix.org?via=matrix.org&via=kde.org&via=converser.eu)
 
-## *Vivarium Salon Circle ~ place of life*
+## *Vivarium Salon Circle/Programs ~ place of life*
 *Global Communities For Local Impact.*
 
 **Life*Styles* For Change; *Art,* as the vehicle of feeling with and thinking through living in a damaged world, cultivating cultures that heal connecting soil to soul.**
@@ -13,7 +13,7 @@
 
 **At a time of ecological and economic precarity, *salon style* "wisdom/council circle", offer space for rethinking and remaking symbiotic relations with one-self, one-another and Mother Earth.**
 
-#### *Designed to be Fun, Creative, Interactive and Resourceful.*
+#### Vivarium *Salon Programs;* Designed to be Fun, Creative, Interactive and Resourceful.
 
 **To awaken possibility and creative insight, refine the taste, and increase the knowledge of the participants through guided conversation organized around cultures and ideas reflective of the era in which they live.**
 
@@ -23,7 +23,7 @@
 
 ### *The Ecology Is The Economy.*
 
-#### *Conservation as a consequence of lifestyle / production.*
+#### *Conservation as a consequence of lifestyle/production.*
 
 **Projecting ones lifestyle into a future possibility, living the creative process, and designing a living that feeds the Soul and honors the Soil, that pays the Bills.**
 
@@ -52,7 +52,7 @@
 
 ...
 
-### *Cooperation and Harmony ~ Soil Seekers and Vivarium Salon Circle*
+### *Cooperation and Harmony ~ Soil Seekers and Vivarium Salon Circle/Programs*
 
 #### *Dynamic Governance Values*
 - Effectiveness: Get things done
