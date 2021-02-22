@@ -81,7 +81,7 @@
 #### Connect ~ Join a Vivarium Salon Circle / Become a Facilitator 
 [Contact Direct on Matrix](https://matrix.to/#/!ibYXXCkubbZiWtkmhX:matrix.org?via=matrix.org)
 
-#### Resources
+#### Programs/Resources
 - [Vivarium Salon Circle Elements and Etiquette](./lifeStylesForChange/vivariumSalonCircleElements.md)
 - [Soil Alchemy - The Soil Rehabilitation Miracle Of Bokashi](./lifeStylesForChange/soilAlchemy.md)
 - [Water Alchemy - The Water Rehabilitation Miracle Of Pro-Biotic Eco-Enzyme](./lifeStylesForChange/waterAlchemy.md)
