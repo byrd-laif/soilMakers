@@ -13,7 +13,7 @@
 
 **At a time of ecological and economic precarity, *salon style* "wisdom/council circle", offer space for rethinking and remaking symbiotic relations with one-self, one-another and Mother Earth.**
 
-#### Vivarium *Salon Programs;* Designed to be Fun, Creative, Interactive and Resourceful.
+### Vivarium *Salon Programs;* Designed to be Fun, Creative, Interactive and Resourceful.
 
 **To awaken possibility and creative insight, refine the taste, and increase the knowledge of the participants through guided conversation organized around cultures and ideas reflective of the era in which they live.**
 
