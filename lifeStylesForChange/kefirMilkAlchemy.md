@@ -175,4 +175,4 @@ Kefir grains increase in overall volume, numbers of, and by weight as the grains
 
 Aerobic, a ferment with oxygen is usually done with a cloth lid. Anaerobic, without oxygen is done with a closed lid or airlock. Airlock is ideal but not necessary, kefir can be fermented closed or with a cloth cover. 
 
-
+**Private Kefir milk/cheese making lessons available.** [*Enjoy this short artistic video as an example of the fun to be had.*](https://youtu.be/K2hxoO9hcVY)

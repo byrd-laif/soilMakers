@@ -184,6 +184,7 @@ Checking on the bokashi tea. Bokashi bin is open to use lid as a trivet to catch
 Pour the concentrated Bokashi tea directly into kitchen and bathroom drains, toilets and septic systems. It will help prevent algae build-up and control odor.
 
 #### *Resources*
+**Private Bokashi Soil Building Lessons Available.**
 [**Bokashi Soil Building Instructional Video Link YouTube**](https://youtu.be/6fonPhtzfSc)
 
 
