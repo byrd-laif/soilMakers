@@ -179,13 +179,16 @@ Watering the garden... Bokashi tea is strong and must be diluted with water at a
 If the bokashi tea can not be used straight away, simply poor it down the drain. It is completely natural and will not pollute. The bokashi bacteria  help to unblock clogged drains and are beneficial to the water. Bokashi tea contributes to cleaning up waterways as the good bacteria compete with the bad bacteria.
 
 ![Checking on the bokashi tea.](./bokashiImages/bokashiWorkingBinsOpenTea_web.JPG)
-Checking on the bokashi tea. Bokashi bin is open to use lid as a trivet to catch any liquid as the bottom bin is emptied. 
+Checking on the bokashi tea. Bokashi bin is open to use lid as a trivet to catch any liquid as the bottom bin is emptied.
 
 Pour the concentrated Bokashi tea directly into kitchen and bathroom drains, toilets and septic systems. It will help prevent algae build-up and control odor.
 
 #### *Resources*
+
 **Private Bokashi Soil Building Lessons Available.**
+
 [**Bokashi Soil Building Instructional Video Link YouTube**](https://youtu.be/6fonPhtzfSc)
+
 [**Day in the life of an apartment garden**](https://youtu.be/O5F19PW9HsQ)
 
- 
+

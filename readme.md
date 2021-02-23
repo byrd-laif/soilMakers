@@ -1,19 +1,21 @@
 # *Soil Seekers ~ Cultivating Ecological Literacy*
 
-***A Living Legacy - Ecology As Art; curating symbiotic relationships between Wo-Man, organisms and their environments.***
+***A Living Legacy - Ecology As Art;* curating symbiotic relationships between Wo-Man, organisms and their environments.**
 
 [Live Blog On Matrix - Soil Seekers](https://matrix.to/#/!EwezVvVjpxKVCMIuRM:matrix.org?via=matrix.org&via=kde.org&via=converser.eu)
 
 ## *Vivarium Salon Circle/Programs ~ place of life*
 *Global Communities For Local Impact.*
 
-**Life*Styles* For Change; *Art,* as the vehicle of feeling with and thinking through living in a damaged world, cultivating cultures that heal connecting soil to soul.**
+### Life*Styles* For Change
 
-### *Salon Circle; A renewed culture of Artful Conversation, honoring personal intention within group process to create egalitarian forums.*
+***Art,* as the vehicle of feeling with and thinking through living in a damaged world, cultivating cultures that heal connecting soil to soul.**
+
+#### *Salon Circle;* A renewed culture of Artful Conversation, honoring personal intention within group process to create egalitarian forums.
 
 **At a time of ecological and economic precarity, *salon style* "wisdom/council circle", offer space for rethinking and remaking symbiotic relations with one-self, one-another and Mother Earth.**
 
-### Vivarium *Salon Programs;* Designed to be Fun, Creative, Interactive and Resourceful.
+#### *Salon Programs;* Designed to be Fun, Creative, Interactive and Resourceful.
 
 **To awaken possibility and creative insight, refine the taste, and increase the knowledge of the participants through guided conversation organized around cultures and ideas reflective of the era in which they live.**
 
@@ -34,7 +36,7 @@
 
 **This is about honesty and responsibility. Honesty; admitting to what is. Responsibility; not blaming anybody else.**
 
-## Environ-Mental Health ~ *The ethics of ecology; Learning to live in the light of Nature.*
+## Environ-Mental Health ~ *The ethics of ecology;* Learning to live in the light of Nature.
 
 ### *The cultivation of a more attuned and responsive awareness of Wo-Mans ecological interconnections.*
 
@@ -54,14 +56,21 @@
 [***Vivarium Salon Circle*** ~ Singing bowl gathering video compilation](https://youtu.be/7zCHFSwraeY)
 
 [Private Tibetan singing bowl session at the ***Vivarium Salon ~ place of life***](https://youtu.be/ypoLV3G9vRU)
+
 .......
 
 #### Connect ~ Ask a question, join or facilitate a Vivarium Salon Circle/Program.
 [Contact Direct on Matrix](https://matrix.to/#/!ibYXXCkubbZiWtkmhX:matrix.org?via=matrix.org)
 
 #### Programs/Resources
+
 - [Soil Seekers / Vivarium Salon Circle Elements, Etiquette and Governance](./lifeStylesForChange/vivariumSalonCircleElements.md)
+
 - [Soil Alchemy - The Soil Rehabilitation Miracle Of Bokashi](./lifeStylesForChange/soilAlchemy.md)
+
 - [Water Alchemy - The Water Rehabilitation Miracle Of Pro-Biotic Eco-Enzyme](./lifeStylesForChange/waterAlchemy.md)
+
 - [Kefir Milk Alchemy - An Ancient Living Legacy, The Miracle Of Kefir Milk Culture](./lifeStylesForChange/kefirMilkAlchemy.md)
-- [The Alchemy Of Food Preservation - Cultivating functional food based Pro-biotics](./lifeStylesForChange/lactoFermentbBasicMethod.md)
+
+- [The Alchemy Of Food Preservation - Cultivating Pro-biotic Functional Foods](./lifeStylesForChange/lactoFermentbBasicMethod.md)
+
