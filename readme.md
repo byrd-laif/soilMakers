@@ -11,11 +11,11 @@
 
 ***Art,* as the vehicle of feeling with and thinking through living in a damaged world, cultivating cultures that heal connecting soil to soul.**
 
-#### *Salon Circle;* A renewed culture of Artful Conversation, honoring personal intention within group process to create egalitarian forums.
+### *Salon Circle;* A renewed culture of Artful Conversation, honoring personal intention within group process to create egalitarian forums.
 
 **At a time of ecological and economic precarity, *salon style* "wisdom/council circle", offer space for rethinking and remaking symbiotic relations with one-self, one-another and Mother Earth.**
 
-#### *Salon Programs;* Designed to be Fun, Creative, Interactive and Resourceful.
+### *Salon Programs;* Designed to be Fun, Creative, Interactive and Resourceful.
 
 **To awaken possibility and creative insight, refine the taste, and increase the knowledge of the participants through guided conversation organized around cultures and ideas reflective of the era in which they live.**
 
@@ -32,7 +32,7 @@
 #### *Examining ecologic behaviors.*
 ***Loss of biodiversity is directly related to the lifestyles of human beings.***
 
-**It's time to start comparing consumption and lifestyle, and checking this against nature's ability to provide for this consumption. Humans have destroyed and continue to destroy the habitats of species on a daily basis. It's time to own up to the realities of what that translates to for the generations to come, aesthetically and otherwise. It's time to be *Ecologically Realistic* and get back to the *heart* of what *life* is all about.** 
+*It's time to start comparing consumption and lifestyle, and checking this against nature's ability to provide for this consumption. Humans have destroyed and continue to destroy the habitats of species on a daily basis. It's time to own up to the realities of what that translates to for the generations to come, aesthetically and otherwise. It's time to be *Ecologically Realistic* and get back to the *heart* of what *life* is all about.* 
 
 **This is about honesty and responsibility. Honesty; admitting to what is. Responsibility; not blaming anybody else.**
 
