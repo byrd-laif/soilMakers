@@ -5,11 +5,13 @@
 [Live Blog On Matrix - Soil Seekers](https://matrix.to/#/!EwezVvVjpxKVCMIuRM:matrix.org?via=matrix.org&via=kde.org&via=converser.eu)
 
 ## *Vivarium Salon Circle/Programs ~ place of life*
-*Global Communities For Local Impact.*
+*Global Communities For Local Impact. Cross-pollinate and connect diverse opinions.*
 
 ### Life*Styles* For Change
 
 ***Art,* as the vehicle of feeling with and thinking through living in a damaged world, cultivating cultures that heal connecting soil to soul.**
+
+[Real time on Matrix; Join the conversation in the interactive **Vivarium Salon**](https://matrix.to/#/!LSpVaMCiYQehpJONFF:matrix.org?via=matrix.org&via=t2bot.io&via=stux.chat)
 
 ### *Salon Circle;* A renewed culture of Artful Conversation, honoring personal intention within group process to create egalitarian forums.
 
@@ -19,9 +21,9 @@
 
 **To awaken possibility and creative insight, refine the taste, and increase the knowledge of the participants through guided conversation organized around cultures and ideas reflective of the era in which they live.**
 
-*Knowledge to design a more desirable, fulfilling, life supporting; Ecologically Modern and Realistic Lifestyle.*
+***Harvesting Knowledge** to design a more desirable, fulfilling, life supporting; Ecologically Modern and Realistic Lifestyle.*
 
-[Real time on Matrix; Join the conversation in the **Vivarium Interactive Salon**](https://matrix.to/#/!LSpVaMCiYQehpJONFF:matrix.org?via=matrix.org&via=t2bot.io&via=stux.chat)
+*An integrated set of processes that allow the often hidden insight of human expertise to be captured and converted into specific actionable know-how that can be transferred to others.*
 
 ### *The Ecology Is The Economy.*
 
