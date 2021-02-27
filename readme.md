@@ -38,6 +38,8 @@
 
 **This is about honesty and responsibility. Honesty; admitting to what is. Responsibility; not blaming anybody else.**
 
+# Soil Sisters
+
 ## Environ-Mental Health ~ *The ethics of ecology;* Learning to live in the light of Nature.
 
 ### *The cultivation of a more attuned and responsive awareness of Wo-Mans ecological interconnections.*
