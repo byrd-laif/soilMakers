@@ -50,9 +50,7 @@
 
 ### *Loss of biodiversity is catastrophic, impacts are symbiotic and happen within the physical body and Mother Earth, far into future generations.*
 
-**Ecological Justice is Social Justice. Being responsible stewards of the Earth means taking to heart the current planetary healing crisis.**
-
-**Having accepted this circumstance *responsibility* then means *ability,* to have a *creative response* to the situation as it is *now.* The *seeds of opportunity* and awareness, to take the moment and transform it into a better situation.** 
+**Being responsible stewards of the Earth means taking to heart the current planetary healing crisis. Having accepted this circumstance *responsibility* then means *ability,* to have a *creative response* to the situation as it is *now.* The *seeds of opportunity* and awareness, to take the moment and transform it into a better situation.**
 
 #### An opportunity for the creation of something new and beautiful. 
 
