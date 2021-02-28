@@ -58,11 +58,12 @@
 
 #### Explore
 
+[**Public Profile- *Proof of Concept* & Reviews**](https://www.airbnb.com/users/show/3774308)
+
 [***Vivarium Salon Circle*** ~ Singing bowl gathering video compilation](https://youtu.be/7zCHFSwraeY)
 
 [Private Tibetan singing bowl session at the ***Vivarium Salon ~ place of life***](https://youtu.be/ypoLV3G9vRU)
 
-[**Public Profile & Reviews**](https://www.airbnb.com/users/show/3774308)
 .......
 
 #### Connect ~ Ask a question, join or facilitate a Vivarium Salon Circle/Program.
