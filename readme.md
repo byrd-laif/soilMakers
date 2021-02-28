@@ -38,13 +38,19 @@
 
 **This is about honesty and responsibility. Honesty; admitting to what is. Responsibility; not blaming anybody else.**
 
-# Soil Sisters
+# *Soil Sisters ~ Ecological Enterprise*
+*A system that operates to deliver positive ecological impact and by that profit, produce a surplus.*
+
+**An archaic revival of Wo-Mans Gaian connection through honoring the feminine. Soil Sisters relate to Earth, Gaia as 'The Live And Dynamic Evolutionary Partner' in the shaping of the set, setting and the process, healing the soil to heal the soul.*
 
 ## Environ-Mental Health ~ *The ethics of ecology;* Learning to live in the light of Nature.
+**The cultivation of a more attuned and responsive awareness of Wo-Mans ecological interconnections. Ones dream and the dream of the planet As One.**
 
-### *The cultivation of a more attuned and responsive awareness of Wo-Mans ecological interconnections.*
+***Connection with things that make living possible.*** Being attracted to all that is alive and vital, the human tendency to relate with life and natural processes - Is The Expression Of A Biological Need.
 
-#### *Loss of biodiversity is catastrophic, impacts are symbiotic and happen within the physical body and Mother Earth, far into future generations.*
+### *Loss of biodiversity is catastrophic, impacts are symbiotic and happen within the physical body and Mother Earth, far into future generations.*
+
+**Ecological Justice is Social Justice. Being responsible stewards of the Earth means taking to heart the current planetary healing crisis.**
 
 **Having accepted this circumstance *responsibility* then means *ability,* to have a *creative response* to the situation as it is *now.* The *seeds of opportunity* and awareness, to take the moment and transform it into a better situation.** 
 
