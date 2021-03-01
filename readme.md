@@ -41,7 +41,7 @@
 # *Soil Sisters ~ Ecological Enterprise*
 *A system that operates to deliver positive ecological impact and by that profit, produce a surplus.*
 
-**An archaic revival of Wo-Mans Gaian connection through honoring the feminine. Soil Sisters relate to Earth, Gaia as 'The Live And Dynamic Evolutionary Partner' in the shaping of the set, setting and the process, healing the soil to heal the soul.*
+*An archaic revival of Wo-Mans Gaian connection through honoring the feminine. Soil Sisters relate to Earth, Gaia as 'The Live And Dynamic Evolutionary Partner' in the shaping of the set, setting and the process, healing the soil to heal the soul.*
 
 ## Environ-Mental Health ~ *The ethics of ecology;* Learning to live in the light of Nature.
 **The cultivation of a more attuned and responsive awareness of Wo-Mans ecological interconnections. Ones dream and the dream of the planet As One.**
