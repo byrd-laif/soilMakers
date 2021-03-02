@@ -62,7 +62,7 @@
 
 #### Explore
 
-[BioPhilia Living Design - Urban Eco-Living Proof of Concept](./lifeStylesForChange/creativeEcoLivingProofOfConcept.md)
+[**BioPhilia Living Design - Urban Sustainable Eco-Living Proof of Concept**](./lifeStylesForChange/creativeEcoLivingProofOfConcept.md)
 
 [**Public Profile- *Proof of Concept* & Reviews**](https://www.airbnb.com/users/show/3774308)
 
