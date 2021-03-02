@@ -85,7 +85,7 @@ This was a shared private residence. At times the entire space was made availabl
 
 **Marketing**
 
-The Vivarium experience was marketed to "Creative Eco-Conscious Travelers" using Airbnb and Workaway platforms with a small team of dedicated local friends that helped make it all possible.
+The Vivarium experience was marketed to "Creative Eco-Conscious Travelers" using Airbnb and Workaway platforms with a small team of dedicated local friends that helped make it all possible. The Vivarium listings attained "super host" status on the Airbnb platform.
 
 Guests joined a journey of discovery as the Vivarium co-evolved and provided a space to share solutions to everyday environmental impacts; Bokashi soil building and pro-biotic enzyme cleaners were a large part of keeping the ecological footprint positive. This knowledge was freely shared to inquiring guests.
 
