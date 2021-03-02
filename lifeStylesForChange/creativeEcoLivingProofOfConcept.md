@@ -4,9 +4,9 @@ date: 2021-02-28
 ---
 
 # Bio*Philia* Living Design ~ Learning to live in the light of Nature.
-(*Proof of concept Creative ecoLiving Oct 2016 - Jan 2020*)
+(*Proof of concept: Oct 2016 - Jan 2020*)
 
-**Creating a symbiotic habitat for the individual as a *biological organism* in the *built environment* within the *biophysical environment.***
+**The cultivation of a symbiotic habitat for the individual as a *biological organism* in the *built environment* within the *biophysical environment.***
 
 Civilized living; life-giving and life-sustaining with a high degree of refinement and comfort. Adaptable to all practical needs of life within an attractive built environment. ***Curated to allow enjoyment of nature as freely as possible.***
 
