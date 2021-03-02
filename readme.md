@@ -38,8 +38,8 @@
 
 **This is about honesty and responsibility. Honesty; admitting to what is. Responsibility; not blaming anybody else.**
 
-# *Soil Sisters ~ Ecological Enterprise*
-*A system that operates to deliver positive ecological impact and by that profit, produce a surplus.*
+# *Soil Sisters ~ Ecological Movement And Enterprise*
+*A system that operates to deliver positive ecological impact and by that symbiotically profit, produce a surplus.*
 
 *An archaic revival of Wo-Mans Gaian connection through honoring the feminine. Soil Sisters relate to Earth, Gaia as 'The Live And Dynamic Evolutionary Partner' in the shaping of the set, setting and the process, healing the soil to heal the soul.*
 
@@ -58,7 +58,7 @@
 
 **Not addressing immediate needs is an insult to the young. People with passion, purpose and practical skills make the world a better place.** 
 
-#### *Its time to act on the environ-mental realities, soil to soul cultivate cultures that heal.*
+#### *It's time to call home. To act and that act to transfer through nature. Soil to soul cultivate cultures that heal.
 
 #### Explore
 
