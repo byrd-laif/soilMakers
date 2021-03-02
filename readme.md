@@ -62,6 +62,8 @@
 
 #### Explore
 
+[BioPhilia Living Design - Urban Eco-Living Proof of Concept](./lifeStylesForChange/creativeEcoLivingProofOfConcept.md)
+
 [**Public Profile- *Proof of Concept* & Reviews**](https://www.airbnb.com/users/show/3774308)
 
 [***Vivarium Salon Circle*** ~ Singing bowl gathering video compilation](https://youtu.be/7zCHFSwraeY)
