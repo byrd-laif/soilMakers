@@ -17,6 +17,10 @@ date: 2018-08-13
 
 #### Pro-biotic Eco-enzyme is *Water Therapy;* the practice of spending time *cultivating living healing water* for the purpose of enhancing whole health, *Earth Care,* wellness, and happiness. A practice of *symbiotic connection* with the natural world and with each other, *healing water to soul.*
 
+Wo-Men connect threw water, the universal solvent. Water speaks it takes the knowledge of the leaf from the mountains to the sea, and the rain takes it up from the sea back to the mountains.
+
+Wo-Men don't have to abandon their 'modern' lives but they do have to protect the rivers.
+
 ***Self-care that goes far beyond the self.* Symbiotically nourishing, fortifying and gentle. Remarkably enough the Physical Body and Mother Earth find natural healing benefits from this one easy process.***
 
 *Yes, Nature is that simple, effective and synergistic.*

@@ -39,9 +39,9 @@
 **This is about honesty and responsibility. Honesty; admitting to what is. Responsibility; not blaming anybody else.**
 
 # *Soil Sisters ~ Ecological Movement And Enterprise*
-*A system that operates to deliver positive ecological impact and by that symbiotically profit, produce a surplus.*
+*A bio-**logical** movement, a 'symbiotic legacy venture' with Nature. A system that operates to deliver positive ecological impact and by that symbiotically profit, produce a surplus soil to soul, Banking Green.*
 
-*An archaic revival of Wo-Mans Gaian connection through honoring the feminine. Soil Sisters relate to Earth, Gaia as 'The Live And Dynamic Evolutionary Partner' in the shaping of the set, setting and the process, healing the soil to heal the soul.*
+*The Mother Tree; An archaic revival of Wo-Mans Gaian connection through honoring the feminine. Soil Sisters relate to Earth, Gaia as 'The Live And Dynamic Evolutionary Partner' in the shaping of the set, setting and the process, healing the soil to heal the soul.*
 
 ## Environ-Mental Health ~ *The ethics of ecology;* Learning to live in the light of Nature.
 **The cultivation of a more attuned and responsive awareness of Wo-Mans ecological interconnections. Ones dream and the dream of the planet As One.**

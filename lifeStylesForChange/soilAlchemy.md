@@ -10,15 +10,21 @@ date: 2018-08-13
 **Humans and Humus are Symbiotic Body and Soil Microbial Gardens. Life is not possible without Rich Fertile Soil.**
 *All components of an ecosystem are dependent on healthy soil for the system to function optimally.*
 
-***Soil Alchemy*** is the ongoing exploration of what happens when people connect head, heart, and body in the crucible of the soil. The ancient alchemists combined substances and used the influence of their own minds to study the transmutation of matter and of spirit. Observe when the discursive mind becomes quieter and the intelligence of the heart comes to the foreground, a new *ecologically symbiotic consciousness* emerges. Work in *symbiotic partnership with the more-than-human world* and make incredible discoveries. 
+***Soil Alchemy*** is the ongoing exploration of what happens when people connect head, heart, and body in the crucible of the soil. The ancient alchemists combined substances and used the influence of their own minds to study the transmutation of matter and of spirit. Observe when the discursive mind becomes quieter and the intelligence of the heart comes to the foreground, a new *ecologically symbiotic consciousness* emerges. Work in *symbiotic partnership with the more-than-human world* and make incredible discoveries.
 
 ### Bokashi is *Soil Therapy;* the practice of spending time *cultivating fertile soil* for the purpose of enhancing whole health, *Earth Care,* wellness, and happiness. A practice of *symbiotic connection* with the natural world and with each other, healing soil to soul.
 
 A series of guided invitations, natural cycles, bring one into the present moment, opening the doors of symbiotic communication with the soil, waters, and landscapes explored. Encounter not just the soil, but the many ways nature mirrors humans, encountering oneself, Soil to Soul Food.
 
-#### *Cultivating cultures that heal cultivates compassion for mother earth; an act of humility.*
+Soil, life is fragile, its easy to destroy something, the challenge is to create something meaningful. To bring something back to the Village that people can live from.
+
+#### *Ancestral Healing; Cultivating cultures that heal cultivates compassion for mother earth, an act of humility.*
 
 ***Humility:*** The state of being Humble; Middle English, from Anglo-French, from Latin humilis low, humble, ***from humus earth;*** akin to Greek chthōn earth, chamai on the ground.
+
+#### Soil Return - A soul united, offer light to the field essence like humus. Soil is the ultimate store of energy. It holds history in its molecules, vital energy that flows forever, transporting light energies.
+
+**Humus is organic matter reduced until it can break down no further. In this state of evolution its appearance is unified. Commonly known as topsoil, humus is essential for all life. It creates fertile terrain for new growth, strengthens immunity and offers nutrients needed for soil organisms to regenerate.**
 
 ![Pro-biotic Fluffy Soil](./bokashiImages/fluffyBokashiSoil_web.jpg)
 Pro-biotic fluffy soil.
@@ -28,7 +34,7 @@ Pro-biotic fluffy soil.
 **Pro-biotic Soul Food For The Soil.**
 Bokashi is a Japanese term meaning fermented organic matter and refers to a 2-step method of ***indoor soil building*** that uses beneficial micro-organisms to quickly ferment many types of organic matter including food remnants, fruit, vegetables, meat, dairy and bread.
 
-Although the terms humus and compost are informally used interchangeably, they are distinct soil components with different origins; humus is created through anaerobic fermentation, while compost is the result of aerobic decomposition. This is the very important difference between composting and bokashi method. There is no purification or desegregation happening here. Bokashi is working symbiotically with nature to accelerate the process using beneficial microbes. 
+Although the terms humus and compost are informally used interchangeably, they are distinct soil components with different origins; humus is created through anaerobic fermentation, while compost is the result of aerobic decomposition. This is the very important difference between composting and bokashi method. There is no purification or desegregation happening here. Bokashi is pro-biotic, working symbiotically with nature to accelerate the process using beneficial microbes. 
 
 ***The Soil Is A Garden.***
 Bokashi conserves water in the ground, nutrients are less prone to leaching and run-off because the organic nutrients literally are the soil after Bokashi fermentation is complete. Humus soils are not as water soluble and less prone to leaching away with watering and run-off after rains.
