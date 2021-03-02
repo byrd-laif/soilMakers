@@ -4,22 +4,23 @@ date: 2021-02-28
 ---
 
 # Bio*Philia* Living Design ~ Learning to live in the light of Nature.
+(*Proof of concept Creative ecoLiving Oct 2016 - Jan 2020*)
 
-*Creating a symbiotic habitat for the individual as a _biological organism in the _built environment within the _biophysical environment.*
+**Creating a symbiotic habitat for the individual as a *biological organism* in the *built environment* within the *biophysical environment.***
 
 Civilized living; life-giving and life-sustaining with a high degree of refinement and comfort. Adaptable to all practical needs of life within an attractive built environment. ***Curated to allow enjoyment of nature as freely as possible.***
 
-## *The symbiotic relationship between Wo-Man and environment was highlighted, not human and 'things'.
+## *The symbiotic relationship between Wo-Man and environment is highlighted, not human and 'things'.*
 
-Wo-Men have an inherited need to _connect to nature and other biotic forms due to their *Evolutionary Dependence* on it for *Survival* and *personal fulfillment.* This is the human birth wright.
+Wo-Men have an inherited need to connect to nature and other biotic forms due to their *Evolutionary Dependence* on it for *Survival* and *Personal Fulfillment.* This is the human birth wright.
 
-*Naturally tap into the abundant emotions of joy, grace, awe, wholeness, passion and compassion that are experienced from beauty in nature, an archaic revival of Wo-Mans Gaian connection.*
+*Naturally tap into the abundant emotions of joy, grace, awe, wholeness, passion and compassion that are experienced from beauty in nature. An archaic revival of Wo-Mans symbiotic Gaian connection, honoring the feminine.*
 
 ### *Knowledge of the 'symbiotic evolutionary experience' and theory are shared here.**
 
 **An effort to reach ones own potential and help others do so in the process.**
 
-#### *The way out is a personal responsibility, the way out is in the soil. When the soil is healed the soul follows.* 
+#### *The way out is a personal responsibility, the way out is in the soil. When the soil is healed the soul follows.*
 
 *It's time to call home.* 
 *To act and that act to transfer through nature.*
@@ -31,16 +32,17 @@ Wo-Men have an inherited need to _connect to nature and other biotic forms due t
 
 Designing and creating symbiotic living environments that support, restore and regenerate both the physical body and the environment (earth body) have positive effects on the health of a population as a whole, not just the individual within the living design.
 
-**Vivarium**
-A vivarium (Latin, literally for "place of life"; plural: vivaria or vivariums) is an area, usually enclosed, for keeping and raising animals or plants for observation or research. Often, a portion of the ecosystem for a particular species is simulated on a smaller scale, with controls for environmental conditions.
+**Vivarium**- (Latin, literally for "place of life"; plural: vivaria or vivariums) is an area, usually enclosed, for keeping and raising animals or plants for observation or research. Often, a portion of the ecosystem for a particular species is simulated on a smaller scale, with controls for environmental conditions.
 
 #### The aim; to harmonize the Natural World with the Modern World.
 
-Mind, Body, Earth- Anima Mundi (World Soul) Symbiotic Connections. An enchanted sensibility can be strategically cultivated to *'Capitalize On The Use Of The Senses To Create Change'.*
+Mind, Body, Earth; Anima Mundi (world soul) Symbiotic Connections. 
+
+An enchanted sensibility can be strategically cultivated to ***'Capitalize On The Use Of The Senses To Create Change'.***
 
 Physical body is the placebo; the mind’s capacity to influence bodily functions and symptoms. 
 
-Re-establishing and encouraging healthy symbiotic connections with nature through sensory experiences, interactions, movement, and hands-on activities. Allowing the brain to establish new, more productive patterns.
+Re-establishing and encouraging healthy symbiotic connections with nature through sensory experiences, interactions, movement, and hands-on activities. Allowing the brain and body to establish new, more productive patterns.
 
 Inventing a new universe to live in, a universe of possibility. A place where people are continually discovering how they create their reality, and how they can change it.
 
@@ -50,7 +52,7 @@ Inventing a new universe to live in, a universe of possibility. A place where pe
 
 Due to the intermingling of the various ethnicities and religions that arrived on its shores, George Town acquired a large eclectic assortment of Colonial and Asian architectural styles. It also gained a reputation as gastronomic paradise. 
 
-The Vivarium, central to many George Town attractions and just 500 meters from "Link Bike", a public bike rental station. Pulau Tikus Market/Hawker Center: 1.2km, Botanical Garden: 3.2km and UNESCO World Heritage Site: 2.6km. 
+The Vivarium, central to many George Town attractions and just 500 meters from "Link Bike" a public bike rental station. Pulau Tikus Market/Hawker Center: 1.2km, Botanical Garden: 3.2km and UNESCO World Heritage Site: 2.6km. 
 
 **The Neighborhood ~ Dunn Road**
 
@@ -58,37 +60,40 @@ The surrounding low density neighborhood is tranquil with many large trees, and 
 
 #### The Building and Property
 
-**Dunn House** is a freehold, 3-story residential apartment building with just 15 exclusive units, each 1230 square feet in size. Dunn House is one of the pioneering boutique developments of George Town, Penang. 
+**Dunn House** is a freehold, 3-story residential apartment building with just 15 exclusive units, each 1230 square feet in size. Dunn House is one of the pioneering boutique developments of George Town, Penang.
 
-In October 2015 residency was privately secured for one of the third floor units, permission had already been gained from the building management and residents for a food garden on the property that was already underway.
 
-#### *The Vivarium ~ Place of Life* was located on the third floor, a north-facing three bedroom unit.
+#### *The Vivarium ~ place of life*
 
-The unique design of the boutique residence offers each condo three outside walls with large opening garden windows. Due to this design residence enjoy a wonderful open feel and fantastic cross breeze. A conscious decision to enjoy the smell, sound and feel of an A/C free environment was made (a bold move at 5 degrees north of the equator).
+In October 2016 occupancy was privately secured for one of the third floor corner units, north-facing with three bedrooms. Permission had already been gained from the building management and residents for a food garden on the property that was already underway.
+
+The unique design of the boutique residence offers each corner condo, three outside walls with large opening garden windows. Due to this design the Vivarium enjoyed a wonderful open feel and fantastic cross breeze. A conscious decision to experience the smell, sound and feel of an A/C free environment was made (a bold move at 5 degrees north of the equator).
 
 Intentional privacy screening was installed to allows guests to open bedroom doors and take advantage of the natural flow of fresh air. Jute window covers where installed to provide natural air-conditioning. Additionally an evaporative cooler was used in the common area that helped in the creation of a pleasant micro climate.
 
-**The Private Medicinal Food Garden;** boasted over 27 large 5 gallon (or larger) containers located outside all bedroom windows, as well as 22+ clay pots on the balcony. Nearly all plants being edible, medicinal or functional. Besides an assortment of herbs, aloe plants, and experimental seedlings like Durian the garden was home to 23 Moringa oleifera trees, Papaya trees, Coconut seedings, Sacha inchi vines and a passion fruit vine (that tried to take over the laundry wire) were among the many plants. It became difficult to catalog the ever changing garden. Growing a diverse garden is part of what makes it a pleasure and easy to enjoy an eco-responsible lifestyle. The gardens of the Vivarium, once established, were able to provided all nutritional requirements. (More details on plant selection and care will follow in a separate post.) 
+**The Private Medicinal Food Garden;** boasted over 27 large 5 gallon (or larger) containers located outside all bedroom windows, as well as 22+ clay pots on the balcony. Nearly all plants being edible, medicinal or functional. Besides an assortment of herbs, aloe plants, and experimental seedlings like Durian the garden was home to 23 Moringa oleifera trees, Papaya trees, Coconut seedlings, Sacha inchi vines and a passion fruit vine (that tried to take over the laundry wire) where among the many plants. It became difficult to catalog the ever changing garden. Growing a diverse garden is part of what makes it a pleasure and easy to enjoy an Eco-responsible lifestyle. The gardens of the Vivarium, once established, was able to provided all nutritional requirements. (More details on plant selection and care will follow in a separate post.) 
 
 All rooms having several opening windows with large concrete window boxes provided ample space for gardens, easy access and beautiful ambience. The windows being covered in jute became gardens themselves.
 
-Guests were offered garden watering responsibility for the duration of their stay and were encouraged to use the in-house eco friendly body and home care products. Bathrooms had bidet water hose installed and small cotton towels were provided in place of toilet paper.
+Guests where offered garden care responsibilities and to participate in any activities that may have been happening at the time. Guests where also encouraged to use the in-house Eco friendly body and home care products. Bathrooms had bidet water hose installed and small cotton towels were provided in place of toilet paper.
 
 Rooms had low voltage LED lighting providing a pleasant healthy light, a large ceiling fan, and mosquito net to cover the bed.
 
 Kitchen was well supplied for preparing modest meals. Washing machine was locate off the kitchen. Drinking water was arranged for delivery and offered to guests at market rate.
 
-This was a shared private residence. At times the entire space was made available, mostly there was a live in care-taker/co-host that helped the project literally stay alive, always self selected and in harmony with the concept. Guests where offered laundry service and a small 'A La Carte Menu' was also available for a modest fee.
+This was a shared private residence. At times the entire space was made available, mostly there was a live in host (curator) or co-host that helped the project literally stay alive, always self selected and in harmony with the concept. Guests where offered laundry service and a small 'A La Carte Menu' was also available for a modest fee.
+
+**Marketing**
 
 The Vivarium experience was marketed to "Creative Eco-Conscious Travelers" using Airbnb and Workaway platforms with a small team of dedicated local friends that helped make it all possible.
 
-Guests joined a journey of discovery as the Vivarium evolved and provided a space to share solutions to everyday environmental impacts; Bokashi soil building and pro-biotic enzyme cleaners were a large part of keeping the ecological footprint positive. This knowledge was freely shared to inquiring guests.
+Guests joined a journey of discovery as the Vivarium co-evolved and provided a space to share solutions to everyday environmental impacts; Bokashi soil building and pro-biotic enzyme cleaners were a large part of keeping the ecological footprint positive. This knowledge was freely shared to inquiring guests.
 
 Every stay mattered to this self funded project, contributed and kept this creative living eco space alive, evolving and available to experience.
 
-**Vivarium Living** - The decor was handcrafted from natural bamboo, wood, coconut and rattan. Handmade textiles of organic cotton, silk and hemp decorated the walls.
+**Vivarium LifeStyle** - The decor was handcrafted from natural bamboo, wood, coconut and rattan. Handmade textiles of organic cotton, silk and hemp decorated the walls.
 
-Living room was an open shared space, with beautiful cooling white marble floors, very spacious for any kind of body work. The furniture was locally custom built and designed to encourage healthy body movement, to relax and/or work. Space was ample to enjoy a tea on the patio and experience the company of visiting birds, that were always around, singing, exploring and foraging in the gardens that surrounded the unit.
+Living room was an open shared space, with beautiful cooling white marble floors, very spacious for any kind of body work. The furniture was locally custom built and designed to encourage healthy body movement, to relax and/or work. Space was ample to enjoy a tea on the patio and experience the company of visiting birds, that where always around, singing, exploring and foraging in the gardens that surrounded the unit.
 
 #### Bedroom Options
 
@@ -96,15 +101,13 @@ Living room was an open shared space, with beautiful cooling white marble floors
 
 **Queen master bedroom** featured a 4pc ensuite, queen size bed, custom made Polynesian style wood platform and dedicated evaporative cooler. Spacious, even with luggage and two guests in the room one could still easily enjoy yoga. The private attached bathroom has a large vanity, mirror, sink, toilet, small window and full size bathtub with shower. This bathroom did not have hot water, for a hot shower guests accessed the shared 3 piece bathroom just outside the room. This room also featured a dedicated evaporative cooler, the addition of essential oils as part of the experience was offered.
 
-**Double bedroom** featured a large corner window garden, natural wood parquet floor and two coconut tatami mats, each on there own custom made Polynesian style wood platform. Two large open closets for easy access with plenty of room to hang clothes.
-
-**Single bedroom** featured a corner window garden, natural wood parquet floor and a single coconut tatami mat on a custom made Polynesian style wood platform. A single large open closet for easy access and plenty of room to hang clothes.
+**Double and Single Bedrooms:** each room featured a large corner window garden, natural wood parquet flooring and coconut tatami mats, each on there own custom made Polynesian style wood platform. Two large open custom design closets (double room) and a single large open custom design closet (single room) for easy access with plenty of room to hang clothes.
 
 Coconut tatami mats offer spinal support, are naturally breathable and recommended for those that suffer allergies. 
 
 **Shared bathroom** provide a mirror above the sink, toilet and standing shower with hot water, located just outside the bedrooms.
 
-#### Vivarium Guidelines
+**Vivarium LifeStyle Guidelines**
 
 The Vivarium was a shoe free environment, guests where asked to leave outdoor shoes at the secure entrance to the vivarium.
 
@@ -114,15 +117,15 @@ Guests where asked too leave windows open as much as possible for nice air flow 
 
 Guest where offered to participate during their stay and refrain from using personal care and body products that contain chemicals, artificial scents and other harmful agents.
 
-**Guest access**
+**Guest Access**
 
-Guests had access to the spacious living/dinning rooms. The kitchen was generally not open to guest use.
+Guests had access to the spacious living/dinning rooms. The kitchen was generally not open to guest use, fridge access was made available by request.
 
-**Interaction with guests**
+**Interaction with Guests**
 
-Host/co-host were often around and someone was always contactable to help with anything guests needed. Host/co-hosts alike all loved good conversation with respect of guest privacy, engagement was at the discretion of the guest.
+Host and co-host were often around and someone was always contactable to help with anything guests needed. Host and co-hosts alike all loved good conversation with respect of guest privacy, engagement was at the discretion of the guest.
 
-**Other things to note**
+**Other things to note:**
 
 Meals could be arranged.
 Drinking water was available for purchase in house.
