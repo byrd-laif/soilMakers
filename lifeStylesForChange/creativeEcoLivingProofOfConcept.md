@@ -16,7 +16,7 @@ Wo-Men have an inherited need to connect to nature and other biotic forms due to
 
 *Naturally tap into the abundant emotions of joy, grace, awe, wholeness, passion and compassion that are experienced from beauty in nature. An archaic revival of Wo-Mans symbiotic Gaian connection, honoring the feminine.*
 
-### *Knowledge of the 'symbiotic evolutionary experience' and theory are shared here.**
+### *Knowledge of the 'symbiotic evolutionary experience' and theory are shared here.*
 
 **An effort to reach ones own potential and help others do so in the process.**
 
