@@ -79,4 +79,4 @@
 #### Connect ~ Ask a question or book an event ...
 [Contact Direct on Matrix](https://matrix.to/#/!ibYXXCkubbZiWtkmhX:matrix.org?via=matrix.org)
 
-!(./eventGallery/bokashiProgram_web.jpg)
+![Bokashi Program](./eventGallery/bokashiProgram_web.jpg)
