@@ -6,7 +6,9 @@ date: 2021-02-28
 # Bio*Philia* Living Design ~ Learning to live in the light of Nature.
 (*Proof of concept: Oct 2016 - Jan 2020*)
 
-**The cultivation of a symbiotic habitat for the individual as a *biological organism* in the *built environment* within the *biophysical environment.***
+***The cultivation of a symbiotic habitat for the individual as a *biological organism* in the *built environment* within the *biophysical environment.***
+
+Learning to catalogue experiences, the sources in the natural environment, of positive emotional states that humans experience, then recreate them in the built and cultivated environment to enhance emotional, mental, physical and biological health.
 
 Civilized living; life-giving and life-sustaining with a high degree of refinement and comfort. Adaptable to all practical needs of life within an attractive built environment. ***Curated to allow enjoyment of nature as freely as possible.***
 
@@ -15,6 +17,14 @@ Civilized living; life-giving and life-sustaining with a high degree of refineme
 Wo-Men have an inherited need to connect to nature and other biotic forms due to their *Evolutionary Dependence* on it for *Survival* and *Personal Fulfillment.* This is the human birth wright.
 
 *Naturally tap into the abundant emotions of joy, grace, awe, wholeness, passion and compassion that are experienced from beauty in nature. An archaic revival of Wo-Mans symbiotic Gaian connection, honoring the feminine.*
+
+Using the symbiotic relationship with 'Earth' as a path of discovery into the unique characteristics of intentional independent habitats, that not only can influence a spontaneous therapeutic act but also can be used by the designer to open; they are dynamic, adaptable and can be experienced, offering a safe space and the possibility for trying out inventive solutions and transformation.
+
+Psychobiology, where mind meets matter. The interaction between bio-logical systems and behavior.
+
+Healing environments allow one to draw emotional support from their settings through the Symbiotic Energy, the living energy of the space. One then feels free to move around and interact unselfconsciously, to combine ones life with the life of the living systems and elements within the built space. Achieved by bringing in a number of high quality visual and intuitive interactions among the systems and elements of a space and its users. A living design built upon the inherent intuitive 'biophilic' response to built forms, natural settings and systems. Designed to generate healthy interactions by encouraging their spontaneous occurrence. New ways of thinking, seeing and relating to the Natural World can be expanded, experienced. Causing a total shift of posture, perceptions, beliefs, and thought processes. Transforming ones relationship with the Natural World.
+
+Designing and creating symbiotic living environments that support, restore and regenerate both the physical body and the environment (earth body) have positive effects on the health of a population as a whole, not just the individual within the living design.
 
 ### *Knowledge of the 'symbiotic evolutionary experience' and theory are shared here.*
 
@@ -30,13 +40,11 @@ Wo-Men have an inherited need to connect to nature and other biotic forms due to
 
 *An interactive space curated to explore, learn, reflect, ... on how Wo-Man interact, impact and live in their personal environments; homes, work, travel, ..., spaces.*
 
-Designing and creating symbiotic living environments that support, restore and regenerate both the physical body and the environment (earth body) have positive effects on the health of a population as a whole, not just the individual within the living design.
-
 **Vivarium**- (Latin, literally for "place of life"; plural: vivaria or vivariums) is an area, usually enclosed, for keeping and raising animals or plants for observation or research. Often, a portion of the ecosystem for a particular species is simulated on a smaller scale, with controls for environmental conditions.
 
 #### The aim; to harmonize the Natural World with the Modern World.
 
-Mind, Body, Earth; Anima Mundi (world soul) Symbiotic Connections. 
+Mind, Body, Earth; Anima Mundi (world soul) Symbiotic Connections. Creating live and dynamic, open independent spaces that feel as they have existed long before ones arrival and will remain long after their depart.
 
 An enchanted sensibility can be strategically cultivated to ***'Capitalize On The Use Of The Senses To Create Change'.***
 
