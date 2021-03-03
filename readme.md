@@ -62,18 +62,7 @@
 
 #### Explore
 
-[**BioPhilia Living Design - Urban Sustainable Eco-Living Proof of Concept**](./lifeStylesForChange/creativeEcoLivingProofOfConcept.md)
-
-[**Public Profile- *Proof of Concept* & Reviews**](https://www.airbnb.com/users/show/3774308)
-
-[***Vivarium Salon Circle*** ~ Singing bowl gathering video compilation](https://youtu.be/7zCHFSwraeY)
-
-[Private Tibetan singing bowl session at the ***Vivarium Salon ~ place of life***](https://youtu.be/ypoLV3G9vRU)
-
-.......
-
-#### Connect ~ Ask a question, join or facilitate a Vivarium Salon Circle/Program.
-[Contact Direct on Matrix](https://matrix.to/#/!ibYXXCkubbZiWtkmhX:matrix.org?via=matrix.org)
+[**BioPhilia Living Design - Urban Sustainable Eco-Living *Proof of Concept***](./bioPhiliaLivingDesignProofOfConcept/creativeEcoLivingProofOfConcept.md)
 
 #### Programs/Resources
 
@@ -87,3 +76,7 @@
 
 - [The Alchemy Of Food Preservation - Cultivating Pro-biotic Functional Foods](./lifeStylesForChange/lactoFermentbBasicMethod.md)
 
+#### Connect ~ Ask a question or book an event ...
+[Contact Direct on Matrix](https://matrix.to/#/!ibYXXCkubbZiWtkmhX:matrix.org?via=matrix.org)
+
+!(./eventGallery/bokashiProgram_web.jpg)
