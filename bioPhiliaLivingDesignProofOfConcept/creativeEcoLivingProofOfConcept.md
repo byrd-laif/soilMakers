@@ -6,7 +6,9 @@ date: 2021-02-28
 # Bio*Philia* Living Design ~ Learning to live in the light of Nature.
 (*Proof of concept: Oct 2016 - Jan 2020*)
 
-***The cultivation of a symbiotic habitat for the individual as a *biological organism* in the *built environment* within the *biophysical environment.***
+**The cultivation of a symbiotic habitat for the individual as a *biological organism* in the *built environment* within the *biophysical environment.***
+
+## *The symbiotic relationship between Wo-Man and environment is highlighted, not human and 'things'.*
 
 Learning to catalogue experiences, the sources in the natural environment, of positive emotional states that humans experience, then recreate them in the built and cultivated environment to enhance emotional, mental, physical and biological health.
 
@@ -16,23 +18,21 @@ Civilized living; life-giving and life-sustaining with a high degree of refineme
 
 ***Curated to allow enjoyment of nature as freely as possible.***
 
-## *The symbiotic relationship between Wo-Man and environment is highlighted, not human and 'things'.*
-
 Wo-Men have an inherited need to connect to nature and other biotic forms due to their *Evolutionary Dependence* on it for *Survival* and *Personal Fulfillment.* This is the human birth wright.
 
-![*Naturally tap into the abundant emotions, honoring the feminine.*](./vivariumGeorgeTownGallery/VivariumMasterBed/vivariumMasterBedWeb.JPG)
+![*Naturally tap into the abundant emotions, honoring the feminine.*](./vivariumGeorgeTownGallery/vivariumPatio/vivariumGTPatioBirdweb.JPG)
 
-#### *Naturally tap into the abundant emotions of joy, grace, awe, wholeness, passion and compassion that are experienced from beauty in nature. An archaic revival of Wo-Mans symbiotic Gaian connection, honoring the feminine.*
+#### *Naturally tap into the abundant emotions of joy, grace, awe, wholeness, passion and compassion that are experienced from beauty in nature. An archaic revival of Wo-Mans symbiotic microbial Gaian connection, honoring the feminine.*
 
 Using the symbiotic relationship with 'Earth' as a path of discovery into the unique characteristics of intentional independent habitats, that not only can influence a spontaneous therapeutic act but also can be used by the designer to open; they are dynamic, adaptable and can be experienced, offering a safe space and the possibility for trying out inventive solutions and transformation.
 
-Psychobiology, where mind meets matter. The interaction between bio-logical systems and behavior.
+#### *Psychobiology, where mind meets matter. The interaction between bio-logical systems and behavior.*
 
 ![Hanging Gardens](./vivariumGeorgeTownGallery/vivariumWindowHanging/vivariumGTDoubleWindowViewWeb.JPG)
 
-Healing environments allow one to draw emotional support from their settings through the Symbiotic Energy, the living energy of the space. One then feels free to move around and interact unselfconsciously, to combine ones life with the life of the living systems and elements within the built space. Achieved by bringing in a number of high quality visual and intuitive interactions among the systems and elements of a space and its users. A living design built upon the inherent intuitive 'biophilic' response to built forms, natural settings and systems. Designed to generate healthy interactions by encouraging their spontaneous occurrence. New ways of thinking, seeing and relating to the Natural World can be expanded, experienced. Causing a total shift of posture, perceptions, beliefs, and thought processes. Transforming ones relationship with the Natural World.
+Healing environments allow one to draw emotional support from their settings through the Symbiotic Energy, the living energy of the space. One then feels free to move around and interact unselfconsciously, to combine ones life with the life of the living systems and elements within the built space. Achieved by bringing in a number of high quality visual and intuitive interactions among the bio-logical systems and elements of a space and its users. A living design built upon the inherent intuitive 'biophilic' response to built forms, natural settings and systems. Designed to generate healthy interactions by encouraging their spontaneous occurrence. New ways of thinking, seeing and relating to the Natural World can be expanded, experienced. Causing a total shift of posture, perceptions, beliefs, and thought processes. Transforming ones relationship with the Natural World.
 
-Designing and creating symbiotic living environments that support, restore and regenerate both the physical body and the environment (earth body) have positive effects on the health of a population as a whole, not just the individual within the living design.
+#### *Designing and creating symbiotic living environments that support, restore and regenerate both the physical body and the environment (earth body) have positive effects on the health of a population as a whole, not just the individual within the living design.*
 
 ![Authentic Living](./vivariumGeorgeTownGallery/vivariumLivingRoom/livingRoomCandidCafeWeb.jpg)
 
@@ -129,7 +129,7 @@ Every stay mattered to this self funded project, contributed and kept this creat
 
 **Vivarium LifeStyle** - The decor was handcrafted from natural bamboo, wood, coconut and rattan. Handmade textiles of organic cotton, silk and hemp decorated the walls.
 
-![Patio Living](./vivariumGeorgeTownGallery/vivariumLivingRoom/vivariumGTLivingroomPatioweb.jpg)
+![Patio Living](./vivariumGeorgeTownGallery/vivariumLivingRoom/vivariumGTLivingroomYogaweb.jpg)
 
 Living room was an open shared space, with beautiful cooling white marble floors, very spacious for any kind of body work. The furniture was locally custom built and designed to encourage healthy body movement, to relax and/or work. Space was ample to enjoy a tea on the patio and experience the company of visiting birds, that where always around, singing, exploring and foraging in the gardens that surrounded the unit.
 
