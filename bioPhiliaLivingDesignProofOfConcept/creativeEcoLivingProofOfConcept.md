@@ -12,25 +12,29 @@ Learning to catalogue experiences, the sources in the natural environment, of po
 
 Civilized living; life-giving and life-sustaining with a high degree of refinement and comfort. Adaptable to all practical needs of life within an attractive built environment.
 
-![***Curated to allow enjoyment of nature as freely as possible.***](./vivariumGeorgeTownGallery/vivariumLivingRoom/vivariumLiving02Web.JPG)
+![Curated to allow enjoyment of nature as freely as possible.](./vivariumGeorgeTownGallery/vivariumLivingRoom/vivariumLiving02Web.JPG)
+
+***Curated to allow enjoyment of nature as freely as possible.***
 
 ## *The symbiotic relationship between Wo-Man and environment is highlighted, not human and 'things'.*
 
 Wo-Men have an inherited need to connect to nature and other biotic forms due to their *Evolutionary Dependence* on it for *Survival* and *Personal Fulfillment.* This is the human birth wright.
 
-![*Naturally tap into the abundant emotions of joy, grace, awe, wholeness, passion and compassion that are experienced from beauty in nature. An archaic revival of Wo-Mans symbiotic Gaian connection, honoring the feminine.*](./vivariumGeorgeTownGallery/VivariumMasterBed/vivariumMasterBedWeb.JPG)
+![*Naturally tap into the abundant emotions, honoring the feminine.*](./vivariumGeorgeTownGallery/VivariumMasterBed/vivariumMasterBedWeb.JPG)
+
+#### *Naturally tap into the abundant emotions of joy, grace, awe, wholeness, passion and compassion that are experienced from beauty in nature. An archaic revival of Wo-Mans symbiotic Gaian connection, honoring the feminine.*
 
 Using the symbiotic relationship with 'Earth' as a path of discovery into the unique characteristics of intentional independent habitats, that not only can influence a spontaneous therapeutic act but also can be used by the designer to open; they are dynamic, adaptable and can be experienced, offering a safe space and the possibility for trying out inventive solutions and transformation.
 
 Psychobiology, where mind meets matter. The interaction between bio-logical systems and behavior.
 
-!(./vivariumGeorgeTownGallery/vivariumWindowHanging/vivariumGTDoubleWindowViewWeb.JPG)
+![Hanging Gardens](./vivariumGeorgeTownGallery/vivariumWindowHanging/vivariumGTDoubleWindowViewWeb.JPG)
 
 Healing environments allow one to draw emotional support from their settings through the Symbiotic Energy, the living energy of the space. One then feels free to move around and interact unselfconsciously, to combine ones life with the life of the living systems and elements within the built space. Achieved by bringing in a number of high quality visual and intuitive interactions among the systems and elements of a space and its users. A living design built upon the inherent intuitive 'biophilic' response to built forms, natural settings and systems. Designed to generate healthy interactions by encouraging their spontaneous occurrence. New ways of thinking, seeing and relating to the Natural World can be expanded, experienced. Causing a total shift of posture, perceptions, beliefs, and thought processes. Transforming ones relationship with the Natural World.
 
 Designing and creating symbiotic living environments that support, restore and regenerate both the physical body and the environment (earth body) have positive effects on the health of a population as a whole, not just the individual within the living design.
 
-!(./vivariumGeorgeTownGallery/vivariumLivingRoom/livingRoomCandidCafeWeb.jpg)
+![Authentic Living](./vivariumGeorgeTownGallery/vivariumLivingRoom/livingRoomCandidCafeWeb.jpg)
 
 ### *Knowledge of the 'symbiotic evolutionary experience' and theory are shared here.*
 
@@ -41,7 +45,7 @@ Designing and creating symbiotic living environments that support, restore and r
 *It's time to call home.* 
 *To act and that act to transfer through nature.*
 
-!(./vivariumGeorgeTownGallery/vivariumLivingRoom/vivariumLiving015Web.JPG)
+![Home](./vivariumGeorgeTownGallery/vivariumLivingRoom/vivariumLiving015Web.JPG)
 
 ***Welcome to the***
 #### *Vivarium ~ place of life*
@@ -50,17 +54,21 @@ Designing and creating symbiotic living environments that support, restore and r
 
 **Vivarium**- (Latin, literally for "place of life"; plural: vivaria or vivariums) is an area, usually enclosed, for keeping and raising animals or plants for observation or research. Often, a portion of the ecosystem for a particular species is simulated on a smaller scale, with controls for environmental conditions.
 
-![**The aim; to harmonize the Natural World with the Modern World.**](./vivariumGeorgeTownGallery/vivariumLivingRoom/vivariumGTLivingroomPatioweb.jpg)
+![Harmonize with the Natural World.](./vivariumGeorgeTownGallery/vivariumLivingRoom/vivariumGTLivingroomPatioweb.jpg)
 
-Mind, Body, Earth; Anima Mundi (world soul) Symbiotic Connections. Creating live and dynamic, open independent spaces that feel as they have existed long before ones arrival and will remain long after their depart.
+#### *The aim; to harmonize the Natural World with the Modern World.*
 
-![An enchanted sensibility can be strategically cultivated to ***'Capitalize On The Use Of The Senses To Create Change'.***](./vivariumGeorgeTownGallery/VivariumDouble/moringaRoomCandid01Web.jpg)
+*Mind, Body, Earth; Anima Mundi (world soul) Symbiotic Connections. Creating live and dynamic, open independent spaces that feel as they have existed long before ones arrival and will remain long after their depart.*
+
+![An Enchanted Sensibility To Create Change](./vivariumGeorgeTownGallery/VivariumDouble/moringaRoomCandid01Web.jpg)
+
+An enchanted sensibility can be strategically cultivated to ***'Capitalize On The Use Of The Senses To Create Change'.***
 
 Physical body is the placebo; the mind’s capacity to influence bodily functions and symptoms. 
 
 Re-establishing and encouraging healthy symbiotic connections with nature through sensory experiences, interactions, movement, and hands-on activities. Allowing the brain and body to establish new, more productive patterns.
 
-!(./vivariumGeorgeTownGallery/vivariumHarvest/vivariumLivingHarvest01Web.JPG)
+![Harvest](./vivariumGeorgeTownGallery/vivariumHarvest/vivariumLivingHarvest01Web.JPG)
 
 Inventing a new universe to live in, a universe of possibility. A place where people are continually discovering how they create their reality, and how they can change it.
 
@@ -87,19 +95,19 @@ In October 2016 occupancy was privately secured for one of the third floor corne
 
 The unique design of the boutique residence offers each corner condo, three outside walls with large opening garden windows. Due to this design the Vivarium enjoyed a wonderful open feel and fantastic cross breeze. A conscious decision to experience the smell, sound and feel of an A/C free environment was made (a bold move at 5 degrees north of the equator).
 
-!(./vivariumGeorgeTownGallery/VivariumMasterBed/vivariumMasterPrivacyScreenEntranceWeb.JPG)
+![Private](./vivariumGeorgeTownGallery/VivariumMasterBed/vivariumMasterPrivacyScreenEntranceWeb.JPG)
 
 Intentional privacy screening was installed to allows guests to open bedroom doors and take advantage of the natural flow of fresh air. Jute window covers where installed to provide natural air-conditioning. Additionally an evaporative cooler was used in the common area that helped in the creation of a pleasant micro climate.
 
-!(./vivariumGeorgeTownGallery/vivariumPatio/patioWorkVivarium.jpg)
+![Work](./vivariumGeorgeTownGallery/vivariumPatio/patioWorkVivarium.jpg)
 
 **The Private Medicinal Food Garden;** boasted over ***27 large 5 gallon (or larger) containers*** located outside all bedroom windows, as well as ***22+ clay pots*** on the balcony. Nearly all plants being edible, medicinal or functional. Besides an assortment of herbs, aloe plants, and experimental seedlings like Durian the garden was home to 23 Moringa oleifera trees, Papaya trees, Coconut seedlings, Sacha inchi vines and a passion fruit vine (that tried to take over the laundry wire) where among the many plants. It became difficult to catalog the ever changing garden. Growing a diverse garden is part of what makes it a pleasure and easy to enjoy an Eco-responsible lifestyle. The gardens of the Vivarium, once established, was able to provided all nutritional requirements. (More details on plant selection and care will follow in a separate post.)
 
-!(./vivariumGeorgeTownGallery/vivariumWindowHanging/vivariumKokedama01Web.jpg)
+![Kokedama](./vivariumGeorgeTownGallery/vivariumWindowHanging/vivariumKokedama01Web.jpg)
 
 All rooms having several opening windows with large concrete window boxes provided ample space for gardens, easy access and beautiful ambience. The windows being covered in jute became gardens themselves and where home to over ***40+ bamboo hanging planters and Kokedama*** (苔玉, in English, literally "moss ball") a ball of soil, covered with moss, held by being wrapped in coconut cord on which ferns and other medicinal plants grew.
 
-!(./vivariumGeorgeTownGallery/VivariumMasterBed/vivariumGTEcoDecoMaster01Web.JPG)
+![Eco Deco](./vivariumGeorgeTownGallery/VivariumMasterBed/vivariumGTEcoDecoMaster01Web.JPG)
 
 Guests where offered garden care responsibilities and to participate in any activities that may have been happening at the time. Guests where also encouraged to use the in-house Eco friendly body and home care products. Bathrooms had bidet water hose installed and small cotton towels were provided in place of toilet paper.
 
@@ -115,31 +123,31 @@ The Vivarium experience was marketed to "Creative Eco-Conscious Travelers" using
 
 Guests joined a journey of discovery as the Vivarium co-evolved and provided a space to share solutions to everyday environmental impacts; Bokashi soil building and pro-biotic enzyme cleaners were a large part of keeping the ecological footprint positive. This knowledge was freely shared to inquiring guests.
 
-!(./vivariumGeorgeTownGallery/vivariumPatio/vivariumEvolutionWeb.JPG)
+![Evolution](./vivariumGeorgeTownGallery/vivariumPatio/vivariumEvolutionWeb.JPG)
 
 Every stay mattered to this self funded project, contributed and kept this creative living eco space alive, evolving and available to experience.
 
 **Vivarium LifeStyle** - The decor was handcrafted from natural bamboo, wood, coconut and rattan. Handmade textiles of organic cotton, silk and hemp decorated the walls.
 
-!(./vivariumGeorgeTownGallery/vivariumLivingRoom/vivariumGTLivingroomPatioweb.jpg)
+![Patio Living](./vivariumGeorgeTownGallery/vivariumLivingRoom/vivariumGTLivingroomPatioweb.jpg)
 
 Living room was an open shared space, with beautiful cooling white marble floors, very spacious for any kind of body work. The furniture was locally custom built and designed to encourage healthy body movement, to relax and/or work. Space was ample to enjoy a tea on the patio and experience the company of visiting birds, that where always around, singing, exploring and foraging in the gardens that surrounded the unit.
 
-!(./vivariumGeorgeTownGallery/vivariumPatio/vivariumPatio01Web.JPG)
+![Relax in nature](./vivariumGeorgeTownGallery/vivariumPatio/vivariumPatio01Web.JPG)
 
 #### Bedroom Options
 
 *A peaceful nights sleep, a little sanctuary in the city, spacious and private.* All rooms included cotton linens and towels.
 
-!(./vivariumGeorgeTownGallery/VivariumMasterBed/vivariumGTEcoDecoMasterWeb.JPG)
+![Luxury is nature.](./vivariumGeorgeTownGallery/VivariumMasterBed/vivariumGTEcoDecoMasterWeb.JPG)
 
 **Queen master bedroom** featured a 4pc ensuite, queen size bed, custom made Polynesian style wood platform and dedicated evaporative cooler. Spacious, even with luggage and two guests in the room one could still easily enjoy yoga. The private attached bathroom has a large vanity, mirror, sink, toilet, small window and full size bathtub with shower. This bathroom did not have hot water, for a hot shower guests accessed the shared 3 piece bathroom just outside the room. This room also featured a dedicated evaporative cooler, the addition of essential oils as part of the experience was offered.
 
-!(./vivariumGeorgeTownGallery/VivariumDouble/vivariumDouble04Web.JPG)
+![Moringa Room](./vivariumGeorgeTownGallery/VivariumDouble/vivariumDouble04Web.JPG)
 
 **Double and Single Bedrooms:** each room featured a large corner window garden, natural wood parquet flooring and coconut tatami mats, each on there own custom made Polynesian style wood platform. Two large open custom design closets (double room) and a single large open custom design closet (single room) for easy access with plenty of room to hang clothes.
 
-!(./vivariumGeorgeTownGallery/vivariumSingle/vivariumSingleWeb.JPG)
+![Single](./vivariumGeorgeTownGallery/vivariumSingle/vivariumSingleWeb.JPG)
 
 Coconut tatami mats offer spinal support, are naturally breathable and recommended for those that suffer allergies. 
 
@@ -151,13 +159,13 @@ The Vivarium was a shoe free environment, guests where asked to leave outdoor sh
 
 Additionally guests where asked to please shower before laying in the bed, and not lay in the bed with street clothes on (being a hot climate in a shared living space this was a matter of personal requirement). 
 
-!(./vivariumGeorgeTownGallery/vivariumWindowHanging/vivariumGTWindowCoversDinning.jpg)
+![Eco Window Covers](./vivariumGeorgeTownGallery/vivariumWindowHanging/vivariumGTWindowCoversDinning.jpg)
 
 Guests where asked too leave windows open as much as possible for nice air flow and open the door of their room to enjoy and contribute to the flow of the whole space.
 
 Guest where offered to participate during their stay and refrain from using personal care and body products that contain chemicals, artificial scents and other harmful agents.
 
-!(./vivariumGeorgeTownGallery/vivariumLivingRoom/vivariumLivingroomLoungeweb.jpg)
+![Lounge](./vivariumGeorgeTownGallery/vivariumLivingRoom/vivariumLivingroomLoungeweb.jpg)
 
 **Guest Access**
 
