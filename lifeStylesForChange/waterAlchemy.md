@@ -8,6 +8,8 @@ date: 2018-08-13
 
 *Multi Purpose: Whole Body, Built Environment and *Earth Care* Products. Naturally; Anti-Bacterial, Anti-Fungal, Anti-Viral and a Natural Antiseptic.*
 
+![Enzyme Spa](./lifeStylesForChange/enzymeImages/enzymeWoodHempBrush.JPG)
+
 ## *Conservation as a consequence of production.*
 
 **Cultivate cultures that heal; Symbiotically clean, heal and support the whole body in a way that cleans, heals and supports the environment.** 
@@ -20,6 +22,8 @@ date: 2018-08-13
 Wo-Men connect threw water, the universal solvent. Water speaks it takes the knowledge of the leaf from the mountains to the sea, and the rain takes it up from the sea back to the mountains.
 
 Wo-Men don't have to abandon their 'modern' lives but they do have to protect the rivers.
+
+![Enzyme Spa Glass Brew](./lifeStylesForChange/enzymeImages/enzymeGlassBrew.jpg)
 
 ***Self-care that goes far beyond the self.* Symbiotically nourishing, fortifying and gentle. Remarkably enough the Physical Body and Mother Earth find natural healing benefits from this one easy process.***
 
@@ -34,6 +38,10 @@ Wo-Men don't have to abandon their 'modern' lives but they do have to protect th
 The microbes eat the sugars, digesting them and excrete metabolites. A detoxification and transfer of anti-nutrients into nutrients occurs, with nutrient enhancement and the creation of micro-nutrients. An abundance of LAB lactic acid bacteria, yeasts, and molds that produce enzymes, break down and alter the original foods. 
 
 Following fermentation, the natural anti-bacterial properties of fruit peels are further enhanced as organic substances are decomposed, yielding secondary metabolites known as bio-active compounds or phytochemicals. The process creates new amino acids, organic acids, and antioxidants that didn’t originally exist in the raw material, naturally optimized to provide the most nutrition.
+
+Like wine, sediment is normal and can be left in or allowed to settle for ease of separation.
+
+![Enzyme Spa Sun](./lifeStylesForChange/enzymeImages/enzymeFilteredSediment_web.jpg)
 
 **A pro-biotic power house is born.**
 The fermentation process naturally increases the bio-availability, making it so the physical body and Mother Earth are able to absorb the nutrients. 
@@ -135,6 +143,8 @@ Methane gas released from poorly disposed organic food waste can trap 21 times m
 
 ### *Clean Beauty Green Beauty*
 
+![bottle glass product](./lifeStylesForChange/enzymeImages/enzymeMarket.jpg)
+
 #### **Deliciously rich, gourmet food for the micro-biome of the skin. *Fermented ingredients are a supercharged turbo boost skincare routine.***
 
 **The lightweight essence is readily accepted and absorbed, immediately seeping deep into the skin, rich in antioxidants that decelerate the aging of cells. The fermentation process produces amino acids and peptides that promote healthy cellular renewal.**
@@ -148,6 +158,8 @@ Methane gas released from poorly disposed organic food waste can trap 21 times m
 Like AHAs it also helps with acne, blackheads, and whiteheads. Working to clear pores and control breakouts without stripping moisture levels. Gently removes dirt and oil without over-drying the skin, and helps protect skin from environmental aggressors.
 
 **A perfect balance for the most sensitive skin. Used as a *whole body* healing wash, moisturizer, serum or mask.**
+
+![bottle glass](./lifeStylesForChange/enzymeImages/proBioticEcoEnzymeGlass.jpg)
 
 #### *Functions*
 *What can be done with it:*
@@ -172,6 +184,8 @@ Like AHAs it also helps with acne, blackheads, and whiteheads. Working to clear 
 2. Organic food remnants: 3 parts
 3. Water: 10 parts
 
+![bottle enzyme](./lifeStylesForChange/enzymeImages/enzymeBottle.jpg)
+
 **Step 1:**
 - Fill container half way with water, leaving room for expansion and fresh fruit remnants (50% of the volume).
 
@@ -187,17 +201,25 @@ This is just a guideline, experiment and play with the ratio.
 
 Fermentation time & environment: 3 months minimum, from the time stopped adding food remnants. Store in a dark environment away from excessive heat.
 
+![filter](./lifeStylesForChange/enzymeImages/enzymeProcess05.jpg)
+
 **Step 5:**
 - Harvest Day! In a suitable size vessel with a suitable size strainer, separate the solids form the liquids. The filtered Eco-enzyme can be bottled and is ready for use. A portion of filtered solids can be used as a starter for the next batch, dried and used as a powdered fertilizer, add them to the [Bokashi](./soilAlchemy.md) bin, garden compost or turn them directly into the soil. Even dumping them down the toilet is perfectly fine.
+
+![enzyme bokashi](./lifeStylesForChange/enzymeImages/enzymeRemnatsBikashiBin_web.jpg)
 
 #### *TIPS and Details:*
 
 **Sugars**- For best results use molasses, brown sugar, jaggery or some similar sugar, it is full of minerals and will create a more rich product.
 
 **Separate kitchen remnants**, think aroma.
-Different organics have different benefits aromas and textures. Separate citrus fruits like Orange, Lemon, Lime and Pineapple into a dedicated bin, these create a fantastic and powerful cleaning enzyme. Other aromatics and medicinal plants like Ginger, Aloe Vera Lemongrass, Tea, ... can be added for a luxurious whole body healing wash product.
+Different organics have different benefits aromas and textures. Separate citrus fruits like Orange, Lemon, Lime and Pineapple into a dedicated bin, these create a fantastic and powerful cleaning enzyme. Other aromatics and medicinal plants and flowers such as Ginger, Aloe Vera Lemongrass, Tea, Plumeria, Rose ... can be added for a luxurious whole body healing wash product.
+
+![flowers](./lifeStylesForChange/enzymeImages/flowersPlumeria.jpg)
 
 **Use Airlocks for an anaerobic environment.** Keeping the ferment clean and free of insects. This is important for a nice functional product and for safety, **containers may burst if the gasses are not released.** Plastic containers are best suited for this reason. Repurposed plastic milk containers are perfect.
+
+![air lock](./lifeStylesForChange/enzymeImages/airLock.jpg)
 
 It’s a great idea to have a catch-all bin for everything else like veggie scraps that is just purely 'compost' for the garden and drains. Or add these to the [Bokashi](./soilAlchemy.md) pro-biotic soil building bin.
 
@@ -210,6 +232,10 @@ It’s a great idea to have a catch-all bin for everything else like veggie scra
 - A white layer on the surface of Eco Enzyme is a sign that fermentation is healthy and underway. This is a natural and harmless Kahm yeast.
 - Label the ‘Start Date’ on the container.
 - The best Eco-Enzyme ferments are 3 months and longer, fermentation starts once the last organic ingredients are added into the container.
+
+**Micro fiber works great for catching this white 'kahm yeast' that naturally forms on the surface.**
+
+![enzyme filter with micro fiber](./lifeStylesForChange/enzymeImages/enzymeFineProcess08.jpg)
 
 ### *Using Eco-Enzyme*
 
@@ -225,6 +251,8 @@ Eco-Enzymes can be used safely at full strength, undiluted, on the most sensitiv
 - Laundry detergent, natural fabric softener - 1:500
 - Evaporative cooler - air freshener - 1:500
 - Insect replant and fertilizer for the garden - 1:500
+
+![enzyme with soap](./lifeStylesForChange/enzymeImages/enzymeFinish.jpg)
 
 *Adding 50ml of liquid store bought detergent/shampoo to 1000ml of Eco-Enzyme make a great concentrated de-greaser/cleaner/shampoo. Drastically reducing consumption and mitigating harmful effects. Perfect for dish washing, laundry, shampoo and body wash.*
 
@@ -256,4 +284,4 @@ A: If the fermentation is successful, the liquid will turn yellowish to brown an
 #### Connect ~ Ask a question or book an event ...
 [Contact Direct on Matrix](https://matrix.to/#/!ibYXXCkubbZiWtkmhX:matrix.org?via=matrix.org)
 
-
+![enzyme workshop](../soilSeekers/eventGallery/ecoEnzymeWorkshopGTweb.jpg)
