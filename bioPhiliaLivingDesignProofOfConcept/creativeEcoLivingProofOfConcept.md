@@ -30,7 +30,13 @@ Using the symbiotic relationship with 'Earth' as a path of discovery into the un
 
 ![Hanging Gardens](./vivariumGeorgeTownGallery/vivariumWindowHanging/vivariumGTDoubleWindowViewWeb.JPG)
 
-Healing environments allow one to draw emotional support from their settings through the Symbiotic Energy, the living energy of the space. One then feels free to move around and interact unselfconsciously, to combine ones life with the life of the living systems and elements within the built space. Achieved by bringing in a number of high quality visual and intuitive interactions among the bio-logical systems and elements of a space and its users. A living design built upon the inherent intuitive 'biophilic' response to built forms, natural settings and systems. Designed to generate healthy interactions by encouraging their spontaneous occurrence. New ways of thinking, seeing and relating to the Natural World can be expanded, experienced. Causing a total shift of posture, perceptions, beliefs, and thought processes. Transforming ones relationship with the Natural World.
+Healing environments allow one to draw emotional support from their settings through the Symbiotic Energy, the living energy of the space. One then feels free to move around and interact unselfconsciously, to combine ones life with the life of the living systems and elements within the built space. Achieved by bringing in a number of high quality visual and intuitive interactions among the bio-logical systems and elements of a space and its users. 
+
+![Open Space](./vivariumGeorgeTownGallery/vivariumLivingRoom/vivariumGTLivingroomRelaxWeb.JPG)
+
+A living design built upon the inherent intuitive 'biophilic' response to built forms, natural settings and systems. Designed to generate healthy interactions by encouraging their spontaneous occurrence. New ways of thinking, seeing and relating to the Natural World can be expanded, experienced. Causing a total shift of posture, perceptions, beliefs, and thought processes. Transforming ones relationship with the Natural World.
+
+![Peek](./vivariumGeorgeTownGallery/vivariumLivingRoom/vivariumGTLivingroomPeekweb.jpg)
 
 #### *Designing and creating symbiotic living environments that support, restore and regenerate both the physical body and the environment (earth body) have positive effects on the health of a population as a whole, not just the individual within the living design.*
 
@@ -109,7 +115,9 @@ All rooms having several opening windows with large concrete window boxes provid
 
 ![Eco Deco](./vivariumGeorgeTownGallery/VivariumMasterBed/vivariumGTEcoDecoMaster01Web.JPG)
 
-Guests where offered garden care responsibilities and to participate in any activities that may have been happening at the time. Guests where also encouraged to use the in-house Eco friendly body and home care products. Bathrooms had bidet water hose installed and small cotton towels were provided in place of toilet paper.
+Guests where offered garden care responsibilities and to participate in any activities that may have been happening at the time. Guests where also encouraged to use the in-house [Eco friendly body and home care products.](./lifeStylesForChange/waterAlchemy.md) Bathrooms had bidet water hose installed and small cotton towels were provided in place of toilet paper.
+
+![Master Bedroom](./vivariumGeorgeTownGallery/VivariumMasterBed/vivariumMasterBed01Web.JPG)
 
 Rooms had low voltage LED lighting providing a pleasant healthy light, a large ceiling fan, and mosquito net to cover the bed.
 
@@ -118,14 +126,18 @@ Kitchen was well supplied for preparing modest meals. Washing machine was locate
 This was a shared private residence. At times the entire space was made available, mostly there was a live in host (curator) or co-host that helped the project literally stay alive, always self selected and in harmony with the concept. Guests where offered laundry service and a small 'A La Carte Menu' was also available for a modest fee.
 
 **Marketing**
-
+vivariumMasterBed01Web.JPG
 The Vivarium experience was marketed to "Creative Eco-Conscious Travelers" using Airbnb and Workaway platforms with a small team of dedicated local friends that helped make it all possible. The Vivarium listings attained "super host" status on the Airbnb platform.
 
-Guests joined a journey of discovery as the Vivarium co-evolved and provided a space to share solutions to everyday environmental impacts; Bokashi soil building and pro-biotic enzyme cleaners were a large part of keeping the ecological footprint positive. This knowledge was freely shared to inquiring guests.
+[living-room](./vivariumGeorgeTownGallery/vivariumLivingRoom/vivariumGTLivingroomDinningweb.jpg)
+
+Guests joined a journey of discovery as the Vivarium co-evolved and provided a space to share solutions to everyday environmental impacts; [Bokashi soil building](./lifeStylesForChange/soilAlchemy.md) and [pro-biotic enzyme cleaners](lifeStylesForChange/waterAlchemy.md) were a large part of keeping the ecological footprint positive. This knowledge was freely shared to inquiring guests.
 
 ![Evolution](./vivariumGeorgeTownGallery/vivariumPatio/vivariumEvolutionWeb.JPG)
 
 Every stay mattered to this self funded project, contributed and kept this creative living eco space alive, evolving and available to experience.
+
+![deco](./vivariumGeorgeTownGallery/VivariumDouble/vivariumDouble03Web.JPG)
 
 **Vivarium LifeStyle** - The decor was handcrafted from natural bamboo, wood, coconut and rattan. Handmade textiles of organic cotton, silk and hemp decorated the walls.
 
@@ -183,6 +195,16 @@ Laundry service was available for a fee.
 
 This space was mostly shared with the host or co-host, all where quite strict about the house rules. This helped provide a clean and quiet environment for guests to stay. Guests where encouraged to ask questions prior to making a reservation.
 
+#### Resources
+
+[***LifeStyles For Change* Programs**](./lifeStylesForChange)
+
+[***Soil Therapy; Pro-biotic Soil Building with Bokashi***](./lifeStylesForChange/soilAlchemy.md)
+
+[***Water Therapy; Pro-biotic Eco-enzyme Cleaning is Healing***](./lifeStylesForChange/waterAlchemy.md)
+
+#### Explore
+
 [**Guest Reviews**](./proofOfConceptReviews.md)
 
 Many special events took place at the Vivarium in many different forms, Salon Style Programs and Salon Circle Gatherings among them. A few occasions where artfully captured by a talented videographer and photographer, [Hakima.](https://www.lensculture.com/hakima-hamdi)
@@ -195,4 +217,5 @@ Many special events took place at the Vivarium in many different forms, Salon St
 
 [**Bokashi Soil Building Instructional Video Link YouTube**](https://youtu.be/6fonPhtzfSc)
 
+[Vivarium Garden](./vivariumGeorgeTownGallery/vivariumGarden/dunnGardenBasil.jpg)
 
