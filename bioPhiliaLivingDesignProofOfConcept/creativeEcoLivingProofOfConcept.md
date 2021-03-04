@@ -208,7 +208,7 @@ Guests had access to the spacious living/dinning rooms. The kitchen was generall
 
 Host and co-host were often around and someone was always contactable to help with anything guests needed. Host and co-hosts alike all loved good conversation with respect of guest privacy, engagement was at the discretion of the guest.
 
-[yoga with friends](./vivariumGeorgeTownGallery/vivariumMis/VivariumGTYogaWeb.jpg)
+![yoga with friends](./vivariumGeorgeTownGallery/vivariumMis/VivariumGTYogaWeb.jpg)
 
 **Other things to note:**
 
