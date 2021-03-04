@@ -24,6 +24,8 @@ Wo-Men have an inherited need to connect to nature and other biotic forms due to
 
 #### *Naturally tap into the abundant emotions of joy, grace, awe, wholeness, passion and compassion that are experienced from beauty in nature. An archaic revival of Wo-Mans symbiotic microbial Gaian connection, honoring the feminine by connecting soil to soul.*
 
+![moringa tree bloom](./vivariumGeorgeTownGallery/vivariumGarden/vivariumMoringaFlowers02Web.JPG)
+
 ***Cross Pollinate; be the *gardener*, an open hand bringing seed to soil, the beginnings of life, love and endings. Each bloom in the doing of this most holy act.***
 
 Using the symbiotic relationship with *'Mother Earth'* as a path of discovery into the unique characteristics of intentional independent habitats, that not only can influence a spontaneous therapeutic act but also can be used by the designer to open; they are dynamic, adaptable and can be experienced, offering a safe space and the possibility for trying out inventive solutions and transformation.
