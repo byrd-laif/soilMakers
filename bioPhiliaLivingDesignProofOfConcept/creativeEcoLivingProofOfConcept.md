@@ -115,7 +115,7 @@ All rooms having several opening windows with large concrete window boxes provid
 
 ![Eco Deco](./vivariumGeorgeTownGallery/VivariumMasterBed/vivariumGTEcoDecoMaster01Web.JPG)
 
-Guests where offered garden care responsibilities and to participate in any activities that may have been happening at the time. Guests where also encouraged to use the in-house [Eco friendly body and home care products.](./lifeStylesForChange/waterAlchemy.md) Bathrooms had bidet water hose installed and small cotton towels were provided in place of toilet paper.
+Guests where offered garden care responsibilities and to participate in any activities that may have been happening at the time. Guests where also encouraged to use the in-house [Eco friendly body, home and earth care products.](../lifeStylesForChange/waterAlchemy.md) Bathrooms had bidet water hose installed and small cotton towels were provided in place of toilet paper.
 
 ![Master Bedroom](./vivariumGeorgeTownGallery/VivariumMasterBed/vivariumMasterBed01Web.JPG)
 
@@ -131,7 +131,7 @@ The Vivarium experience was marketed to "Creative Eco-Conscious Travelers" using
 
 ![living-room](./vivariumGeorgeTownGallery/vivariumLivingRoom/vivariumGTLivingroomDinningweb.jpg)
 
-Guests joined a journey of discovery as the Vivarium co-evolved and provided a space to share solutions to everyday environmental impacts; [Bokashi soil building]((../lifeStylesForChange/soilAlchemy.md) and [pro-biotic enzyme cleaners](../lifeStylesForChange/waterAlchemy.md) were a large part of keeping the ecological footprint positive. This knowledge was freely shared to inquiring guests.
+Guests joined a journey of discovery as the Vivarium co-evolved and provided a space to share solutions to everyday environmental impacts; [Bokashi soil building](../lifeStylesForChange/soilAlchemy.md) and [pro-biotic enzyme cleaners](../lifeStylesForChange/waterAlchemy.md) were a large part of keeping the ecological footprint positive. This knowledge was freely shared to inquiring guests.
 
 ![Evolution](./vivariumGeorgeTownGallery/vivariumPatio/vivariumEvolutionWeb.JPG)
 
