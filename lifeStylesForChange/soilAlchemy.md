@@ -200,4 +200,4 @@ Pour the concentrated Bokashi tea directly into kitchen and bathroom drains, toi
 #### Connect ~ Ask a question or book an event ...
 [Contact Direct on Matrix](https://matrix.to/#/!ibYXXCkubbZiWtkmhX:matrix.org?via=matrix.org)
 
-![bokashi workshop](../soilSeekers/eventGallery/anna6.jpg)
+![bokashi workshop](../eventGallery/anna6.jpg)
