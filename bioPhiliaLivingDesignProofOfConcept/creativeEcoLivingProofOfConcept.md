@@ -46,7 +46,7 @@ A living design built upon the inherent intuitive 'biophilic' response to built 
 
 ![Authentic Living](./vivariumGeorgeTownGallery/vivariumLivingRoom/livingRoomCandidCafeWeb.jpg)
 
-### *Knowledge of the 'symbiotic evolutionary experience' and theory are shared here.*
+### *Knowledge Harvested* from the 'symbiotic co-evolutionary experience' and theory are shared here.
 
 **An effort to reach ones own potential and help others do so in the process.**
 
@@ -239,6 +239,9 @@ Many special events took place at the Vivarium in many different forms, Salon St
 [**Day in the life of an apartment garden**](https://youtu.be/O5F19PW9HsQ)
 
 [**Bokashi Soil Building Instructional Video Link YouTube**](https://youtu.be/6fonPhtzfSc)
+
+#### Connect ~ Ask a question or book an event ...
+[Contact Direct on Matrix](https://matrix.to/#/!ibYXXCkubbZiWtkmhX:matrix.org?via=matrix.org)
 
 ![Vivarium Garden](./vivariumGeorgeTownGallery/vivariumGarden/dunnGardenBasil.jpg)
 

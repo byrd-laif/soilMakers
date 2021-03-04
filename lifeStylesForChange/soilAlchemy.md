@@ -197,4 +197,7 @@ Pour the concentrated Bokashi tea directly into kitchen and bathroom drains, toi
 
 [**Day in the life of an apartment garden**](https://youtu.be/O5F19PW9HsQ)
 
+#### Connect ~ Ask a question or book an event ...
+[Contact Direct on Matrix](https://matrix.to/#/!ibYXXCkubbZiWtkmhX:matrix.org?via=matrix.org)
 
+![bokashi workshop](../soilSeekers/eventGallery/anna6.jpg)

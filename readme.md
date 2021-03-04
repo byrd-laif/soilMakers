@@ -32,6 +32,7 @@
 **Projecting ones lifestyle into a future possibility, living the creative process, and designing a living that feeds the Soul and honors the Soil, that pays the Bills.**
 
 #### *Examining ecologic behaviors.*
+
 ***Loss of biodiversity is directly related to the lifestyles of human beings.***
 
 *It's time to start comparing consumption and lifestyle, and checking this against nature's ability to provide for this consumption. Humans have destroyed and continue to destroy the habitats of species on a daily basis. It's time to own up to the realities of what that translates to for the generations to come, aesthetically and otherwise. It's time to be *Ecologically Realistic* and get back to the *heart* of what *life* is all about.* 
@@ -44,9 +45,10 @@
 *The Mother Tree; An archaic revival of Wo-Mans Gaian connection through honoring the feminine. Soil Sisters relate to Earth, Gaia as 'The Live And Dynamic Evolutionary Partner' in the shaping of the set, setting and the process, healing the soil to heal the soul.*
 
 ## Environ-Mental Health ~ *The ethics of ecology;* Learning to live in the light of Nature.
+
 **The cultivation of a more attuned and responsive awareness of Wo-Mans ecological interconnections. Ones dream and the dream of the planet As One.**
 
-***Connection with things that make living possible.*** Being attracted to all that is alive and vital, the human tendency to relate with life and natural processes - Is The Expression Of A Biological Need.
+***Becoming a part of the circle of life; connecting with things that make living possible.*** Being attracted to all that is alive and vital, the human tendency to relate with life and natural processes - Is The Expression Of A Biological Need.
 
 ### *Loss of biodiversity is catastrophic, impacts are symbiotic and happen within the physical body and Mother Earth, far into future generations.*
 
@@ -58,7 +60,7 @@
 
 **Not addressing immediate needs is an insult to the young. People with passion, purpose and practical skills make the world a better place.** 
 
-#### *It's time to call home. To act and that act to transfer through nature. Soil to soul cultivate cultures that heal.
+#### *It's time to call home. To act and that act to transfer through nature. Soil to soul cultivate cultures that heal.*
 
 #### Explore
 
