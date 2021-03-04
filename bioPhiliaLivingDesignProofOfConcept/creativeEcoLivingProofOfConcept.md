@@ -129,7 +129,7 @@ This was a shared private residence. At times the entire space was made availabl
 vivariumMasterBed01Web.JPG
 The Vivarium experience was marketed to "Creative Eco-Conscious Travelers" using Airbnb and Workaway platforms with a small team of dedicated local friends that helped make it all possible. The Vivarium listings attained "super host" status on the Airbnb platform.
 
-[living-room](./vivariumGeorgeTownGallery/vivariumLivingRoom/vivariumGTLivingroomDinningweb.jpg)
+![living-room](./vivariumGeorgeTownGallery/vivariumLivingRoom/vivariumGTLivingroomDinningweb.jpg)
 
 Guests joined a journey of discovery as the Vivarium co-evolved and provided a space to share solutions to everyday environmental impacts; [Bokashi soil building](./lifeStylesForChange/soilAlchemy.md) and [pro-biotic enzyme cleaners](lifeStylesForChange/waterAlchemy.md) were a large part of keeping the ecological footprint positive. This knowledge was freely shared to inquiring guests.
 
@@ -217,5 +217,5 @@ Many special events took place at the Vivarium in many different forms, Salon St
 
 [**Bokashi Soil Building Instructional Video Link YouTube**](https://youtu.be/6fonPhtzfSc)
 
-[Vivarium Garden](./vivariumGeorgeTownGallery/vivariumGarden/dunnGardenBasil.jpg)
+![Vivarium Garden](./vivariumGeorgeTownGallery/vivariumGarden/dunnGardenBasil.jpg)
 
