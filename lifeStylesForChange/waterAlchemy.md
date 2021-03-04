@@ -8,7 +8,7 @@ date: 2018-08-13
 
 *Multi Purpose: Whole Body, Built Environment and *Earth Care* Products. Naturally; Anti-Bacterial, Anti-Fungal, Anti-Viral and a Natural Antiseptic.*
 
-![Enzyme Spa](./lifeStylesForChange/enzymeImages/enzymeWoodHempBrush.JPG)
+![Enzyme Spa](./enzymeImages/enzymeWoodHempBrush.JPG)
 
 ## *Conservation as a consequence of production.*
 
