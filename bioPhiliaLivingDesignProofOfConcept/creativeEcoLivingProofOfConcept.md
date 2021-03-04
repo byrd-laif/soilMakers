@@ -131,7 +131,7 @@ The Vivarium experience was marketed to "Creative Eco-Conscious Travelers" using
 
 ![living-room](./vivariumGeorgeTownGallery/vivariumLivingRoom/vivariumGTLivingroomDinningweb.jpg)
 
-Guests joined a journey of discovery as the Vivarium co-evolved and provided a space to share solutions to everyday environmental impacts; [Bokashi soil building](./lifeStylesForChange/soilAlchemy.md) and [pro-biotic enzyme cleaners](lifeStylesForChange/waterAlchemy.md) were a large part of keeping the ecological footprint positive. This knowledge was freely shared to inquiring guests.
+Guests joined a journey of discovery as the Vivarium co-evolved and provided a space to share solutions to everyday environmental impacts; [Bokashi soil building](../lifeStylesForChange/soilAlchemy.md) and [pro-biotic enzyme cleaners](../lifeStylesForChange/waterAlchemy.md) were a large part of keeping the ecological footprint positive. This knowledge was freely shared to inquiring guests.
 
 ![Evolution](./vivariumGeorgeTownGallery/vivariumPatio/vivariumEvolutionWeb.JPG)
 
@@ -197,11 +197,11 @@ This space was mostly shared with the host or co-host, all where quite strict ab
 
 #### Resources
 
-[***LifeStyles For Change* Programs**](./lifeStylesForChange)
+[***LifeStyles For Change* Programs**](../lifeStylesForChange)
 
-[***Soil Therapy; Pro-biotic Soil Building with Bokashi***](./lifeStylesForChange/soilAlchemy.md)
+[***Soil Therapy; Pro-biotic Soil Building with Bokashi***](../lifeStylesForChange/soilAlchemy.md)
 
-[***Water Therapy; Pro-biotic Eco-enzyme Cleaning is Healing***](./lifeStylesForChange/waterAlchemy.md)
+[***Water Therapy; Pro-biotic Eco-enzyme Cleaning is Healing***](../lifeStylesForChange/waterAlchemy.md)
 
 #### Explore
 
