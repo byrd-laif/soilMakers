@@ -284,4 +284,5 @@ A: If the fermentation is successful, the liquid will turn yellowish to brown an
 #### Connect ~ Ask a question or book an event ...
 [Contact Direct on Matrix](https://matrix.to/#/!ibYXXCkubbZiWtkmhX:matrix.org?via=matrix.org)
 
-![enzyme workshop](../soilSeekers/eventGallery/ecoEnzymeWorkshopGTweb.jpg)
+![enzyme workshop](../eventGallery/ecoEnzymeWorkshopGTweb.jpg)
+
