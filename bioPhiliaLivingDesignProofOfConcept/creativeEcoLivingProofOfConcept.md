@@ -8,7 +8,7 @@ date: 2021-02-28
 
 **The cultivation of a symbiotic habitat for the individual as a *biological organism* in the *built environment* within the *biophysical environment.***
 
-## *The symbiotic relationship between Wo-Man and environment is highlighted, not human and 'things'.*
+## *Becoming a part of the circle of life. The symbiotic relationship between Wo-Man and environment is highlighted, not human and 'things'.*
 
 Learning to catalogue experiences, the sources in the natural environment, of positive emotional states that humans experience, then recreate them in the built and cultivated environment to enhance emotional, mental, physical and biological health.
 
