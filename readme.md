@@ -43,9 +43,9 @@
 
 ## Cultivating a *Eco-logical Economy* creates the market for an *Economically Sustainable* future.
 
-### *A bio-logical movement, a 'symbiotic legacy venture' with Mother Earth. A system that operates to deliver positive ecological impact and by that symbiotically profit, produce a surplus soil to soul.*
+### *A bio-logical movement, a 'symbiotic legacy venture' with Mother Earth. A system that operates to deliver positive ecological impact and by that symbiotically profit through seeding the soil; healing the soul of Mother Earth.*
 
-#### *Cultivating The Mother Tree;* An archaic revival of Wo-Mans Gaian connection through honoring the feminine. Soil Sisters relate to Mother Earth, Gaia as *'The Live And Dynamic Co-evolutionary Partner'* in the shaping of the set, setting and the process. *Profit through seeding the soil; healing the soul of Mother Earth.*
+#### *Cultivating The Mother Tree;* An archaic revival of Wo-Mans Gaian connection through honoring the feminine. Soil Sisters relate to Mother Earth, Gaia as *'The Live And Dynamic Co-evolutionary Partner'* in the shaping of the set, setting and the process.
 
 **Environ-Mental Health ~ *The ethics of ecology;* Learning to live in the light of Nature.**
 
