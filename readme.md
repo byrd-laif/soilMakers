@@ -40,15 +40,17 @@
 **This is about honesty and responsibility. Honesty; admitting to what is. Responsibility; not blaming anybody else.**
 
 # *Soil Sisters ~ Ecological Movement And Enterprise*
-*A bio-**logical** movement, a 'symbiotic legacy venture' with Nature. A system that operates to deliver positive ecological impact and by that symbiotically profit, produce a surplus soil to soul.*
+***Cultivating a green economy creates the market for an ecologically sustainable future.***
 
-*The Mother Tree; An archaic revival of Wo-Mans Gaian connection through honoring the feminine. Soil Sisters relate to Mother Earth, Gaia as 'The Live And Dynamic Co-evolutionary Partner' in the shaping of the set, setting and the process, healing the soil to heal the soul.*
+*A bio-**logical** movement, a 'symbiotic legacy venture' with Mother Nature. A system that operates to deliver positive ecological impact and by that symbiotically profit, produce a surplus soil to soul.*
+
+#### *Cultivating The Mother Tree;* An archaic revival of Wo-Mans Gaian connection through honoring the feminine. Soil Sisters relate to Mother Earth, Gaia as *'The Live And Dynamic Co-evolutionary Partner'* in the shaping of the set, setting and the process. *Profit through seeding the soil; healing the soul of Mother Earth.*
 
 ## Environ-Mental Health ~ *The ethics of ecology;* Learning to live in the light of Nature.
 
 **The cultivation of a more attuned and responsive awareness of Wo-Mans ecological interconnections. Ones dream and the dream of the planet As One.**
 
-***Connecting with things that make living possible.*** Being attracted to all that is alive and vital, the human tendency to relate with life and natural processes - Is The Expression Of A Biological Need.
+***Connecting with things that make living possible.*** Being attracted to all that is alive and vital, the human tendency to relate with life and natural processes - *Is The Expression Of A Biological Need.*
 
 ### *Loss of biodiversity is catastrophic, impacts are symbiotic and happen within the physical body and Mother Earth, far into future generations.*
 
