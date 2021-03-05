@@ -16,7 +16,7 @@ date: 2018-08-13
 
 A series of guided invitations, natural cycles, bring one into the present moment, opening the doors of symbiotic communication with the soil, waters, and landscapes explored. Encounter not just the soil, but the many ways nature mirrors humans, encountering oneself, Soil to Soul Food.
 
-Soil, life is fragile, its easy to destroy something, the challenge is to create something meaningful. To bring something back to the Village that people can live from.
+**Soil life is fragile,** its easy to destroy something, the challenge is to create something meaningful. To bring something back to the Village that people can live from.
 
 #### *Ancestral Healing; Cultivating cultures that heal cultivates compassion for mother earth, an act of humility.*
 
@@ -61,7 +61,7 @@ A healthy Bokashi bin does not create bad odors,  greenhouse gas, or heat - uses
 
 **Responsible management of organic kitchen remnants can reduce 70% of the total waste production and reduce the bad gases produced during organic decomposition, while saving the environment by creating bio-active humus soil and pro-biotic liquid fertilizer to combat the negative use of toxic chemicals and pollutants.**
 
-**Bokashi provides essential nutrients to rebuild soil organic matter content, and re-establish microbial populations. Benefits directly associated with improved organic matter content are: enhanced water infiltration and moisture-holding, aggregation, aeration, nutrient supply for plant growth, and microbial activity.**
+**Bokashi is therapeutic, provides essential nutrients to rebuild soil organic matter content, and re-establish microbial populations. Benefits directly associated with improved organic matter content are: enhanced water infiltration and moisture-holding, aggregation, aeration, nutrient supply for plant growth, and microbial activity.**
 
 **Bioremediation**- Biotechnology employs the use of living organisms, microbes and bacteria, in the removal of contaminants, pollutants, and toxins from soil, water, and other environments.
 

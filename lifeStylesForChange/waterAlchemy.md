@@ -98,19 +98,9 @@ Fermentation naturally produces Lactic Acid Bacteria (LAB), one of the most well
 
 ### Re-Act To The Environ-Mental Realities 
 
-**Eco-Enzyme is an ecologically responsible solution,** for those living in apartments/condos or for those looking to use their fresh fruit and vegetable remnants as a **nutrient rich pro-biotic water and soil amendment.** Use in the garden, plant pots or the environment as a gift of thanks, pro-biotic water for Mother Earth. No traditional 'garden' is required! Be creative. Whats around ...
+**Lifestyles For Change. Eco-Enzyme is an ecologically responsible solution,** for those living in apartments/condos or for those looking to use their fresh fruit and vegetable remnants as a **nutrient rich pro-biotic water and soil amendment.** Use in the garden, plant pots or the environment as a gift of thanks, pro-biotic water for Mother Earth. No traditional 'garden' is required! Be creative. Whats around ...
 
-#### Discover the Miracle of Pro-Biotic Eco-Enzyme and how it impacts:
-
-- Climate Change
-- Water Pollution
-- Soil Pollution
-- Waste Disposal
-- Land Management & Urban Sprawl
-
-**Lifestyles For Change- Fermenting fresh organic kitchen matter can reduce 70% of the total waste production and reduce the bad gases produced during organic decomposition, while saving the environment by creating a beneficial, symbiotic substance to combat the negative use of toxic chemicals and pollutants.**
-
-Methane gas released from poorly disposed organic food waste can trap 21 times more heat than CO2, worsening the global warming condition.
+**Fermenting fresh organic kitchen matter can reduce 70% of the total waste production and reduce the bad gases produced during organic decomposition, while saving the environment by creating a beneficial, symbiotic substance to combat the negative use of toxic chemicals and pollutants.**
 
 #### *Pro-biotic Eco-enzyme Benefits:*
 
@@ -120,7 +110,7 @@ Methane gas released from poorly disposed organic food waste can trap 21 times m
 
 **Safe**- Naturally teaming with antimicrobial goodness, these bacteria inhibit the growth of pathogens naturally eliminating the need for preservatives. Ferments are toxic free and perfect for the most sensitive at any age.
 
-**Medicinal**- LAB ferments are part of normal micro-flora of gastrointestinal and genitourinary (the urinary and genital organs) tracts, hence they are used as components of pro-biotic products.
+**Medicinal**- LAB ferments are part of normal micro-flora of the skin, gastrointestinal and genitourinary (the urinary and genital organs) tracts, hence they are used as components of many medical pro-biotic products.
 
 **Bioremediation**- Biotechnology employs the use of living organisms, microbes and bacteria, in the removal of contaminants, pollutants, and toxins from soil, water, and other environments.
 
@@ -226,7 +216,7 @@ It’s a great idea to have a catch-all bin for everything else like veggie scra
 - Cut the ingredients into small pieces to let them break down faster.
 - Make sure all the organic ingredients are covered by the sugar water.
 - Don’t use oily food remnants (fish and meat) as ingredients, this will create a bad smell, put these in the bokashi soil building system.
-- Leave some space at the top of the container for expansion.
+- Leave some space at the top of the container for natural fermentation expansion.
 - During fermentation keep away from direct sunlight.
 - If small insects are found in the container, close the lid tightly and let those insects decompose. (Increasing protein content!)
 - A white layer on the surface of Eco Enzyme is a sign that fermentation is healthy and underway. This is a natural and harmless Kahm yeast.
