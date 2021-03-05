@@ -7,7 +7,7 @@
 ## *Vivarium Salon Circle/Programs ~ place of life*
 *Global Communities For Local Impact. Cross-pollinate and connect diverse opinions.*
 
-### Life*Styles* For Change
+### Life*Styles* For Change ~ Becoming a part of the circle of life.
 
 **Vivarium Salon Culture; *Art,* as the vehicle of feeling with and thinking through living in a damaged world, cultivating cultures that symbiotically heal soil to soul.**
 
@@ -42,13 +42,13 @@
 # *Soil Sisters ~ Ecological Movement And Enterprise*
 *A bio-**logical** movement, a 'symbiotic legacy venture' with Nature. A system that operates to deliver positive ecological impact and by that symbiotically profit, produce a surplus soil to soul.*
 
-*The Mother Tree; An archaic revival of Wo-Mans Gaian connection through honoring the feminine. Soil Sisters relate to Earth, Gaia as 'The Live And Dynamic Evolutionary Partner' in the shaping of the set, setting and the process, healing the soil to heal the soul.*
+*The Mother Tree; An archaic revival of Wo-Mans Gaian connection through honoring the feminine. Soil Sisters relate to Mother Earth, Gaia as 'The Live And Dynamic Co-evolutionary Partner' in the shaping of the set, setting and the process, healing the soil to heal the soul.*
 
 ## Environ-Mental Health ~ *The ethics of ecology;* Learning to live in the light of Nature.
 
 **The cultivation of a more attuned and responsive awareness of Wo-Mans ecological interconnections. Ones dream and the dream of the planet As One.**
 
-***Becoming a part of the circle of life; connecting with things that make living possible.*** Being attracted to all that is alive and vital, the human tendency to relate with life and natural processes - Is The Expression Of A Biological Need.
+***Connecting with things that make living possible.*** Being attracted to all that is alive and vital, the human tendency to relate with life and natural processes - Is The Expression Of A Biological Need.
 
 ### *Loss of biodiversity is catastrophic, impacts are symbiotic and happen within the physical body and Mother Earth, far into future generations.*
 
@@ -64,7 +64,7 @@
 
 #### Explore
 
-[**BioPhilia Living Design - Urban Sustainable Eco-Living *Proof of Concept***](./bioPhiliaLivingDesignProofOfConcept/creativeEcoLivingProofOfConcept.md)
+[**BioPhilia Living Design - *Proof of Concept* Urban Sustainable Eco-Living**](./bioPhiliaLivingDesignProofOfConcept/creativeEcoLivingProofOfConcept.md)
 
 #### Programs/Resources
 
