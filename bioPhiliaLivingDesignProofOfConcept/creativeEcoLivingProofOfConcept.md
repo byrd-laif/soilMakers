@@ -48,7 +48,7 @@ A living design built upon the inherent intuitive 'biophilic' response to built 
 
 ### *Knowledge Harvested* from the 'symbiotic co-evolutionary experience' and theory are shared here.
 
-**An effort to reach ones own potential and help others do so in the process.**
+**An effort to cultivate personal potential and help others do so in the process.**
 
 #### *The way out is a personal responsibility, the way out is in the soil. When the soil is healed the soul follows.*
 
