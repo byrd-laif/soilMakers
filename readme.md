@@ -7,7 +7,7 @@
 ## *Vivarium Salon Circle/Programs ~ place of life*
 *Global Communities For Local Impact. Cross-pollinate and connect diverse opinions.*
 
-### Life*Styles* For Change ~ An archaic revival, becoming a part of the circle of life.
+### Life*Styles* For Change ~ Becoming a part of the circle of life.
 
 **Vivarium Salon Culture; *Art,* as the vehicle of feeling with and thinking through living in a damaged world, cultivating cultures that symbiotically heal soil to soul.** An effort to cultivate personal potential and help others do so in the process.
 
@@ -41,9 +41,9 @@
 
 # *Soil Sisters ~ Eco-logical Movement And Enterprise*
 
-## Cultivating a *Eco-logical Economy* creates the market for an *Economically Sustainable* future.
+## Cultivating an *Eco-logical Economy* creates the market for an *Economically Sustainable* future.
 
-### *A bio-logical movement, a 'symbiotic legacy venture' with Mother Earth. A system that operates to deliver positive ecological impact and by that symbiotically profit through seeding the soil; healing the soul of Mother Earth.*
+### *A bio-logical movement, a 'symbiotic legacy venture' with Mother Earth. A system that operates to deliver positive ecological impact and by that symbiotically profit through seeding the soil, the soul of Mother Earth.*
 
 #### *Cultivating The Mother Tree;* An archaic revival of Wo-Mans Gaian connection through honoring the feminine. Soil Sisters relate to Mother Earth, Gaia as *'The Live And Dynamic Co-evolutionary Partner'* in the shaping of the set, setting and the process.
 
