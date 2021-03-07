@@ -152,7 +152,7 @@ Every stay mattered to this self funded project, contributed and kept this creat
 
 ![deco](./vivariumGeorgeTownGallery/VivariumDouble/vivariumDouble03Web.JPG)
 
-**Vivarium LifeStyle** - The decor was handcrafted from natural bamboo, wood, coconut and rattan. Handmade textiles of organic cotton, silk and hemp decorated the walls.
+**Vivarium LifeStyle** - Bringing the unique human touch and spirit back from the generic manufactured sea of junk made available by the faceless factory market place. Functional Eco-decor was handcrafted from natural bamboo, wood, coconut and rattan. Handmade textiles of organic cotton, silk and hemp decorated the walls.
 
 ![Patio Living](./vivariumGeorgeTownGallery/vivariumLivingRoom/vivariumGTLivingroomYogaweb.jpg)
 
