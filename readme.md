@@ -47,6 +47,8 @@
 
 #### *Cultivating The Mother Tree;* An archaic revival of Wo-Mans Gaian connection through honoring the feminine. Soil Sisters relate to Mother Earth, Gaia as *'The Live And Dynamic Co-evolutionary Partner'* in the shaping of the set, setting and the process.
 
+***Cultivating co-Evolutionary Leaders,** revolutionary Eco-Logical actions that are transferable through to nature, are bio-Logical, thus provide an economically sustainable future. Producing a solution to the initial problem. Production (profit) then can become the consequence of conservation.
+
 **Environ-Mental Health ~ *The ethics of ecology;* Learning to live in the light of Nature.**
 
 **The cultivation of a more attuned and responsive awareness of Wo-Mans ecological interconnections. Ones dream and the dream of the planet As One.**
