@@ -62,12 +62,13 @@ A radical sift from the 'dominator'; biological warfare built on guilt, fear and
 **Being responsible stewards of the Earth means taking to heart the current planetary healing crisis. Having accepted this circumstance *responsibility* then means *ability,* to have a *creative response* to the situation as it is *now.* The *seeds of opportunity* and awareness, to take the moment and transform it into a better situation.**
 
 #### An opportunity for the creation of something new and beautiful. 
+*Transforming an Environ-mental withdraw to an Environ-mental Deposit.*
 
 **Today’s young generation are being handed the biggest challenge of all; *'Cultivating Biodiversity'* the symbiotic living *'Quality of Life'* on this planet.**
 
 **Not addressing immediate needs is an insult to the young. People with passion, purpose and practical skills make the world a better place.** 
 
-#### *It's time to call home. To act and that act to transfer through nature. Soil to soul cultivate cultures that heal.*
+#### *It's time to call home. To act and that act to transfer through nature, soil to soul cultivate cultures that heal.*
 
 #### Explore
 
