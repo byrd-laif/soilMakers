@@ -47,7 +47,9 @@
 
 #### *Cultivating The Mother Tree;* An archaic revival of Wo-Mans Gaian connection through honoring the feminine. Soil Sisters relate to Mother Earth, Gaia as *'The Live And Dynamic Co-evolutionary Partner'* in the shaping of the set, setting and the process.
 
-***Creating co-Evolutionary Leaders;*** Revolutionary Eco-logical actions that are transferable through to nature. ***Bio-Logical Earth Care*** provides the environment for an ecologically and economically sustainable future. Production (profit) can then become the consequence of conservation. A radical sift from the 'dominator'; biological warfare built on guilt, fear and force. To an 'ecological partnership'; Bio-Logical Freedom, free to swim in the rivers of Mother Earth without fear of reprisal. 
+***Creating co-Evolutionary Leaders;*** Revolutionary Eco-logical actions that are transferable through to nature. ***Bio-Logical Earth Care*** provides the environment for an ecologically and economically sustainable future. Production (profit) can then become the consequence of conservation.
+
+A radical sift from the 'dominator'; biological warfare built on guilt, fear and force. To an 'ecological partnership'; Bio-Logical Freedom, free to swim in the rivers of Mother Earth without fear of reprisal.
 
 Partnership system supports mutually respectful and caring relations. Reconciliation, free to turn and question: Where does Wo-Man go from here?
 
@@ -57,14 +59,15 @@ Partnership system supports mutually respectful and caring relations. Reconcilia
 
 ***Connecting with things that make living possible.*** Being attracted to all that is alive and vital, the human tendency to relate with life and natural processes - *Is The Expression Of A Biological Need.*
 
-### *Loss of biodiversity is catastrophic, impacts are symbiotic and happen within the physical body and Mother Earth, far into future generations.*
+### *Quality Of Life* - Loss of biodiversity and ecosystems is catastrophic, impacts are symbiotic and happen within the physical body and Mother Earth, far into future generations.
 
 **Being responsible stewards of the Earth means taking to heart the current planetary healing crisis. Having accepted this circumstance *responsibility* then means *ability,* to have a *creative response* to the situation as it is *now.* The *seeds of opportunity* and awareness, to take the moment and transform it into a better situation.**
 
-#### An opportunity for the creation of something new and beautiful. 
-*Transforming an Environ-mental withdraw to an Environ-mental Deposit.*
+#### An opportunity for the creation of something new and beautiful.
 
-**Today’s young generation are being handed the biggest challenge of all; *'Cultivating Biodiversity'* the symbiotic living *'Quality of Life'* on this planet.**
+**Putting nature on the balance sheet. Bio-Logical Eco system services; Transforming an Environ-mental withdraw to an Environ-mental Deposit for the future.**
+
+**Today’s young generation are being handed the biggest challenge of all; *'Cultivating Biodiversity'* the symbiotic living *'Fabric of Life'* of this planet.**
 
 **Not addressing immediate needs is an insult to the young. People with passion, purpose and practical skills make the world a better place.** 
 
@@ -73,6 +76,8 @@ Partnership system supports mutually respectful and caring relations. Reconcilia
 #### Explore
 
 [**BioPhilia Living Design - *Proof of Concept* Urban Sustainable Eco-Living**](./bioPhiliaLivingDesignProofOfConcept/creativeEcoLivingProofOfConcept.md)
+
+[**Proof of Concept Guest Reviews**](./bioPhiliaLivingDesignProofOfConcept/proofOfConceptReviews.md)
 
 #### Programs/Resources
 
