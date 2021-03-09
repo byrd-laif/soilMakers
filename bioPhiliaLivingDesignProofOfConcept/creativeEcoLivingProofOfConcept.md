@@ -68,15 +68,15 @@ A living design built upon the inherent intuitive 'biophilic' response to built 
 
 #### *The Aim; to Harmonize the Natural World with the Modern World.*
 
-*Mind, Body, Earth; Anima Mundi (world soul) Symbiotic Connections. Creating live and dynamic, open independent spaces that feel as they have existed long before ones arrival and will remain long after their depart.*
+**Quality of Life**- *Mind, Body, Earth; Anima Mundi (world soul) Symbiotic Ecological Connections. Creating live and dynamic, open independent spaces that feel as they have existed long before ones arrival and will remain long after their depart.*
 
 ![An Enchanted Sensibility To Create Change](./vivariumGeorgeTownGallery/VivariumDouble/moringaRoomCandid01Web.jpg)
 
-An enchanted sensibility can be strategically cultivated to ***'Capitalize On The Use Of The Senses To Create Change'.***
+**Environ-mental Health** - An enchanted sensibility can be strategically cultivated to ***'Capitalize On The Use Of The Senses To Create Change'.***
 
-***Physical body is the placebo;*** the mind’s capacity to influence bodily functions and symptoms. 
+***Physical body is the placebo;*** the mind’s natural capacity to influence bodily functions and symptoms. 
 
-Re-establishing and encouraging healthy symbiotic connections with nature through sensory experiences, interactions, movement, and hands-on activities. Allowing the brain and body to establish new, more productive patterns.
+**Co-evolutionary ecosystems:** Re-establishing and encouraging healthy symbiotic connections with nature (Mother Earth) through sensory experiences; physical and biological interactions, movement, and hands-on activities. Allowing the brain, body and earth body to establish new, more productive patterns.
 
 ![Harvest](./vivariumGeorgeTownGallery/vivariumHarvest/vivariumLivingHarvest01Web.JPG)
 
@@ -112,7 +112,7 @@ The unique design of the boutique residence offers each corner condo, three outs
 
 ![Private](./vivariumGeorgeTownGallery/VivariumMasterBed/vivariumMasterPrivacyScreenEntranceWeb.JPG)
 
-Intentional privacy screening was installed to allows guests to open bedroom doors and take advantage of the natural flow of fresh air. Jute window covers where installed to provide natural air-conditioning. Additionally an evaporative cooler was used in the common area that supported the creation of a pleasant micro climate.
+Intentional privacy screening was installed allowing guests to keep bedroom doors open; too take advantage and contribute to the natural flow of fresh air. Jute window covers where installed to provide natural air-conditioning. Additionally an evaporative cooler was used in the common area that supported the creation of a very pleasant and natural micro climate. (More details on Eco-deco and micro climates will follow in a separate post.)
 
 ![Work](./vivariumGeorgeTownGallery/vivariumPatio/patioWorkVivarium.jpg)
 
@@ -120,7 +120,7 @@ Intentional privacy screening was installed to allows guests to open bedroom doo
 
 ![hanging patio garden](./vivariumGeorgeTownGallery/vivariumPatio/kokedama03.jpg)
 
-It became difficult to catalog the ever changing garden. Growing a diverse garden is part of what makes it a pleasure and easy to enjoy an Eco-responsible lifestyle. ***The gardens of the Vivarium, once established, was able to provided all nutritional requirements.*** (More details on plant selection and care will follow in a separate post.)
+It became difficult to catalog the ever changing garden. Growing a diverse garden is part of what makes it a pleasure and easy to enjoy an Eco-responsible lifestyle. ***The gardens of the Vivarium, once established, provided (and often exceeded) all nutritional requirements for the host and co-host.*** (More details on plant selection and care will follow in a separate post.)
 
 ![Kokedama](./vivariumGeorgeTownGallery/vivariumWindowHanging/vivariumKokedama01Web.jpg)
 
