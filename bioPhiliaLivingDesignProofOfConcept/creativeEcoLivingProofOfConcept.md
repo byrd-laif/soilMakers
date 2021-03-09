@@ -1,12 +1,12 @@
 ---
-title: Bio-philia Living Design - Proof of concept Urban Creative ecoLiving.
+title: Bio-philia Living Design - Proof of concept Urban Creative Eco-living.
 date: 2021-02-28
 ---
 
 # Bio*Philia* Living Design ~ Learning to live in the light of Nature.
 (*Proof of concept: Oct 2016 - Jan 2020*)
 
-**The cultivation of a symbiotic habitat for the individual as a *biological organism* in the *built environment* within the *biophysical environment.***
+**The cultivation of a symbiotic habitat that honors the individual as a *biological organism* in the *built environment* within the *biophysical environment.***
 
 ## *Becoming a part of the circle of life.* The *symbiotic relationship* between *Wo-Man and Mother Earth* (environment) is highlighted, not human and 'things'.
 
@@ -26,7 +26,7 @@ Wo-Men have an inherited need to connect to nature and other biotic forms due to
 
 ![moringa tree bloom](./vivariumGeorgeTownGallery/vivariumGarden/vivariumMoringaFlowers02Web.JPG)
 
-***Cross Pollinate; be the *gardener*, an open hand bringing seed to soil, the beginnings of life, love and endings. Each bloom in the doing of this most holy act.***
+***Cross Pollinate; be the *gardener*, an open hand bringing seed to soil the womb, the beginnings of life, love and endings. Each bloom in the doing of this most holy act.***
 
 Using the symbiotic relationship with *'Mother Earth'* as a path of discovery into the unique characteristics of intentional independent habitats, that not only can influence a spontaneous therapeutic act but also can be used by the designer to open; they are dynamic, adaptable and can be experienced, offering a safe space and the possibility for trying out inventive solutions and transformation.
 
@@ -34,7 +34,7 @@ Using the symbiotic relationship with *'Mother Earth'* as a path of discovery in
 
 ![Hanging Gardens](./vivariumGeorgeTownGallery/vivariumWindowHanging/vivariumGTDoubleWindowViewWeb.JPG)
 
-***Healing environments*** allow one to draw emotional support from their settings through the Symbiotic Energy, the living energy of the space. One then feels free to move around and interact unselfconsciously, to combine ones life with the life of the living systems and elements within the built space. Achieved by bringing in a number of high quality visual and intuitive interactions among the bio-logical systems and elements of a space and its users. 
+***Healing environments*** allow one to draw emotional support from their settings through the Symbiotic Energy, the living energy of the space. One then feels free to move around and interact unselfconsciously, to combine ones life with the life of the living systems and elements within the built space. Achieved by bringing in a number of high quality visual and intuitive interactions among the bio-logical ecosystems and elements of a built space and its users. 
 
 ![Open Space](./vivariumGeorgeTownGallery/vivariumLivingRoom/vivariumGTLivingroomRelaxWeb.JPG)
 
@@ -62,7 +62,7 @@ A living design built upon the inherent intuitive 'biophilic' response to built 
 
 *An interactive space curated to explore, learn, reflect, ... on how Wo-Man interact, impact and live in their personal environments; homes, work, travel, ..., spaces.*
 
-**Vivarium**- (Latin, literally for "place of life"; plural: vivaria or vivariums) is an area, usually enclosed, for keeping and raising animals (in this case Wo-Man and plants) or plants for observation or research. Often, a portion of the ecosystem for a particular species is simulated on a smaller scale, with controls for environmental conditions.
+**Vivarium**- (Latin, literally for "place of life"; plural: vivaria or vivariums) is an area, usually enclosed, for keeping and raising animals (in this case Wo-Man and biological ecosystems) or plants for observation or research. Often, a portion of the ecosystem for a particular species is simulated on a smaller scale, with controls for environmental conditions.
 
 ![Harmonize with the Natural World.](./vivariumGeorgeTownGallery/vivariumLivingRoom/vivariumGTLivingroomPatioweb.jpg)
 
@@ -112,15 +112,15 @@ The unique design of the boutique residence offers each corner condo, three outs
 
 ![Private](./vivariumGeorgeTownGallery/VivariumMasterBed/vivariumMasterPrivacyScreenEntranceWeb.JPG)
 
-Intentional privacy screening was installed to allows guests to open bedroom doors and take advantage of the natural flow of fresh air. Jute window covers where installed to provide natural air-conditioning. Additionally an evaporative cooler was used in the common area that helped in the creation of a pleasant micro climate.
+Intentional privacy screening was installed to allows guests to open bedroom doors and take advantage of the natural flow of fresh air. Jute window covers where installed to provide natural air-conditioning. Additionally an evaporative cooler was used in the common area that supported the creation of a pleasant micro climate.
 
 ![Work](./vivariumGeorgeTownGallery/vivariumPatio/patioWorkVivarium.jpg)
 
-**The Private Medicinal Food Garden;** boasted over ***27 large 5 gallon (or larger) containers*** located outside all bedroom windows, as well as ***22+ clay pots*** on the balcony. Nearly all plants being edible, medicinal or functional. Besides an assortment of herbs, aloe plants, and experimental seedlings like Durian the garden was home to 23 Moringa oleifera trees, Papaya trees, Coconut seedlings, Sacha inchi vines and a passion fruit vine (that tried to take over the laundry wire) where among the many plants. 
+**The Private Medicinal Food Garden;** boasted over ***27 large 5 gallon (or larger) containers*** located outside all bedroom windows, as well as ***22+ clay pots*** on the balcony. Nearly all plants being edible, medicinal or functional. Besides an assortment of herbs, aloe plants, and experimental seedlings like Durian the garden was home to 23 Moringa oleifera trees, Papaya trees, Coconut seedlings, Sacha inchi vines and a passion fruit vine (that tried to take over the laundry wire) where among the numerous plants.
 
 ![hanging patio garden](./vivariumGeorgeTownGallery/vivariumPatio/kokedama03.jpg)
 
-It became difficult to catalog the ever changing garden. Growing a diverse garden is part of what makes it a pleasure and easy to enjoy an Eco-responsible lifestyle. The gardens of the Vivarium, once established, was able to provided all nutritional requirements. (More details on plant selection and care will follow in a separate post.)
+It became difficult to catalog the ever changing garden. Growing a diverse garden is part of what makes it a pleasure and easy to enjoy an Eco-responsible lifestyle. ***The gardens of the Vivarium, once established, was able to provided all nutritional requirements.*** (More details on plant selection and care will follow in a separate post.)
 
 ![Kokedama](./vivariumGeorgeTownGallery/vivariumWindowHanging/vivariumKokedama01Web.jpg)
 
