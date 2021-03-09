@@ -43,7 +43,7 @@
 
 ## Cultivating an *Eco-logical Economy* creates the market for an *Economically Sustainable* future.
 
-### *A bio-logical movement, a 'symbiotic legacy venture' with Mother Earth. A system that operates to deliver positive ecological impact and by that symbiotically profit through seeding the soil, the Womb of Mother Earth.*
+### *A bio-logical movement, a 'symbiotic legacy venture' with Mother Earth. An ecosystem that operates to deliver positive ecological impact and by that symbiotically profit through seeding the soil, the Womb of Mother Earth.*
 
 #### *Cultivating The Mother Tree;* An archaic revival of Wo-Mans Gaian connection through honoring the feminine. Soil Sisters relate to Mother Earth, Gaia as *'The Live And Dynamic Co-evolutionary Partner'* in the shaping of the set, setting and the process.
 
@@ -59,19 +59,19 @@ Partnership system supports mutually respectful and caring relations. Reconcilia
 
 ***Connecting with things that make living possible.*** Being attracted to all that is alive and vital, the human tendency to relate with life and natural processes - *Is The Expression Of A Biological Need.*
 
-### *Quality Of Life* - Loss of biodiversity and ecosystems is catastrophic, impacts are symbiotic and happen within the physical body and Mother Earth, far into future generations.
+### *Quality Of Life* - Loss of biodiversity and ecosystems are catastrophic, impacts are symbiotic and happen within the physical body and *Mother Earth,* far into future generations.
 
 **Being responsible stewards of the Earth means taking to heart the current planetary healing crisis. Having accepted this circumstance *responsibility* then means *ability,* to have a *creative response* to the situation as it is *now.* The *seeds of opportunity* and awareness, to take the moment and transform it into a better situation.**
 
 #### An opportunity for the creation of something new and beautiful.
 
-**Putting nature on the balance sheet. Bio-Logical Eco system services; Transforming an Environ-mental withdraw to an Environ-mental Deposit for the future.**
+**Putting nature on the balance sheet. Bio-Logical Eco System Services; Transforming an Environ-mental withdraw to an Environ-mental Deposit for the future.**
 
 **Today’s young generation are being handed the biggest challenge of all; *'Cultivating Biodiversity'* the symbiotic living *'Fabric of Life'* of this planet.**
 
 **Not addressing immediate needs is an insult to the young. People with passion, purpose and practical skills make the world a better place.** 
 
-#### *It's time to call home. To act and that act to transfer through nature, soil to soul cultivate cultures that heal.*
+#### *It's time to call home. To act and that act to transfer through Mother Earth, soil to soul cultivate cultures that heal.*
 
 #### Explore
 
