@@ -3,7 +3,7 @@ title: The Alchemy Of Granola
 date: 2021-03-11
 ---
 
-# *Scrumptious to all the scenes, the flavor is an aromatic aphrodisiac.*
+# *Scrumptious to all the senses, the flavor is an aromatic aphrodisiac.*
 
 ## *Spiced Honey toasted oats, nuts and seeds mixed with sun dried fruits.*
 
