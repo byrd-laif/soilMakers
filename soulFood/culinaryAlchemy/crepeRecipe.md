@@ -35,6 +35,6 @@ Mix well, cook on a well oiled pan approximately 2-3 minutes per side. Depending
 
 Using a ladle, drop batter evenly onto the center of the pan, lift the pan swirling or gently shake to thin and evenly coat. The crêpes can be smaller than the diameter of the pan for ease of access, especial when using a standard fry pan. 
 
-![crepe on the way](./culinaryImages/crepeMagic.jpg)
+![crepe on the way](../culinaryImages/crepeMagic.jpg)
 
 
