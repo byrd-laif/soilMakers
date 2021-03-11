@@ -49,9 +49,9 @@
 
 ***Creating co-Evolutionary Leaders;*** Revolutionary Eco-logical actions that are transferable through to nature. ***Bio-Logical Earth Care*** provides the environment for an ecologically and economically sustainable future. Production (profit) can then become the consequence of conservation.
 
-A radical sift from the 'dominator'; biological warfare built on guilt, fear and force. To an 'ecological partnership'; Bio-Logical Freedom, free to swim in the rivers of Mother Earth without fear of reprisal.
+***Power as responsibility rather than domination.*** A radical sift from the 'dominator'; biological warfare built on guilt, fear and force. To an 'ecological partnership'; Bio-Logical Freedom, free to swim in the rivers of Mother Earth without fear of reprisal.
 
-Partnership system supports mutually respectful and caring relations. Reconciliation, free to turn and question: Where does Wo-Man go from here?
+Partnership systems support mutually respectful and caring relations. Reconciliation, free to turn and question: Where does Wo-Man go from here?
 
 **Environ-Mental Health ~ *The ethics of ecology;* Learning to live in the light of Nature.**
 
