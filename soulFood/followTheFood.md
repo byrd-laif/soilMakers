@@ -25,14 +25,14 @@ The felt experience of being in organism, standing as a mirror before nature as 
 
 ![Soul Food](./soilToSoulFoodImages/soulFood01.jpg)
 
-#### The Return: The journey through alchemy *of kind,* the redemption of earth through magic.
+**The Return: The journey through alchemy *in-kind,* the redemption of earth through magic. To be indigenous to a land means caring for it's next generations use.**
 
-**Alchemy of soil;** Plant knowledge distilled through the tomb of the physical body, cultivated into living soil, and returned to the womb of Mother Earth *in-kind,* as something useful. A microbial messenger, from human to hums with a different local and unique healing microbial make up, contact with the divine made into matter. To be indigenous to a land means caring for it's next generations use.
+#### *Alchemy of soil;* Plant knowledge distilled through the tomb of the physical body, cultivated into living soil, and returned to the womb of Mother Earth *in-kind.* Returned as something useful. A microbial messenger, from human to hums with a different local and unique healing microbial make up, contact with the divine made into matter.
 
-**And as such this journey will take her to a field,** the soils of the [Nam Khan Eco Lodge and Farm.](https://www.namkhanecolodge.com/) The Nam Khan River is a major tributary of the river Mekong, with which it joins at Luang Prabang. A journey 6.5km up river to harvest soil knowledge at the source, and document cultivation from seed to harvest.
+**And as such this journey will begin, in a field,** the soils of the [Nam Khan Eco Lodge and Farm.](https://www.namkhanecolodge.com/) The Nam Khan River is a major tributary of the river Mekong, with which it joins at Luang Prabang. A journey 6.5km up river to harvest soil knowledge at the source, and document cultivation from seed to harvest.
 
 ![Nam Khan River](./soilToSoulFoodImages/bambooBridgeNamKhan01.jpg)
 
 #### *Empowering direct experience.* What ever the physical mind feeds upon is what the *earth body* calls to Wo-Man, soil too soul they receive.
 
-
+To Be Continued ...
