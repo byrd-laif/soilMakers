@@ -14,13 +14,13 @@ date: 2021-02-28
 
 Civilized living; life-giving and life-sustaining with a high degree of refinement and comfort. Adaptable to all practical needs of life within an attractive built environment.
 
-![Curated to allow enjoyment of nature as freely as possible.](./vivariumGeorgeTownGallery/vivariumLivingRoom/vivariumLiving02Web.JPG)
+![Floor chairs on platform and patio.](./vivariumGeorgeTownGallery/vivariumLivingRoom/vivariumLiving02Web.JPG)
 
 ***Curated to allow enjoyment of nature as freely as possible.***
 
 Wo-Men have an inherited need to connect to nature and other biotic forms due to their *Evolutionary Dependence* on it for *Survival* and *Personal Fulfillment.* This is the human birth wright.
 
-![*Naturally tap into the abundant emotions, honoring the feminine.*](./vivariumGeorgeTownGallery/vivariumPatio/vivariumGTPatioBirdweb.JPG)
+![*Patio garden bird.*](./vivariumGeorgeTownGallery/vivariumPatio/vivariumGTPatioBirdweb.JPG)
 
 #### *Naturally tap into the abundant emotions of joy, grace, awe, wholeness, passion and compassion that are experienced from beauty in nature. An archaic revival of Wo-Mans symbiotic microbial Gaian connection, honoring the feminine by connecting soil to soul.*
 
@@ -32,17 +32,17 @@ Using the symbiotic relationship with *'Mother Earth'* as a path of discovery in
 
 #### *Psychobiology, where mind meets matter. The interaction between bio-logical systems and behavior.*
 
-![Hanging Gardens](./vivariumGeorgeTownGallery/vivariumWindowHanging/vivariumGTDoubleWindowViewWeb.JPG)
+![Hanging Gardens window with jute and bamboo Moringa room](./vivariumGeorgeTownGallery/vivariumWindowHanging/vivariumGTDoubleWindowViewWeb.JPG)
 
-***Healing environments*** allow one to draw emotional support from their settings through the Symbiotic Energy, the living energy of the space. One then feels free to move around and interact unselfconsciously, to combine ones life with the life of the living systems and elements within the built space. Achieved by bringing in a number of high quality visual and intuitive interactions among the bio-logical ecosystems and elements of a built space and its users. 
+***Healing environments*** allow one to draw emotional support from their settings through the Symbiotic Energy, the living energy of the space. One then feels free to move around and interact unselfconsciously, to combine ones life with the life of the living systems and elements within the built space. Achieved by bringing in a number of high quality visual and intuitive interactions among the bio-logical ecosystems and elements of a built space and its users.
 
-![Open Space](./vivariumGeorgeTownGallery/vivariumLivingRoom/vivariumGTLivingroomRelaxWeb.JPG)
+![Open Space living room, stone floor](./vivariumGeorgeTownGallery/vivariumLivingRoom/vivariumGTLivingroomRelaxWeb.JPG)
 
 A living design built upon the inherent intuitive 'biophilic' response to built forms, natural settings and systems. Designed to generate healthy interactions by encouraging their spontaneous occurrence. New ways of thinking, seeing and relating to the Natural World can be expanded, experienced. Causing a total shift of posture, perceptions, beliefs, and thought processes. Transforming ones relationship with the Natural World.
 
 ![Peek](./vivariumGeorgeTownGallery/vivariumLivingRoom/vivariumGTLivingroomPeekweb.jpg)
 
-#### *Designing and creating symbiotic living environments that support, restore and regenerate both the physical body and the environment (earth body) have positive effects on the health of a population as a whole, not just the individual within the living design.*
+#### *Authentic Living Design; creating symbiotic living environments that support, restore and regenerate both the physical body and the environment (earth body) have positive effects on the health of a population as a whole, not just the individual within the living design.*
 
 ![Authentic Living](./vivariumGeorgeTownGallery/vivariumLivingRoom/livingRoomCandidCafeWeb.jpg)
 
@@ -52,8 +52,8 @@ A living design built upon the inherent intuitive 'biophilic' response to built 
 
 #### *The way out is a personal responsibility, the way out is in the soil. When the soil is healed the soul follows.*
 
-*It's time to call home.* 
-*To act and that act to transfer through nature.*
+***It's time to call home.***
+***To act and that act to transfer through nature.***
 
 ![Home](./vivariumGeorgeTownGallery/vivariumLivingRoom/vivariumLiving015Web.JPG)
 
@@ -74,7 +74,7 @@ A living design built upon the inherent intuitive 'biophilic' response to built 
 
 **Environ-mental Health** - An enchanted sensibility can be strategically cultivated to ***'Capitalize On The Use Of The Senses To Create Change'.***
 
-***Physical body is the placebo;*** the mind’s natural capacity to influence bodily functions and symptoms. 
+***Physical body is the placebo;*** the mind’s natural capacity to influence bodily functions and symptoms.
 
 **Co-evolutionary ecosystems:** Re-establishing and encouraging healthy symbiotic connections with nature (Mother Earth) through sensory experiences; physical and biological interactions, movement, and hands-on activities. Allowing the brain, body and earth body to establish new, more productive patterns.
 
@@ -86,33 +86,39 @@ Inventing a new universe to live in, a universe of possibility. A place where pe
 
 **George Town, Penang**
 
-Due to the intermingling of the various ethnicities and religions that arrived on its shores, George Town acquired a large eclectic assortment of Colonial and Asian architectural styles. It also gained a reputation as gastronomic paradise. 
+Due to the intermingling of the various ethnicities and religions that arrived on its shores, George Town acquired a large eclectic assortment of Colonial and Asian architectural styles. It also gained a reputation as gastronomic paradise.
 
-The Vivarium, central to many George Town attractions and just 500 meters from "Link Bike" a public bike rental station. Pulau Tikus Market/Hawker Center: 1.2km, Botanical Garden: 3.2km and UNESCO World Heritage Site: 2.6km. 
+The Vivarium, central to many George Town attractions and just 500 meters from "Link Bike" a public bike rental station. Pulau Tikus Market/Hawker Center: 1.2km, Botanical Garden: 3.2km and UNESCO World Heritage Site: 2.6km.
 
-**The Neighborhood ~ Dunn Road**
+**The Neighborhood**
 
-![Dunn Road](./vivariumGeorgeTownGallery/vivariumMis/dunnRoadGeorgeTown_20170101.jpg)
+![Street viiew](./vivariumGeorgeTownGallery/vivariumMis/dunnRoadGeorgeTown_20170101.jpg)
 
-The surrounding low density neighborhood is tranquil with many large trees, and properties with plenty of green space. Dunn Road is one of the preferred addresses on the island today.
+The surrounding low density neighborhood is tranquil with many large trees, and properties with plenty of green space.
 
 #### The Building and Property
 
-**Dunn House** is a freehold, 3-story residential apartment building with just 15 exclusive units, each 1230 square feet in size. Dunn House is one of the pioneering boutique developments of George Town, Penang.
-
-![Dunn House](./vivariumGeorgeTownGallery/vivariumMis/dunnHouseStreetView.JPG)
+A residential, 3-story apartment building with 15 exclusive units, each 1230 square feet in size. With permission, residents were voluntary participants in composting and a small food garden was under personal cultivation.
 
 #### *The Vivarium ~ place of life*
 
-In October 2016 occupancy was privately secured for one of the third floor corner units, north-facing with three bedrooms. Permission had already been gained from the building management and residents for a food garden on the property that was already underway.
+In October 2016 occupancy was privately secured for one of the 3rd floor corner units, north-facing with 3 bedrooms.
 
 ![Dunn House Exterior](./vivariumGeorgeTownGallery/vivariumMis/vivariumPatioOutside01.jpg) 
 
-The unique design of the boutique residence offers each corner condo, three outside walls with large opening garden windows. Due to this design the Vivarium enjoyed a wonderful open feel and fantastic cross breeze. A conscious decision to experience the smell, sound and feel of an A/C free environment was made (a bold move at 5 degrees north of the equator).
+The unique design of the boutique residence offers each corner condo, three outside walls with large opening garden windows. Due to this design the Vivarium enjoyed a wonderful open feel and fantastic cross breeze.
 
-![Private](./vivariumGeorgeTownGallery/VivariumMasterBed/vivariumMasterPrivacyScreenEntranceWeb.JPG)
+![Vivarium Flow](./vivariumGeorgeTownGallery/vivariumLivingRoom/vivariumFlow.JPG)
 
-Intentional privacy screening was installed allowing guests to keep bedroom doors open; too take advantage and contribute to the natural flow of fresh air. Jute window covers where installed to provide natural air-conditioning. Additionally an evaporative cooler was used in the common area that supported the creation of a very pleasant and natural micro climate. (More details on Eco-deco and micro climates will follow in a separate post.)
+A conscious decision to experience the smell, sound and feel of an A/C free environment was made (a bold move at 5 degrees north of the equator).
+
+![double candid](./vivariumGeorgeTownGallery/VivariumDoublemoringaRoomCandid01Web.jpg)
+
+Intentional privacy screening was installed allowing guests to keep bedroom doors open; too take advantage and contribute to the natural flow of fresh air. 
+
+![Eco Window Covers](./vivariumGeorgeTownGallery/vivariumWindowHanging/vivariumGTWindowCoversDinning.jpg)
+
+Jute window covers where installed to provide natural air-conditioning. Additionally an evaporative cooler was used in the common area that supported the creation of a very pleasant and natural micro climate. (More details on Eco-deco and micro climates will follow in a separate post.)
 
 ![Work](./vivariumGeorgeTownGallery/vivariumPatio/patioWorkVivarium.jpg)
 
@@ -190,7 +196,7 @@ The Vivarium was a shoe free environment, guests where asked to leave outdoor sh
 
 Additionally guests where asked to please shower before laying in the bed, and not lay in the bed with street clothes on (being a hot climate in a shared living space this was a matter of personal requirement). 
 
-![Eco Window Covers](./vivariumGeorgeTownGallery/vivariumWindowHanging/vivariumGTWindowCoversDinning.jpg)
+![Private](./vivariumGeorgeTownGallery/VivariumMasterBed/vivariumMasterPrivacyScreenEntranceWeb.JPG)
 
 Guests where asked too leave windows open as much as possible for nice air flow and open the door of their room to enjoy and contribute to the flow of the whole space.
 
@@ -207,8 +213,6 @@ Guests had access to the spacious living/dinning rooms. The kitchen was generall
 **Interaction with Guests**
 
 Host and co-host were often around and someone was always contactable to help with anything guests needed. Host and co-hosts alike all loved good conversation with respect of guest privacy, engagement was at the discretion of the guest.
-
-![yoga with friends](./vivariumGeorgeTownGallery/vivariumMis/VivariumGTYogaWeb.jpg)
 
 **Other things to note:**
 

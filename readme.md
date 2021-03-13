@@ -75,11 +75,13 @@ Partnership systems support mutually respectful and caring relations. Reconcilia
 
 #### Explore
 
+[**Follow the Food; The Alchemy of soul food, from soil to plate to soil.**](./soulFood/followTheFood.md)
+
 [**BioPhilia Living Design - *Proof of Concept* Urban Sustainable Eco-Living**](./bioPhiliaLivingDesignProofOfConcept/creativeEcoLivingProofOfConcept.md)
 
 [**Proof of Concept Guest Reviews**](./bioPhiliaLivingDesignProofOfConcept/proofOfConceptReviews.md)
 
-#### Programs/Resources
+#### [Programs/Resources](./lifeStylesForChange)
 
 - [Soil Seekers / Vivarium Salon Circle Elements, Etiquette and Governance](./lifeStylesForChange/vivariumSalonCircleElements.md)
 
