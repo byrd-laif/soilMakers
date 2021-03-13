@@ -112,7 +112,7 @@ The unique design of the boutique residence offers each corner condo, three outs
 
 A conscious decision to experience the smell, sound and feel of an A/C free environment was made (a bold move at 5 degrees north of the equator).
 
-![double candid](./vivariumGeorgeTownGallery/VivariumDoublemoringaRoomCandid01Web.jpg)
+![double candid](./vivariumGeorgeTownGallery/VivariumDouble/moringaRoomCandid01Web.jpg)
 
 Intentional privacy screening was installed allowing guests to keep bedroom doors open; too take advantage and contribute to the natural flow of fresh air. 
 
@@ -122,7 +122,11 @@ Jute window covers where installed to provide natural air-conditioning. Addition
 
 ![Work](./vivariumGeorgeTownGallery/vivariumPatio/patioWorkVivarium.jpg)
 
-**The Private Medicinal Food Garden;** boasted over ***27 large 5 gallon (or larger) containers*** located outside all bedroom windows, as well as ***22+ clay pots*** on the balcony. Nearly all plants being edible, medicinal or functional. Besides an assortment of herbs, aloe plants, and experimental seedlings like Durian the garden was home to 23 Moringa oleifera trees, Papaya trees, Coconut seedlings, Sacha inchi vines and a passion fruit vine (that tried to take over the laundry wire) where among the numerous plants.
+**The Private Medicinal Food Garden;** boasted over ***27 large 5 gallon (or larger) containers*** located outside all bedroom windows, as well as ***22+ clay pots*** on the balcony. Nearly all plants being edible, medicinal or functional. 
+
+![passion flower](./vivariumGeorgeTownGallery/vivariumGarden/patioPassion.jpg)
+
+Besides an assortment of herbs, aloe plants, and experimental seedlings like Durian the garden was home to 23 Moringa oleifera trees, Papaya trees, Coconut seedlings, Sacha inchi vines and a passion fruit vine (that tried to take over the laundry wire) where among the numerous plants.
 
 ![hanging patio garden](./vivariumGeorgeTownGallery/vivariumPatio/kokedama03.jpg)
 
@@ -143,6 +147,8 @@ Rooms had low voltage LED lighting providing a pleasant healthy light, a large c
 Kitchen was well supplied for preparing modest meals. Washing machine was locate off the kitchen. Drinking water was arranged for delivery and offered to guests at market rate.
 
 This was a shared private residence. At times the entire space was made available, mostly there was a live in host (curator) or co-host that helped the project literally stay alive, always self selected and in harmony with the concept. Guests where offered laundry service and a small 'A La Carte Menu' was also available for a modest fee.
+
+![mangoGinger](./vivariumGeorgeTownGallery/vivariumGarden/mangoGingerHarvestVivariumApril2018.jpg)
 
 **Marketing**
 
