@@ -112,7 +112,7 @@ The unique design of the boutique residence offers each corner condo, three outs
 
 A conscious decision to experience the smell, sound and feel of an A/C free environment was made (a bold move at 5 degrees north of the equator).
 
-![double candid](./vivariumGeorgeTownGallery/VivariumDouble/moringaRoomCandid01Web.jpg)
+![relax living](./vivariumGeorgeTownGallery/vivariumLivingRoom/vivariumLiving01Web.JPG)
 
 Intentional privacy screening was installed allowing guests to keep bedroom doors open; too take advantage and contribute to the natural flow of fresh air. 
 
