@@ -23,7 +23,7 @@ date: 2021-03-09
 
 #### *The Return; a journey through the alchemy of soil.*
 
-**A movable feast; plant knowledge distilled and assimilated through the physical body, cultivated into living soil, and returned to the womb of Mother Earth *in-kind.* Sustenance; life supporting and sustaining. Returned as something healing.**
+**A movable feast; plant knowledge distilled and assimilated through the physical body, cultivated into living soil, and returned to the womb of Mother Earth *in-kind.* Sustenance; life supporting and sustaining. Returned as something meaningful.**
 
 **Direct contact with the divine made manifest.**
 *A symbiotic microbial messenger; from humus to human to humus. Returned to a different local with a unique healing microbial make up. Healing Wo-man, their relationships with one another and Mother Earth through the unified soil womb.*
