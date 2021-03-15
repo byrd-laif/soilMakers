@@ -13,23 +13,19 @@ date: 2021-03-09
 
 ![Growing Green](./soilToSoulFoodImages/frogPot.jpg)
 
-***Its not that nature is alive its that its intelligent. Woman is nature and as such, can speak for Mother Earth.***
+#### Woman is A Religion of; The redemption of Earth through magic. To act, and that act to transfer through the healing microbial soil, the Womb of Mother Earth.
 
-**Woman is A Religion of; The redemption of earth through magic.**
+***Its not that nature is alive its that its intelligent. The felt experience of being in organism; standing as a mirror before nature as its object. Its not to see life, its to recognize it when its seen. Woman is nature and as such, can speak for Mother Earth.***
 
-The Womb of the Earth is the Soil, the tomb of Wo-Man is the Womb of Mother Earth. 
-
-The felt experience of being in organism, standing as a mirror before nature as its object, for its the object that creates the subject. Its not to see life, its to recognize it when its seen.
-
-**This will document the alchemical journey of *Soul Food,* from its soil source, cultivation, harvest, preservation/preparation to culinary delight, and its multi dimensional return back to source, soil.**
+#### *This will document the alchemical journey of *Soul Food,* from its soil source, cultivation, harvest, preservation/preparation to culinary delight, and its multi dimensional return back to source, soil.*
 
 ![Soul Food](./soilToSoulFoodImages/soulFood01.jpg)
 
 **The Return: The journey through alchemy *in-kind,* the redemption of earth through magic. To be indigenous to a land means caring for it's next generations use.**
 
-#### *Alchemy of soil;* Plant knowledge distilled through the tomb of the physical body, cultivated into living soil, and returned to the womb of Mother Earth *in-kind.* Returned as something useful. A microbial messenger, from human to hums with a different local and unique healing microbial make up, contact with the divine made into matter.
+#### *Alchemy of soil;* Plant knowledge distilled through the physical body, cultivated into living soil, and returned to the womb of Mother Earth *in-kind.* Returned as something useful. A microbial messenger; from humus to human to humus. Returned, to a different local with a unique healing microbial make up. Contact with the divine made into matter, healing Wo-mans relationship with Mother Earth through the soil.
 
-**And as such this journey will begin, in a field,** the soils of the [Nam Khan Eco Lodge and Farm.](https://www.namkhanecolodge.com/) The Nam Khan River is a major tributary of the river Mekong, with which it joins at Luang Prabang. A journey 6.5km up river to harvest soil knowledge at the source, and document cultivation from seed to harvest.
+**This journey will begin, in a field,** the soils of the [Nam Khan Eco Lodge and Farm,](https://www.namkhanecolodge.com/) chosen for its proximity and ease of access. The Nam Khan River is a major tributary of the river Mekong, with which it joins at Luang Prabang. A journey 6.5km up river to harvest soil knowledge at the source, and document cultivation from seed to harvest. The journey will then continue through to home kitchen and its microbial return.
 
 ![Nam Khan River](./soilToSoulFoodImages/bambooBridgeNamKhan01.jpg)
 
