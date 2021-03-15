@@ -23,7 +23,7 @@ date: 2021-03-09
 
 **The Return: The journey through alchemy *in-kind,* the redemption of earth through magic. To be indigenous to a land means caring for it's next generations use.**
 
-#### *Alchemy of soil;* Plant knowledge distilled through the physical body, cultivated into living soil, and returned to the womb of Mother Earth *in-kind.* Returned as something useful. A microbial messenger; from humus to human to humus. Returned, to a different local with a unique healing microbial make up. Contact with the divine made into matter, healing Wo-mans relationship with Mother Earth through the soil womb.
+#### *Alchemy of soil;* Plant knowledge distilled and assimilated through the physical body, cultivated into living soil, and returned to the womb of Mother Earth *in-kind.* Returned as something useful. A symbiotic microbial messenger; from humus to human to humus. Returned, to a different local with a unique healing microbial make up. Contact with the divine made into matter, healing Wo-man and relationship with Mother Earth through the soil womb.
 
 **As such this journey will begin in a field,** the soils of the [Nam Khan Eco Lodge and Farm,](https://www.namkhanecolodge.com/) chosen for its proximity and ease of access. The Nam Khan River is a major tributary of the river Mekong, with which it joins at Luang Prabang. A journey 6.5km up river to harvest soil knowledge at the source, and document cultivation from seed to harvest. The journey will then continue to the home kitchen through too its dynamic return to microbial soil.
 
