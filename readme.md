@@ -7,7 +7,7 @@
 ## *Vivarium Salon Circle/Programs ~ place of life*
 *Global Communities For Local Impact. Cross-pollinate and connect diverse opinions.*
 
-### Life*Styles* For Change ~ Becoming a part of the circle of life.
+### [Life*Styles* For Change ~ Becoming a part of the circle of life.](./lifeStylesForChange)
 
 **Vivarium Salon Culture; *Art,* as the vehicle of feeling with and thinking through living in a damaged world, cultivating cultures that symbiotically heal soil to soul.** An effort to cultivate personal potential and help others do so in the process.
 

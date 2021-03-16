@@ -30,7 +30,7 @@ date: 2021-03-09
 
 #### *Empowering direct experience.* What ever the physical mind feeds upon is what the *earth body* calls to Wo-Man, soil too soul they receive.
 
-**As such this journey will begin in a field,** the soils cultivated by the [Nam Khan Eco Lodge and Farm,](https://www.namkhanecolodge.com/) chosen for its close proximity and open access. The Nam Khan River is a major tributary of the river Mekong, with which it joins at Luang Prabang. A journey 6.5km up river to harvest soil knowledge at the source, and document cultivation from seed to harvest. The journey will then continue into the home kitchen, sharing recipes that honor whole health. Moving into the fermentation chamber and following its dynamic return to source, cultivating soil.
+**As such this journey will begin in a field,** the soils cultivated by the [Nam Khan Eco Lodge and Farm,](https://www.namkhanecolodge.com/) chosen for its close proximity and open access. The Nam Khan River is a major tributary of the river Mekong, with which it joins at Luang Prabang. A journey 6.5km up river to harvest soil knowledge at the source, and document cultivation from seed to harvest. The journey will then continue into the home kitchen, sharing recipes of soul food that honors the physical body. Moving into the fermentation chamber, following its dynamic return to source, cultivating microbial soul food for the soil.
 
 ![Nam Khan River](./soilToSoulFoodImages/bambooBridgeNamKhan01.jpg)
 
