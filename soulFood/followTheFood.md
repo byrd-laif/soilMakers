@@ -9,7 +9,7 @@ date: 2021-03-09
 
 ### *To whence it comes from, to wherein it is going, and to whither it will become.*
 
-#### Nature creates conditions for life, she can't force it and she can't fake it. Things must undergo the formality of actually occurring. Its the soil and plants as part of a *symbiotic partnership* that make soul food plausible.
+#### Soil to Soul; Nature creates conditions for life. She can't force it and she can't fake it, things must undergo the formality of actually occurring. Its the soil and plants as part of a *symbiotic partnership* that make soul food plausible.
 
 ![Growing Green](./soilToSoulFoodImages/frogPot.jpg)
 
