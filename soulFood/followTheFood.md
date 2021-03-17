@@ -27,16 +27,16 @@ date: 2021-03-09
 
 #### *Direct contact with the divine made manifest.*
 
-***A symbiotic microbial messenger; from humus, through human, to humus. Returned to a different local with a unique healing microbial make up. Healing Wo-man, their relationships with one another and Mother Earth through the unified soil womb.***
+**Soil to *ancestral soul*, a symbiotic microbial messenger; from humus, through human, to humus. Returned to a different local with a uniquely healing microbial make up, pro-biotic soul food for the *soil ancestors*. Healing Wo-Man, their relationships with one another and *Mother Earth* through the unified soil womb.**
 
 #### *Empowering direct experience.* What ever the physical mind feeds upon is what the *Earth Body* calls to *Wo-Man*, *Soil too Soul* they receive.
 
-**As such this journey will begin in a field,** the soils cultivated by the [Nam Khan Eco Lodge and Farm,](https://www.namkhanecolodge.com/) chosen for the close proximity and open access. The Nam Khan River is a major tributary of the river Mekong, with which it joins at Luang Prabang. A journey 6.5km up river to harvest soil knowledge at the source, and document cultivation from seed to harvest. The journey will then continue into the home kitchen, sharing recipes of soul food for the physical body. Moving through the body into the fermentation chamber, following the dynamic alchemical return to source, cultivating microbial soil, soul food for the earth body.
+**As such this journey will begin in a field,** the soils cultivated by the [Nam Khan Eco Lodge and Farm,](https://www.namkhanecolodge.com/) chosen for the close proximity and open access. The Nam Khan River is a major tributary of the river Mekong, with which it joins at Luang Prabang. A journey 6.5km up river to harvest soil knowledge at the source, and document cultivation from seed to harvest. The journey will then continue into the home kitchen, sharing recipes of soul food for the physical body. Moving from the physical body through a series fermentation chambers, sharing knowledge of cultivating pro-biotic soil, healing soul food for the earth body.
 
 ![Nam Khan River](./soilToSoulFoodImages/bambooBridgeNamKhan01.jpg)
 
 ***To reveal a path toward healing the rift that grows between Wo-Man and nature.***
 
-Bring the body back into conversation with all that is green and growing. A universe that never stopped speaking to Wo-man, even when they forgot how to listen.
+Bring the physical body back into conversation with all that is green and growing. A universe that never stopped speaking to Wo-Man, even when they forgot how to listen.
 
 To Be Continued ...
