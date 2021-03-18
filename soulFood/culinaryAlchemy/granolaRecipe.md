@@ -20,13 +20,13 @@ Makes about 10 cups
 - 1/2 cup pumpkin seeds 120 mL
 - 1/4 cup undulled sesame seeds 60mL (or any combination of appropriate raw nuts and seeds)
 - 2 tsp cinnamon 10 mL (or combination, ginger and clove ...)
-- 2/3 cup sunflower, safflower or coconut oil 160 mL
-- 1/3 - 2/3 cup honey 80 - 160 mL (to taste)
+- 2/3 cup sunflower, safflower, olive or coconut oil 160 mL
+- 1/3 - 2/3 cup honey or maple syrup 80 - 160 mL (to taste)
 - 2 tsp vanilla 10 mL
 - 1 cup unsweetened shredded dry coconut 240 mL
 - 2 cups of dried fruit: raisins, blueberries, cranberries, cherries, chopped dry apricots, various wild foraged and dried berries, ... . 
 
-Dried fruit, toasted seeds or nuts are added after the granola has been cooked and cooled.
+Dried fruit, toasted seeds or nuts are added after the granola has been cooked and cooled. Or can be omitted and added upon serving.
 
 To avoid shredded dry coconut becoming over cooked toast on its own or add raw. 
 
@@ -44,6 +44,8 @@ In a small saucepan, warm the oil and honey under low heat, stir continuously un
 Bake until golden, stirring every 15 - 20 minutes in the oven. The granola may still be slightly soft (add spice) but will crisp up as it cools. It takes about an hour to bake at 250 degrees, less time at a higher heat.
 
 ***For stove top;*** using a deep dish fry pan or stock pot, warm the oil and honey under low heat, stir continuously until blended then add vanilla. Add oats, nuts and seeds directly to the pan. With a large flat edge spoon, toss well until granola is shiny and well coated. Raise the heat and toast until golden, (before it becomes dry add the spices) stirring regularly as needed to not over cook. Cool completely before storing in an airtight container.
+
+***Alchemists Tip:*** Nothing binds like protein. After the oats are dressed in the spiced honey and oil- adding one or two well whisked egg whites will create clusters of granola. (bake only)
 
 ***Served with fresh Kefir Milk.***
 
