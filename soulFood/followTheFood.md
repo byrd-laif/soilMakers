@@ -15,7 +15,7 @@ date: 2021-03-09
 
 #### Woman is A Religion of; The redemption of Earth through magic. Meaningful work; an Act that transfers through to nature, the microbial soil, symbiotically healing Wo-Man too the Womb of Mother Earth. To be indigenous of a land means caring for it's next generations use.
 
-***Its not that nature is alive its that its intelligent. The felt experience of being in organism; standing as a mirror before nature as its object. Its not to see life, its to recognize it when its seen. Woman is natures destination and as such, She can speak for Mother Earth.***
+***Intelligence is not to see that nature is alive, its to recognize it when its seen. The felt experience of being in organism; standing as a mirror before nature as its object. Woman is natures destination, as such She can speak for Mother Earth.***
 
 **This will document the alchemical journey of *Soul Food,* from its soil source, cultivation, harvest, preservation/preparation to culinary delight, and its multi dimensional return to source, soil.**
 
