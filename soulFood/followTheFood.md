@@ -25,11 +25,11 @@ date: 2021-03-09
 
 **A movable feast; plant knowledge distilled and assimilated through the physical body, cultivated into living soil, and returned to the womb of Mother Earth *in-kind.* Sustenance; life supporting and sustaining. Returned as something meaningful.**
 
-#### *Re-connecting seed of soil; direct contact with the divine made manifest.*
+#### *Empowering direct experience, contact with the divine made manifest.*
 
-**Soil seed for the *ancestral soul*, a symbiotic microbial messenger; from humus, through human, to humus. Returned to a different local with a uniquely healing microbial make up, pro-biotic soul food for the *soil ancestors*. Healing Wo-Man, their relationships with one another and *Mother Earth* through the unified *Soil Womb*.**
+**A symbiotic microbial messenger; from humus, through human, to humus. Returned to a different local with a uniquely healing microbial make up, pro-biotic soul food for the *ancestral soil* of the earth body. Healing Wo-Man, their relationships with one another and Mother Earth through the unified *Soil Womb*.**
 
-#### *Empowering direct experience.* What ever the physical mind feeds upon is what the *Earth Body* calls to *Wo-Man*, *Soil too Soul* they receive.
+#### What ever the physical mind feeds upon is what the *Earth Body* calls to *Wo-Man*, *Soil too Soul* they receive.
 
 **As such this journey will begin in a field,** the soils cultivated by the [Nam Khan Eco Lodge and Farm,](https://www.namkhanecolodge.com/) chosen for the close proximity and open access. The Nam Khan River is a major tributary of the river Mekong, with which it joins at Luang Prabang. A journey 6.5km up river to harvest soil knowledge at the source, and document cultivation from seed to harvest. The journey will then continue into the home kitchen, with recipes of soul food for the physical body. Moving through the physical body, bio-matter enters into a cyclical fermentation process, whereupon the spirit is released. From tomb to womb, emerging whole as unified humus soil, pro-biotic soul food for the earth body.
 
