@@ -27,7 +27,7 @@ date: 2021-03-09
 
 #### *Re-connecting seed of soil; direct contact with the divine made manifest.*
 
-**Soil seed to *ancestral soul*, a symbiotic microbial messenger; from humus, through human, to humus. Returned to a different local with a uniquely healing microbial make up, pro-biotic soul food for the *soil ancestors*. Healing Wo-Man, their relationships with one another and *Mother Earth* through the unified *Soil Womb*.**
+**Soil seed for the *ancestral soul*, a symbiotic microbial messenger; from humus, through human, to humus. Returned to a different local with a uniquely healing microbial make up, pro-biotic soul food for the *soil ancestors*. Healing Wo-Man, their relationships with one another and *Mother Earth* through the unified *Soil Womb*.**
 
 #### *Empowering direct experience.* What ever the physical mind feeds upon is what the *Earth Body* calls to *Wo-Man*, *Soil too Soul* they receive.
 
