@@ -25,9 +25,9 @@ date: 2021-03-09
 
 **A movable feast; plant knowledge distilled and assimilated through the physical body, cultivated into living soil, and returned to the womb of Mother Earth *in-kind.* Sustenance; life supporting and sustaining. Returned as something meaningful.**
 
-#### *Direct contact with the divine made manifest.*
+#### *Re-connecting seed of soil; direct contact with the divine made manifest.*
 
-**Soil to *ancestral soul*, a symbiotic microbial messenger; from humus, through human, to humus. Returned to a different local with a uniquely healing microbial make up, pro-biotic soul food for the *soil ancestors*. Healing Wo-Man, their relationships with one another and *Mother Earth* through the unified soil womb.**
+**Soil seed to *ancestral soul*, a symbiotic microbial messenger; from humus, through human, to humus. Returned to a different local with a uniquely healing microbial make up, pro-biotic soul food for the *soil ancestors*. Healing Wo-Man, their relationships with one another and *Mother Earth* through the unified soil womb.**
 
 #### *Empowering direct experience.* What ever the physical mind feeds upon is what the *Earth Body* calls to *Wo-Man*, *Soil too Soul* they receive.
 
@@ -35,8 +35,8 @@ date: 2021-03-09
 
 ![Nam Khan River](./soilToSoulFoodImages/bambooBridgeNamKhan01.jpg)
 
-***To reveal a path toward healing the rift that grows between Wo-Man and nature.***
+#### *To reveal a path toward healing the rift that grows between Wo-Man and nature.*
 
-Bring the physical body back into conversation with all that is green and growing. A universe that never stopped speaking to Wo-Man, even when they forgot how to listen.
+Bring the *physical body* back into conversation with all that is green and growing. A universe that never stopped speaking to *Earth Wo-Man,* even when they forgot how to listen.
 
 To Be Continued ...
