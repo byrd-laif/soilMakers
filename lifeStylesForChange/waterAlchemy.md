@@ -25,7 +25,7 @@ Wo-Men don't have to abandon their 'modern' lives but they do have to protect th
 
 ![Enzyme Spa Glass Brew](./enzymeImages/enzymeGlassBrew.jpg)
 
-***Self-care that goes far beyond the self.* Symbiotically nourishing, fortifying and gentle. Remarkably enough the Physical Body and Mother Earth find natural healing benefits from this one easy process.***
+***Self-care that goes far beyond the self. Symbiotically nourishing, fortifying and gentle. Remarkably enough the Physical Body and Mother Earth find natural healing benefits from this one easy process.***
 
 *Yes, Nature is that simple, effective and synergistic.*
 
@@ -55,11 +55,11 @@ There are many targeted uses for these metabolites. LAB are applied in food prod
 #### *Why make Eco-Enzyme?*
 
 **Waterborne infections account for 80% of all infectious diseases.**
-There is a serious global environmental resource problem of water, soil and energy that are now coming to bear on *Life As People Know It:* food production, malnutrition, the incidence of diseases, ... . By 2025, half the world population will be living in water-stressed areas.(WHO) People are literally killing the micro-biome with chemicals that alter this grand vast unknowable microbial balance of Mother Earth. 
+There is a serious global environmental resource problem of water, soil and energy that are now coming to bear on *Life As People Know It:* food production, malnutrition, the incidence of diseases, ... . ***By 2025, half the world population will be living in water-stressed areas.***(WHO) People are literally killing the micro-biome with chemicals that alter this grand vast unknowable microbial balance of Mother Earth. 
 
 **Re-use of wastewater, to recover water, nutrients, or energy, is becoming an important strategy.**
 
-#### *water*
+#### *WATER*
 It is very difficult to reverse the effects of water pollution. Natural processes that cleanse the water can take years, decades, or even centuries, and even with costly technological processes, it can take years to remove all of the harmful substances from the water. There are many aspects of the contamination that must be removed. **First, and most importantly, the source of the water pollution must be removed, so that additional water contamination does not occur.**
 
 **Home Cleaning products and fertilizers made with chemicals and pesticides pollute the underground water, rivers and surrounding ecosystems.** Pharmaceutical drugs and personal care products, also manufactured by many pharmaceutical companies (such as sunscreen lotions, lipsticks, deodorants, perfumes, body soaps, and shampoos, ...), are produced in staggeringly huge quantities; **often equaling or surpassing agrochemicals in tonnage.** The volume consumed is simply astounding. All of these go into the ecosystem, most of them into waste treatment systems. These conventional cleaning products contain harmful amounts of chemicals such as phosphate, nitrates, ammonia, chlorine etc. The accumulated effect of these chemicals released from every household causes significant damage to the health of the environment and the body. 
@@ -76,11 +76,11 @@ It is very difficult to reverse the effects of water pollution. Natural processe
 
 ***On Behalf Of Life.* A Gift of Life, given symbiotically by cleaning and healing the whole body and built environment with Pro-biotic Eco-enzyme.**
 
+### *Symbiotic Microbial Gardens, Body and Soil.*
+
 **Water, the “universal solvent,”** water is a major constituent of the soil and exerts a strong influence on soil biota because many of the biota are adapted to life in a saturated atmosphere. Pro-Biotic Eco-Enzyme are *soul food* for the micro-biome, Soil to Soul.
 
-### *Symbiotic Microbial Gardens, Body and Soil .* 
-
-#### *There is a micro-biome connection between Humans and the Soil.*
+#### *The micro-biome connection between Humans and the Soil.*
  
 **A healthy micro-biome, which consists of an overwhelming majority of beneficial pro-biotic bacteria, is one of the most fundamental aspects of health.**
 
@@ -99,8 +99,6 @@ Fermentation naturally produces Lactic Acid Bacteria (LAB), one of the most well
 #### *Pro-biotic Eco-enzyme Benefits:*
 
 ***Naturally; Anti-Bacterial, Anti-Fungal, Anti-Viral and a Natural Antiseptic.***
-
-***Deliciously rich, gourmet food for the micro-biome of the skin. The lightweight essence is readily accepted and absorbed, immediately seeping deep into the skin.***
 
 **Stable**- If the ferment is full of its necessary nutrients, it can survive even at pH value below 3.5, this ferment usually produces a beautiful safe and stable pH range of 4.5-5. The fermentation can remain active even at temperatures as high as 100C. 
 
@@ -183,13 +181,13 @@ Fermentation time & environment: 3 months minimum, from the time stopped adding 
 **Separate kitchen remnants**, think aroma.
 Different organics have different benefits aromas and textures. Separate citrus fruits like Orange, Lemon, Lime and Pineapple into a dedicated bin, these create a fantastic and powerful cleaning enzyme. Other aromatics and medicinal plants and flowers such as Ginger, Aloe Vera Lemongrass, Tea, Plumeria, Rose ... can be added for a luxurious whole body healing wash product.
 
+Create a separate catch-all bin for everything else like veggie scraps, purely for 'compost', garden use and drains. Or add these to the [Bokashi](./soilAlchemy.md) pro-biotic soil building bin.
+
 ![flowers](./enzymeImages/flowersPlumeria.jpg)
 
 **Use Airlocks for an anaerobic environment.** Keeping the ferment clean and free of insects. This is important for a nice functional product and for safety, **containers may burst if the gasses are not released.** Plastic containers are best suited for this reason. Repurposed plastic milk containers are perfect.
 
 ![air lock](./enzymeImages/airLock.jpg)
-
-It’s a great idea to have a catch-all bin for everything else like veggie scraps that is just purely 'compost' for the garden and drains. Or add these to the [Bokashi](./soilAlchemy.md) pro-biotic soil building bin.
 
 - Cut the ingredients into small pieces to let them break down faster.
 - Make sure all the organic ingredients are covered by the sugar water.
@@ -201,7 +199,7 @@ It’s a great idea to have a catch-all bin for everything else like veggie scra
 - Label the ‘Start Date’ on the container.
 - The best Eco-Enzyme ferments are 3 months and longer, fermentation starts once the last organic ingredients are added into the container.
 
-**Micro fiber works great for catching this white 'kahm yeast' that naturally forms on the surface.**
+**Micro fiber works great for filtering the white 'kahm yeast' that naturally forms on the surface.**
 
 ![enzyme filter with micro fiber](./enzymeImages/enzymeFineProcess08.jpg)
 
