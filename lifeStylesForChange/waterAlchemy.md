@@ -19,7 +19,7 @@ date: 2018-08-13
 
 #### Pro-biotic Eco-enzyme is *Water Therapy;* the practice of spending time *cultivating living healing water* for the purpose of enhancing whole health, *Earth Care,* wellness, and happiness. A practice of *symbiotic connection* with the natural world and with each other, *healing water to soul.*
 
-Wo-Men connect threw water, the universal solvent. Water speaks it takes the knowledge of the leaf from the mountains to the sea, and the rain takes it up from the sea back to the mountains.
+Wo-Men connect through water, the universal solvent. Water speaks it takes the knowledge of the leaf from the mountains to the sea, and the rain takes it up from the sea back to the mountains.
 
 Wo-Men don't have to abandon their 'modern' lives but they do have to protect the rivers.
 
@@ -44,11 +44,7 @@ Like wine, sediment is normal and can be left in or allowed to settle for ease o
 ![Enzyme Spa Sun](./enzymeImages/enzymeFilteredSediment_web.jpg)
 
 **A pro-biotic power house is born.**
-The fermentation process naturally increases the bio-availability, making it so the physical body and Mother Earth are able to absorb the nutrients. 
-
-Eco-enzymes are complex organic substance of protein chains, mineral salts and juvenile hormones.
-
-The extraction of enzymes, organic acids, and phenolic compounds through the fermentation process is preferred over conventional methods that require costly solvents, involve the possible degradation of heat-labile compounds, and through which it is difficult to obtain high purity extracts.
+The fermentation process naturally increases the bio-availability, making it so the physical body and Mother Earth are able to absorb the nutrients.
 
 There are many targeted uses for these metabolites. LAB are applied in food production and preservation, companies package them and sell them at a high cost. The majority of products on the market are powdered or freeze-dried, this process causes damage to the microbes, resulting in 90 to 95% die off. This means, even though colony counts are high, only 5 to 10% of the microbes are actually alive.
 
@@ -76,15 +72,11 @@ It is very difficult to reverse the effects of water pollution. Natural processe
 
 **Science defines Pro-biotic as live micro-organisms that, "when administered in adequate amounts, confer a health benefit on the host."**
 
-**Pro- ‘for, on behalf of’.**
-
-**Biotic- ‘life’.**
-
 **Why make Pro-Biotic Eco-Enzyme?**
 
-***On Behalf Of Life.* A Gift of Life, given symbiotically by cleaning and healing the whole body and built environment with Pro-biotic Eco-enzyme. More than skin deep, water is a constituent of the soil, *soul food* for the micro-biome, Soil to Soul.**
+***On Behalf Of Life.* A Gift of Life, given symbiotically by cleaning and healing the whole body and built environment with Pro-biotic Eco-enzyme.**
 
-**Water, the “universal solvent,”** exerts a strong influence on soil biota because many of the biota are adapted to life in a saturated atmosphere.
+**Water, the “universal solvent,”** water is a major constituent of the soil and exerts a strong influence on soil biota because many of the biota are adapted to life in a saturated atmosphere. Pro-Biotic Eco-Enzyme are *soul food* for the micro-biome, Soil to Soul.
 
 ### *Symbiotic Microbial Gardens, Body and Soil .* 
 
@@ -102,15 +94,19 @@ Fermentation naturally produces Lactic Acid Bacteria (LAB), one of the most well
 
 **Fermenting fresh organic kitchen matter can reduce 70% of the total waste production and reduce the bad gases produced during organic decomposition, while saving the environment by creating a beneficial, symbiotic substance to combat the negative use of toxic chemicals and pollutants.**
 
+![bottle glass](./enzymeImages/proBioticEcoEnzymeGlass.jpg)
+
 #### *Pro-biotic Eco-enzyme Benefits:*
 
 ***Naturally; Anti-Bacterial, Anti-Fungal, Anti-Viral and a Natural Antiseptic.***
+
+***Deliciously rich, gourmet food for the micro-biome of the skin. The lightweight essence is readily accepted and absorbed, immediately seeping deep into the skin.***
 
 **Stable**- If the ferment is full of its necessary nutrients, it can survive even at pH value below 3.5, this ferment usually produces a beautiful safe and stable pH range of 4.5-5. The fermentation can remain active even at temperatures as high as 100C. 
 
 **Safe**- Naturally teaming with antimicrobial goodness, these bacteria inhibit the growth of pathogens naturally eliminating the need for preservatives. Ferments are toxic free and perfect for the most sensitive at any age.
 
-**Medicinal**- LAB ferments are part of normal micro-flora of the skin, gastrointestinal and genitourinary (the urinary and genital organs) tracts, hence they are used as components of many medical pro-biotic products.
+**Medicinal**- LAB ferments are part of normal micro-flora of the skin, gastrointestinal and genitourinary (the urinary and genital organs) tracts, hence they are used as components of many medical pro-biotic products. Rich in antioxidants that decelerate the aging of cells, fermentation produces amino acids and peptides that promote healthy cellular renewal.
 
 **Bioremediation**- Biotechnology employs the use of living organisms, microbes and bacteria, in the removal of contaminants, pollutants, and toxins from soil, water, and other environments.
 
@@ -131,25 +127,7 @@ Fermentation naturally produces Lactic Acid Bacteria (LAB), one of the most well
 - water
 - fresh fruit remnants
 
-### *Clean Beauty Green Beauty*
-
 ![bottle glass product](./enzymeImages/enzymeMarket.jpg)
-
-#### **Deliciously rich, gourmet food for the micro-biome of the skin. *Fermented ingredients are a supercharged turbo boost skincare routine.***
-
-**The lightweight essence is readily accepted and absorbed, immediately seeping deep into the skin, rich in antioxidants that decelerate the aging of cells. The fermentation process produces amino acids and peptides that promote healthy cellular renewal.**
-
-**Fermentation naturally produce:** 
-
-**Alpha hydroxy acid-** AHA, the all-important ingredient that mildly exfoliates. Working by accelerating skin cell turnover gently exfoliating, helping slough away dead skin cells to reveal its natural gorgeous glow. Acts as a moisturizer and humectant, meaning it draws water into the skin, helping to plump-up the skin producing a smooth, luminous appearance.
-
-**Lactic acid-** LA, is known for making the skin extremely soft while also brightening. Lactic acid helps prevent and reverse signs of aging by increasing the collagen production of the skin. Effectively improving skin tone of post-inflammatory hyper-pigmentation (the darkness that gets left behind after acne, a burn or injury to the skin), pigment issues like melisma, sun spots and dull looking skin. 
-
-Like AHAs it also helps with acne, blackheads, and whiteheads. Working to clear pores and control breakouts without stripping moisture levels. Gently removes dirt and oil without over-drying the skin, and helps protect skin from environmental aggressors.
-
-**A perfect balance for the most sensitive skin. Used as a *whole body* healing wash, moisturizer, serum or mask.**
-
-![bottle glass](./enzymeImages/proBioticEcoEnzymeGlass.jpg)
 
 #### *Functions*
 *What can be done with it:*

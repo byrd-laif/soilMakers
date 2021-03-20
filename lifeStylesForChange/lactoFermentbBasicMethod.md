@@ -15,9 +15,11 @@ date: 2019-02-04
 
 ### The Alchemy Of Fermentation ~ Gaia's Kitchen
 
-**Fermentation is the most intimate relationships between Wo-Man, microbe and Gaia, Earth. A tangible way of interacting with the larger web of life, a way to cultivate and reclaim a relationship with Nature, Gaia.**
+Fermented foods were reportedly first consumed by humans around 7,000-8,000 years ago. A technique of traditional culinary wisdom that not only preserves but increases nutrition value, and imparts unique flavors to food, fermentation continues to be widely employed today.
 
-**Symbiotic food preservation with Gaia, food that almost makes itself. Transforming simple raw vegetables like cabbage into *functional food medicine* that does not require a Modern Kitchen nor Fire (electricity).**
+**Fermentation is a porthole to the most intimate relationships between Wo-Man, microbe and Mother Earth. A tangible way of interacting with the larger web of life, a way to cultivate and reclaim a relationship with Nature, Gaia.**
+
+**An archaic revival, food preservation with Gaia, food that almost makes itself. Transforming simple raw vegetables like cabbage into *functional food medicine* that does not require a Modern Kitchen nor Fire (electricity).**
 
 #### Cultivate cultures that heal.
  
