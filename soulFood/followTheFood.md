@@ -75,6 +75,6 @@ Alchemy can only truly be understood by gaining an understanding of how and why 
 
 **Nature** - the ultimate non absolute ... where
 **beliefs** - can be manipulated by imagination and
-**danger resides** - from achieving wrong combinations from acuate information.
+**danger resides** - from achieving wrong combinations from accurate information.
 
 Shall She Continue ...
