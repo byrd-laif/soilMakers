@@ -51,13 +51,15 @@ Like any good guest, *Earth Wo-Man* has not come empty-handed. With soil bundle 
 
 Co-evolution; Each unique *Tree of Life* acts while keeping their autonomy, participates in collaborative symbiosis. Exactly how(?) is not the objective, *acknowledge the power of unity*. Living together, each changing as a result of changes in the other or others. Nature is a novelty conserving engine, its only objective is to conserve the 'gene,' not meaning.
 
-The genes that translate to mast fruiting flow on enzymatic coevolutionary currents through the unified soil womb of *Mother Earth*. Symbiotically, through *Earth Wo-Man* soil knowledge is pulled into the next generations, as an attractor, like insects and the flowers that they pollinate. Those who harvest this knowledge; know how to read the land for *seeds of life*, carry them home to safety and cultivate living soil, will survive the *blizzards.* Passing on the knowledge harvested to their progeny, not by genetic transmission alone, but by symbiotic cultural practice, agreed upon *meaningful work.*
-
 ***Forewarned is forearmed. The microbes warn each other and the invaders are repelled.***
+
+The genes that translate to mast fruiting flow on enzymatic coevolutionary currents through the unified soil womb of *Mother Earth*. Symbiotically, through *Earth Wo-Man* soil knowledge is pulled into the next generations, as an attractor, like insects and the flowers that they pollinate. Those who harvest this knowledge; know how to read the land for *seeds of life*, carry them home to safety and cultivate living soil, will survive the *blizzards.* Passing on the knowledge harvested to their progeny, not by genetic transmission alone, but through symbiotic cultural practice, agreed upon *meaningful work.*
+
+***Communities in mutual symbiosis solve problems.***
 
 Synergized in people by plants, the living lands are a power of responsibility, *the world* is an enacted, *sacred ground*. To *Earth Wo-Man* it is everything, a living legacy; identity, connection to ancestors, the symbiotic whole home, the pharmacy, the library, the source of all that sustains *Earth Wo-Man*.
 
-All belong, it is through actions of reciprocity, the giving and receiving in harmony with the living land that people have become *Earth Wo-Man* (indigenous). Just as *Mother Earth* can not be claimed, nor can *Earth Wo-Man*. Being self-initiated/declared, not from a land domination named through conquer or conquest. Communities in mutual symbiosis solve problems.
+All belong, it is through actions of reciprocity, the giving and receiving in harmony with the living land that people have become *Earth Wo-Man* (indigenous). Just as *Mother Earth* can not be claimed, nor can *Earth Wo-Man*. Being self-initiated/declared, not from a land domination named through conquer or conquest.
 
 ![coconut palm harvest](./soilToSoulFoodImages/coconutPalmHarvest.jpg)
 
@@ -73,6 +75,6 @@ Alchemy can only truly be understood by gaining an understanding of how and why 
 
 **Nature** - the ultimate non absolute ... where
 **beliefs** - can be manipulated by imagination and
-**danger resides** - from achieving wrong combinations from acuate information
+**danger resides** - from achieving wrong combinations from acuate information.
 
 Shall She Continue ...
