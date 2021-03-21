@@ -6,16 +6,16 @@ date: 2018-08-13
 # *The Water Rehabilitation Miracle Of Pro-Biotic Eco-Enzyme*
 ***A pro-biotic rich super food for the micro-biome of the Physical Body and Mother Earth.***
 
+## *Conservation As A Consequence Of Lifestyle.*
+
+**Cultivating cultures that heal; Symbiotically clean, heal and support the physical body in a way that cleans, heals and supports the environment.**
+
 *Multi Purpose: Body Care, Built Environment and *Earth Care* Products. Naturally; Anti-Bacterial, Anti-Fungal, Anti-Viral and a Natural Antiseptic.*
 
 ![Enzyme Spa](./enzymeImages/enzymeWoodHempBrush.JPG)
 
-## *Conservation As A Consequence Of Lifestyle.*
-
-**Cultivate cultures that heal; Symbiotically clean, heal and support the physical body in a way that cleans, heals and supports the environment.** 
-
 ### *Water Alchemy - Recycling organic materials through living organisms naturally purifies water.*
-***Water Alchemy*** is the ongoing exploration of what happens when people connect head, heart, and body in the crucible of the water. The ancient alchemists combined substances and used the influence of their own minds to study the transmutation of matter and of spirit. Observe when the discursive mind becomes quieter and the intelligence of the heart comes to the foreground, a new ecologically symbiotic consciousness emerges. Work in symbiotic partnership with the more-than-human world and make incredible discoveries. 
+***Water Alchemy*** is the ongoing exploration of what happens when people connect head, heart, and body in the crucible of the water. The ancient alchemists combined substances and used the influence of their own minds to study the transmutation of matter and of spirit. Observe when the discursive mind becomes quieter and the intelligence of the heart comes to the foreground, a new ecologically symbiotic consciousness emerges. Work in symbiotic partnership with the more-than-human world and make incredible discoveries.
 
 #### Pro-biotic Eco-enzyme is *Water Therapy;* the practice of spending time *cultivating living healing water* for the purpose of enhancing whole health, *Earth Care,* wellness, and happiness. A practice of *symbiotic connection* with the natural world and with each other, *healing water to soul.*
 
@@ -63,9 +63,7 @@ There is a serious global environmental resource problem of water, soil and ener
 
 **Water, the “universal solvent,”** is a major constituent of the soil and exerts a strong influence on soil biota because many of the biota are adapted to life in a saturated atmosphere.
 
-**Re-use of wastewater, to recover water, nutrients, or energy, is becoming an important strategy.**
-
-#### *Pro-biotic Eco-enzyme is a viable solution to some very big problems.*
+#### *Pro-biotic Eco-enzyme is a viable solution to some very big problems. Re-use of wastewater, to recover water, nutrients, or energy, is becoming an important strategy.*
 
 **Pro*Biotic*; For Life.**
 
@@ -85,7 +83,7 @@ Fermentation naturally produces Lactic Acid Bacteria (LAB), one of the most well
 
 ### Re-Act To The Environ-Mental Realities 
 
-**Lifestyles For Change. Eco-Enzyme is an ecologically responsible solution,** for those living in apartments/condos or for those looking to use their fresh fruit and vegetable remnants as a **nutrient rich pro-biotic water and soil amendment.** Use in the garden, plant pots or the environment as a gift of thanks, pro-biotic water for Mother Earth. No traditional 'garden' is required. Be creative, whats around ...
+**Lifestyles For Change. Eco-Enzyme is an ecologically responsible solution,** perfect for those living in urban or rural environments, as a way to use their fresh fruit and vegetable remnants as a **nutrient rich pro-biotic water and soil amendment.** Use in the garden, plant pots or the environment as a gift of thanks, pro-biotic water for Mother Earth. No traditional 'garden' is required. Be creative, whats around ...
 
 **Fermenting fresh organic kitchen matter can reduce 70% of the total waste production and reduce the bad gases produced during organic decomposition, while saving the environment by creating a beneficial, symbiotic substance to combat the negative use of toxic chemicals and pollutants.**
 
