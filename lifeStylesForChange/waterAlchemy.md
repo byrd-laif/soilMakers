@@ -10,7 +10,7 @@ date: 2018-08-13
 
 ![Enzyme Spa](./enzymeImages/enzymeWoodHempBrush.JPG)
 
-## *Conservation as a consequence of production.*
+## *Conservation As A Consequence Of Lifestyle.*
 
 **Cultivate cultures that heal; Symbiotically clean, heal and support the physical body in a way that cleans, heals and supports the environment.** 
 
@@ -61,18 +61,17 @@ There are many targeted uses for these metabolites. LAB are applied in food prod
 **Waterborne infections account for 80% of all infectious diseases.**
 There is a serious global environmental resource problem of water, soil and energy that are now coming to bear on *Life As People Know It:* food production, malnutrition, the incidence of diseases, ... . ***By 2025, half the world population will be living in water-stressed areas.***(WHO) People are literally killing the micro-biome with chemicals that alter this grand vast unknowable microbial balance of Mother Earth. 
 
-**Water, the “universal solvent,”** water is a major constituent of the soil and exerts a strong influence on soil biota because many of the biota are adapted to life in a saturated atmosphere.
+**Water, the “universal solvent,”** is a major constituent of the soil and exerts a strong influence on soil biota because many of the biota are adapted to life in a saturated atmosphere.
 
 **Re-use of wastewater, to recover water, nutrients, or energy, is becoming an important strategy.**
 
-#### *Pro-biotic Eco-enzyme is a viable solution to some very big problems.
+#### *Pro-biotic Eco-enzyme is a viable solution to some very big problems.*
 
 **Pro*Biotic*; For Life.**
 
 **Science defines Pro-biotic as live micro-organisms that, "when administered in adequate amounts, confer a health benefit on the host."**
 
-***Cultivate Cultures That Heal. The Gift of Life is in the giving.**
-By symbiotically keeping the body healthy and restoring vitality and strength to the environment. It is easily done at negligible cost, free of harmful pollutants, effective, and multipurpose.*
+***The Gift of Life is in the giving, conservation is the consequence of production. Cultivating cultures that heal, symbiotically keep the body healthy while restoring vitality and strength to the environment. It is easily done at negligible cost, free of harmful pollutants, effective, and multipurpose.***
 
 #### *The micro-biome connection between Humans and the Soil.*
  
