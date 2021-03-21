@@ -6,20 +6,20 @@ date: 2018-08-13
 # *The Water Rehabilitation Miracle Of Pro-Biotic Eco-Enzyme*
 ***A pro-biotic rich super food for the micro-biome of the Physical Body and Mother Earth.***
 
-*Multi Purpose: Whole Body, Built Environment and *Earth Care* Products. Naturally; Anti-Bacterial, Anti-Fungal, Anti-Viral and a Natural Antiseptic.*
+*Multi Purpose: Body Care, Built Environment and *Earth Care* Products. Naturally; Anti-Bacterial, Anti-Fungal, Anti-Viral and a Natural Antiseptic.*
 
 ![Enzyme Spa](./enzymeImages/enzymeWoodHempBrush.JPG)
 
 ## *Conservation as a consequence of production.*
 
-**Cultivate cultures that heal; Symbiotically clean, heal and support the whole body in a way that cleans, heals and supports the environment.** 
+**Cultivate cultures that heal; Symbiotically clean, heal and support the physical body in a way that cleans, heals and supports the environment.** 
 
 ### *Water Alchemy - Recycling organic materials through living organisms naturally purifies water.*
 ***Water Alchemy*** is the ongoing exploration of what happens when people connect head, heart, and body in the crucible of the water. The ancient alchemists combined substances and used the influence of their own minds to study the transmutation of matter and of spirit. Observe when the discursive mind becomes quieter and the intelligence of the heart comes to the foreground, a new ecologically symbiotic consciousness emerges. Work in symbiotic partnership with the more-than-human world and make incredible discoveries. 
 
 #### Pro-biotic Eco-enzyme is *Water Therapy;* the practice of spending time *cultivating living healing water* for the purpose of enhancing whole health, *Earth Care,* wellness, and happiness. A practice of *symbiotic connection* with the natural world and with each other, *healing water to soul.*
 
-Wo-Men connect through water, the universal solvent. Water speaks it takes the knowledge of the leaf from the mountains to the sea, and the rain takes it up from the sea back to the mountains.
+Wo-Men connect through water, the universal solvent. Water speaks, it takes the knowledge of the leaf from the mountains to the sea, and the rain takes it up from the sea back to the mountains.
 
 Wo-Men don't have to abandon their 'modern' lives but they do have to protect the rivers.
 
@@ -39,7 +39,7 @@ The microbes eat the sugars, digesting them and excrete metabolites. A detoxific
 
 Following fermentation, the natural anti-bacterial properties of fruit peels are further enhanced as organic substances are decomposed, yielding secondary metabolites known as bio-active compounds or phytochemicals. The process creates new amino acids, organic acids, and antioxidants that didn’t originally exist in the raw material, naturally optimized to provide the most nutrition.
 
-Like wine, sediment is normal and can be left in or allowed to settle for ease of separation.
+*Like wine, sediment is normal and can be left in or allowed to settle for ease of separation.*
 
 ![Enzyme Spa Sun](./enzymeImages/enzymeFilteredSediment_web.jpg)
 
@@ -48,55 +48,51 @@ The fermentation process naturally increases the bio-availability, making it so 
 
 There are many targeted uses for these metabolites. LAB are applied in food production and preservation, companies package them and sell them at a high cost. The majority of products on the market are powdered or freeze-dried, this process causes damage to the microbes, resulting in 90 to 95% die off. This means, even though colony counts are high, only 5 to 10% of the microbes are actually alive.
 
-#### *Few create a product that can truly rival real, live home ferments.*
-
-**Teaming with antioxidants, Pro-Biotic Eco-enzyme is a powerful multi-functional tool.**
+**Few create a product that can truly rival real, live home ferments. Teaming with antioxidants, Pro-Biotic Eco-enzyme is a powerful multi-functional tool.**
 
 #### *Why make Eco-Enzyme?*
+
+***WATER***
+
+**It is very difficult to reverse the effects of water pollution.** Natural processes that cleanse the water can take years, decades, or even centuries, and even with costly technological processes, it can take years to remove all of the harmful substances from the water. There are many aspects of the contamination that must be removed. **First, and most importantly, the source of the water pollution must be removed, so that additional water contamination does not occur.**
+
+**Home Cleaning products and fertilizers made with chemicals and pesticides pollute the underground water, rivers and surrounding ecosystems.** Pharmaceutical drugs and personal care products, also manufactured by many pharmaceutical companies (such as sunscreen lotions, lipsticks, deodorants, perfumes, body soaps, and shampoos, ...), are produced in staggeringly huge quantities; **often equaling or surpassing agrochemicals in tonnage.** The volume consumed is simply astounding. All of these go into the ecosystem, most of them into waste treatment systems. These conventional cleaning products contain harmful amounts of chemicals such as phosphate, nitrates, ammonia, chlorine etc. The accumulated effect of these chemicals released from every household causes significant damage to the health of the environment and the body.
 
 **Waterborne infections account for 80% of all infectious diseases.**
 There is a serious global environmental resource problem of water, soil and energy that are now coming to bear on *Life As People Know It:* food production, malnutrition, the incidence of diseases, ... . ***By 2025, half the world population will be living in water-stressed areas.***(WHO) People are literally killing the micro-biome with chemicals that alter this grand vast unknowable microbial balance of Mother Earth. 
 
+**Water, the “universal solvent,”** water is a major constituent of the soil and exerts a strong influence on soil biota because many of the biota are adapted to life in a saturated atmosphere.
+
 **Re-use of wastewater, to recover water, nutrients, or energy, is becoming an important strategy.**
 
-#### *WATER*
-It is very difficult to reverse the effects of water pollution. Natural processes that cleanse the water can take years, decades, or even centuries, and even with costly technological processes, it can take years to remove all of the harmful substances from the water. There are many aspects of the contamination that must be removed. **First, and most importantly, the source of the water pollution must be removed, so that additional water contamination does not occur.**
-
-**Home Cleaning products and fertilizers made with chemicals and pesticides pollute the underground water, rivers and surrounding ecosystems.** Pharmaceutical drugs and personal care products, also manufactured by many pharmaceutical companies (such as sunscreen lotions, lipsticks, deodorants, perfumes, body soaps, and shampoos, ...), are produced in staggeringly huge quantities; **often equaling or surpassing agrochemicals in tonnage.** The volume consumed is simply astounding. All of these go into the ecosystem, most of them into waste treatment systems. These conventional cleaning products contain harmful amounts of chemicals such as phosphate, nitrates, ammonia, chlorine etc. The accumulated effect of these chemicals released from every household causes significant damage to the health of the environment and the body. 
-
-#### *Pro-biotic Eco-enzyme is a solution to some very big problems. By symbiotically keeping the body healthy and restoring vitality and strength to the environment. It is easily done at negligible cost, free of harmful pollutants, effective, and multipurpose.*
-
-### *Stop the killing Gaia is a Micro-biome - Cultivate Cultures That Heal*
+#### *Pro-biotic Eco-enzyme is a viable solution to some very big problems.
 
 **Pro*Biotic*; For Life.**
 
 **Science defines Pro-biotic as live micro-organisms that, "when administered in adequate amounts, confer a health benefit on the host."**
 
-**Why make Pro-Biotic Eco-Enzyme?**
-
-***On Behalf Of Life.* A Gift of Life, given symbiotically by cleaning and healing the whole body and built environment with Pro-biotic Eco-enzyme.**
-
-### *Symbiotic Microbial Gardens, Body and Soil.*
-
-**Water, the “universal solvent,”** water is a major constituent of the soil and exerts a strong influence on soil biota because many of the biota are adapted to life in a saturated atmosphere. Pro-Biotic Eco-Enzyme are *soul food* for the micro-biome, Soil to Soul.
+***Cultivate Cultures That Heal. The Gift of Life is in the giving.**
+By symbiotically keeping the body healthy and restoring vitality and strength to the environment. It is easily done at negligible cost, free of harmful pollutants, effective, and multipurpose.*
 
 #### *The micro-biome connection between Humans and the Soil.*
  
-**A healthy micro-biome, which consists of an overwhelming majority of beneficial pro-biotic bacteria, is one of the most fundamental aspects of health.**
+**A healthy micro-biome, which consists of an overwhelming majority of beneficial pro-biotic bacteria, is one of the most fundamental aspects of health. Body and Soil, Symbiotic Microbial Gardens.**
 
 **The human body contain 10 times more bacteria than human cells, meaning around 100 trillion microbes make up the physical human body. Humans are Wild in this way, symbiotically connected to the environment.** The largest colony is located in the stomach and intestines. The bacteria digest substances that help the immune system defend against invaders. This exact same process happens symbiotically, in soil, water and the food that comes from it. Protect the microbes with Pro-biotic Eco-enzyme. Doing so will keep the micro-biome full of live beneficial organisms, which will help keep digestion, immunity and overall health on track. **Body, Soil and Water encourage the growth of healthy bacteria.**
+
+**Pro-Biotic Eco-Enzyme are therapeutic *soul food* for the micro-biome, Soil to Soul.**
 
 Fermentation naturally produces Lactic Acid Bacteria (LAB), one of the most well studied bacterial groups known from ancient times. ***Lactic acid - this molecule occurs in almost every living organism and it plays an essential role in the anaerobic energy metabolism of billions of life forms.*** These valuable micro-organisms are used in numerous areas, especially food industry and medicine. LAB produce a wide range of compounds for food upgrading. Moreover, LAB can find special applications like generation of bio-energy not affecting the surrounding environment.
 
 ### Re-Act To The Environ-Mental Realities 
 
-**Lifestyles For Change. Eco-Enzyme is an ecologically responsible solution,** for those living in apartments/condos or for those looking to use their fresh fruit and vegetable remnants as a **nutrient rich pro-biotic water and soil amendment.** Use in the garden, plant pots or the environment as a gift of thanks, pro-biotic water for Mother Earth. No traditional 'garden' is required! Be creative. Whats around ...
+**Lifestyles For Change. Eco-Enzyme is an ecologically responsible solution,** for those living in apartments/condos or for those looking to use their fresh fruit and vegetable remnants as a **nutrient rich pro-biotic water and soil amendment.** Use in the garden, plant pots or the environment as a gift of thanks, pro-biotic water for Mother Earth. No traditional 'garden' is required. Be creative, whats around ...
 
 **Fermenting fresh organic kitchen matter can reduce 70% of the total waste production and reduce the bad gases produced during organic decomposition, while saving the environment by creating a beneficial, symbiotic substance to combat the negative use of toxic chemicals and pollutants.**
 
 ![bottle glass](./enzymeImages/proBioticEcoEnzymeGlass.jpg)
 
-#### *Pro-biotic Eco-enzyme Benefits:*
+#### *Benefits:*
 
 ***Naturally; Anti-Bacterial, Anti-Fungal, Anti-Viral and a Natural Antiseptic.***
 
@@ -147,7 +143,7 @@ Fermentation naturally produces Lactic Acid Bacteria (LAB), one of the most well
 **The 1:3:10 Ratio**
 
 1. Sugar: 1 part
-2. Organic food remnants: 3 parts
+2. Organic food remnants: 4-5 parts
 3. Water: 10 parts
 
 ![bottle enzyme](./enzymeImages/enzymeBottle.jpg)
@@ -170,7 +166,9 @@ Fermentation time & environment: 3 months minimum, from the time stopped adding 
 ![filter](./enzymeImages/enzymeProcess05.jpg)
 
 **Step 5:**
-- Harvest Day! In a suitable size vessel with a suitable size strainer, separate the solids form the liquids. The filtered Eco-enzyme can be bottled and is ready for use. A portion of filtered solids can be used as a starter for the next batch, dried and used as a powdered fertilizer, add them to the [Bokashi](./soilAlchemy.md) bin, garden compost or turn them directly into the soil. Even dumping them down the toilet is perfectly fine.
+- Harvest Day! In a suitable size vessel with a suitable size strainer, separate the solids form the liquids. The filtered Eco-enzyme can be bottled and is ready for use. For a more polished product allow the filtered liquid enzyme to rest overnight so the sediment can settle to the bottom. Repeat straining this time through a microfiber cloth, taking care to not disturb the sediment.
+
+A portion of filtered solids or sediment can be used as a starter for the next batch, dried and used as a powdered fertilizer, add them to the [Bokashi](./soilAlchemy.md) bin, garden compost or turn them directly into the soil. Even dumping them down the toilet is perfectly fine.
 
 ![enzyme bokashi](./enzymeImages/enzymeRemnatsBikashiBin_web.jpg)
 

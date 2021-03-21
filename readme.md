@@ -65,7 +65,7 @@ Partnership systems support mutually respectful and caring relations. Reconcilia
 
 #### An opportunity for the creation of something new and beautiful.
 
-**Putting nature on the balance sheet. Bio-Logical Eco System Services; Transforming an Environ-mental withdraw to an Environ-mental Deposit for the future.**
+**Putting nature on the balance sheet. Bio-Logical Eco System Services; Transforming an Environ-mental withdraw to an Environ-mental Deposit for the future. Mobilizing bio-resources (organic refuse) and converting them into bio-gold, Earth Care Commodities and Services.**
 
 **Today’s young generation are being handed the biggest challenge of all; *'Cultivating Biodiversity'* the symbiotic living *'Fabric of Life'* of this planet.**
 

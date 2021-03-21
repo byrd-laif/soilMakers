@@ -13,9 +13,9 @@ date: 2021-03-09
 
 ![Growing Green](./soilToSoulFoodImages/frogPot.jpg)
 
-#### Woman is A Religion of; The redemption of Earth through magic. Meaningful work; an Act that transfers through to nature, the microbial soil, symbiotically healing Wo-Man too the Womb of Mother Earth. To be indigenous of a land means caring for it's next generations use.
+#### Woman is A Religion of; the Redemption of Earth through magic. Meaningful work; an Act that transfers through to nature, the microbial soil, symbiotically healing Wo-Man too the Womb of Mother Earth. To be indigenous of a land means caring for its next generations use.
 
-***Intelligence is not to see that nature is alive, its to recognize it when its seen. The felt experience of being in organism; standing as a mirror before nature as its object. Woman is natures destination, as such She can speak for Mother Earth.***
+***Intelligence is not to see that nature is alive, its to recognize it when its seen. The felt experience of being in organism; standing as a mirror before nature as its object. Woman is natures destination, endowed with the spirit of selfless service, as such She can speak for Mother Earth.***
 
 **This will document the alchemical journey of *Soul Food,* from its soil source, cultivation, harvest, preservation/preparation to culinary delight, and its multi dimensional return to source, soil.**
 
