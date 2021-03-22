@@ -9,13 +9,13 @@ date: 2021-03-09
 
 ### *To whence it comes from, to wherein it is going, and to whither it will become.*
 
-#### Soil to Soul; Nature creates conditions for life. She can't force it and she can't fake it, things must undergo the formality of actually occurring. Its the soil and plants as part of a *symbiotic partnership* that make soul food plausible.
+#### Soil to Soul; Nature creates conditions for life. She can't force it and she can't fake it, things must undergo the formality of actually occurring. Its the soil and plants as part of a *symbiotic partnership* that make soul food plausible. Being indigenous of a land means caring for its next generations use.
 
 ![Growing Green](./soilToSoulFoodImages/frogPot.jpg)
 
-#### Woman is A Religion of; the Redemption of Earth through magic. Meaningful work; an Act that transfers through to nature, the microbial soil, symbiotically healing Wo-Man too the Womb of Mother Earth. To be indigenous of a land means caring for its next generations use.
+#### Woman is A Religion of; the Redemption of Earth through magic. Meaningful work; an Act that transfers through to nature, the microbial soil, symbiotically healing Wo-Man too the Womb of Mother Earth. As Women of the Womb, Mother Earth, they can take the role of guardian.
 
-***Intelligence is not to see that nature is alive, its to recognize it when its seen. The felt experience of being in organism; standing as a mirror before nature as its object. Woman is natures destination, endowed with the spirit of selfless service, as such She can speak for Mother Earth.***
+***Intelligence is not to see that nature is alive, its to recognize it when its seen. The felt experience of being in organism; standing as a mirror before nature as its object. Woman is natures destination; being endowed within by the spirit of selfless service, as such She can speak for Mother Earth.***
 
 **This will document the alchemical journey of *Soul Food,* from its soil source, cultivation, harvest, preservation/preparation to culinary delight, and its multi dimensional return to source, soil.**
 
@@ -53,7 +53,7 @@ Co-evolution; Each unique *Tree of Life* acts while keeping their autonomy, part
 
 ***Forewarned is forearmed. The microbes warn each other and the invaders are repelled.***
 
-The genes that translate to mast fruiting flow on enzymatic coevolutionary currents through the unified soil womb of *Mother Earth*. Symbiotically, through *Earth Wo-Man* soil knowledge is pulled into the next generations, as an attractor, like insects and the flowers that they pollinate. Those who harvest this knowledge; know how to read the land for *seeds of life*, carry them home to safety and cultivate living soil, will survive the *blizzards.* Passing on the knowledge harvested to their progeny, not by genetic transmission alone, but through symbiotic cultural practice, agreed upon *meaningful work.*
+The genes that translate to mast fruiting flow on enzymatic coevolutionary currents through the unified soil womb of *Mother Earth*. Symbiotically, through *Earth Wo-Man* soil knowledge is pulled into the next generations, as an attractor, like insects and the flowers that they pollinate. Those who harvest this knowledge; know how to read the land for *seeds of life*, carry them home to safety and cultivate *living soil*, will survive the *blizzards.* Passing on the knowledge harvested to their progeny, not by genetic transmission alone, but through symbiotic cultural practice, agreed upon *meaningful work.*
 
 ***Communities in mutual symbiosis solve problems.***
 
