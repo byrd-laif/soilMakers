@@ -8,6 +8,7 @@ date: 2021-03-09
 ## The *Life - Death - Life* Cycle Of Soul Food.
 
 ### *To whence it comes from, to wherein it is going, and to whither it will become.*
+*Proof of concept within a story. Harvesting form the environment too re-Cultivating an environmental deposit.*
 
 #### Soil to Soul; Nature creates conditions for life. She can't force it and she can't fake it, things must undergo the formality of actually occurring. Its the soil and plants as part of a *symbiotic partnership* that make soul food plausible. Being indigenous of a land means caring for its next generations use.
 

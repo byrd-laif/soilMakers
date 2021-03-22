@@ -45,7 +45,7 @@
 
 ### *A mutually beneficial, 'symbiotic legacy venture' with Mother Earth. An ecosystem that operates to deliver positive bio-logical impact and by that symbiotically profit through seeding the soil, the Womb of Mother Earth. Directly addressing the biological effects of climate change.*
 
-#### *Cultivating The Mother Tree;* An archaic revival of Wo-Mans Gaian connection through honoring the feminine. Soil Sisters relate to Mother Earth, Gaia as *'The Live And Dynamic Co-evolutionary Partner'* in the shaping of the set, setting and the process.
+#### *Cultivating The Mother Tree;* An archaic revival of Wo-Mans Gaian connection through honoring the feminine. Soil Sisters cultivate an ally, a bond with Mother Earth, Gaia as *'The Live And Dynamic Co-evolutionary Partner'* in the shaping of the set, setting and the process.
 
 ***Creating co-Evolutionary Leaders;*** Revolutionary Eco-logical actions that are transferable through to nature. ***Bio-Logical Earth Care*** provides the environment for an enlightened, sustainable future. Conservation of freedom as a consequence of Lifestyle.
 
