@@ -41,15 +41,15 @@
 
 # *Soil Sisters ~ Eco-logical Movement And Enterprise*
 
-## Cultivating an *Eco-logical Economy* creates the market for an *Economically Sustainable* future.
+## Cultivating a *Bio-logical Economy* creates the market for an *Ecologically Sustainable* future.
 
-### *A bio-logical movement, a 'symbiotic legacy venture' with Mother Earth. An ecosystem that operates to deliver positive ecological impact and by that symbiotically profit through seeding the soil, the Womb of Mother Earth.*
+### *A mutually beneficial, 'symbiotic legacy venture' with Mother Earth. An ecosystem that operates to deliver positive bio-logical impact and by that symbiotically profit through seeding the soil, the Womb of Mother Earth. Directly addressing the biological effects of climate change.*
 
 #### *Cultivating The Mother Tree;* An archaic revival of Wo-Mans Gaian connection through honoring the feminine. Soil Sisters relate to Mother Earth, Gaia as *'The Live And Dynamic Co-evolutionary Partner'* in the shaping of the set, setting and the process.
 
 ***Creating co-Evolutionary Leaders;*** Revolutionary Eco-logical actions that are transferable through to nature. ***Bio-Logical Earth Care*** provides the environment for an enlightened, sustainable future. Conservation of freedom as a consequence of Lifestyle.
 
-***Power as responsibility rather than domination.*** A radical sift from the 'dominator'; biological warfare built on guilt, fear and force. To an 'ecological partnership'; Bio-Logical Freedom, free to swim in the rivers of Mother Earth without fear of reprisal.
+***Power as responsibility rather than domination.*** A radical sift from the 'dominator'; biological warfare built on guilt, fear and force. To an 'Eco-logical Partnership'; Bio-Logical Freedom, free to swim in the rivers of Mother Earth without fear of reprisal.
 
 Partnership systems support mutually respectful and caring relations. Reconciliation, free to turn and question: Where does Wo-Man go from here?
 
