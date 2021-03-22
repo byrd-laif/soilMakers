@@ -10,11 +10,11 @@ date: 2021-03-09
 ### *To whence it comes from, to wherein it is going, and to whither it will become.*
 *Proof of concept within a story. Harvesting form the environment too re-Cultivating an environmental deposit.*
 
-#### Soil to Soul; Nature creates conditions for life. She can't force it and she can't fake it, things must undergo the formality of actually occurring. Its the soil and plants as part of a *symbiotic partnership* that make soul food plausible. Being indigenous of a land means caring for its next generations use.
+#### Soil to Soul; Nature creates conditions for life. She can't force it and she can't fake it, things must undergo the formality of actually occurring. Its the soil and plants as part of a *symbiotic partnership* with Wo-Man that make soul food plausible. The role of guardian; Being indigenous of a land means caring for its next generations use.
 
 ![Growing Green](./soilToSoulFoodImages/frogPot.jpg)
 
-#### Woman is A Religion of; the Redemption of Earth through magic. Meaningful work; an Act that transfers through to nature, the microbial soil, symbiotically healing Wo-Man too the Womb of Mother Earth. As Women of the Womb, Mother Earth, they can take the role of guardian.
+***Meaningful work; an Act that transfers through to nature, the microbial soil, symbiotically healing Wo-Man too the Womb of Mother Earth.***
 
 ***Intelligence is not to see that nature is alive, its to recognize it when its seen. The felt experience of being in organism; standing as a mirror before nature as its object. Woman is natures destination; being endowed within by the spirit of selfless service, as such She can speak for Mother Earth.***
 
