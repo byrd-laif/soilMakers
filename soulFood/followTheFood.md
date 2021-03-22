@@ -10,13 +10,13 @@ date: 2021-03-09
 ### *To whence it comes from, to wherein it is going, and to whither it will become.*
 *Proof of concept within a story. Harvesting form the environment too re-Cultivating an environmental deposit.*
 
-#### Soil to Soul; Nature creates conditions for life. She can't force it and she can't fake it, things must undergo the formality of actually occurring. Its the soil and plants as part of a *symbiotic partnership* with Wo-Man that make soul food plausible. The role of guardian; Being indigenous of a land means caring for its next generations use.
+#### Soil to Soul; Nature creates conditions for life. She can't force it and she can't fake it, things must undergo the formality of actually occurring. Its the soil and plants as part of a *symbiotic partnership* that make *soul food* plausible.
 
 ![Growing Green](./soilToSoulFoodImages/frogPot.jpg)
 
 ***Meaningful work; an Act that transfers through to nature, the microbial soil, symbiotically healing Wo-Man too the Womb of Mother Earth.***
 
-***Intelligence is not to see that nature is alive, its to recognize it when its seen. The felt experience of being in organism; standing as a mirror before nature as its object. Woman is natures destination; being endowed within by the spirit of selfless service, as such She can speak for Mother Earth.***
+***Intelligence is not to see that nature is alive, its to recognize it when its seen. The felt experience of being in organism; standing as a mirror before nature as its object. Woman is natures destination; being endowed within by the spirit of selfless service, as such She can speak for Mother Earth. Being indigenous of this land means caring for its next generations use.***
 
 **This will document the alchemical journey of *Soul Food,* from its soil source, cultivation, harvest, preservation/preparation to culinary delight, and its multi dimensional return to source, soil.**
 
@@ -28,7 +28,7 @@ date: 2021-03-09
 
 #### *Empowering direct experience, contact with the divine made manifest.*
 
-**A symbiotic microbial messenger; from humus, through human, to humus. Returned to a different local with a uniquely healing microbial make up, pro-biotic soul food for the *ancestral soil* of the earth body. Healing Wo-Man, their relationships with one another and Mother Earth through the unified *Soil Womb*.**
+**A symbiotic microbial messenger; from humus, through human, to humus. Returned to a different local with a uniquely healing microbial make up, pro-biotic soul food for the *ancestral soil*, earth body. Healing Wo-Man, their relationships with one another and Mother Earth through the unified *Soil Womb*.**
 
 #### What ever the physical mind feeds upon is what the *Earth Body* calls to *Wo-Man*, *Soil too Soul* they receive.
 
@@ -38,7 +38,7 @@ date: 2021-03-09
 
 #### *To reveal a path toward healing the rift that grows between Wo-Man and nature.*
 
-Re-connect, bring the *physical body* back into conversation with all that is green and growing. A universe that never stopped speaking to *Earth Wo-Man,* even when they forgot how to listen.
+Re-connect, bringing the *physical body* back into conversation with all that is green and growing. A *universe* that never stopped speaking to *Earth Wo-Man,* even when they forgot how to listen.
 
 Bend down and spread the *mud* with hands across the *Womb* of *Mother Earth.* Being moved into *action* by the extraordinary gifts of the plants and animals, sing *in thanks of giving* and dance with feet caressing *Mother Earth.*
 
