@@ -45,11 +45,11 @@
 
 ### *A mutually beneficial, 'symbiotic legacy venture' with Mother Earth. An ecosystem that operates to deliver positive bio-logical impact and by that symbiotically profit through seeding the soil, the Womb of Mother Earth. Directly addressing the biological effects of climate change.*
 
-#### *Cultivating The Mother Tree;* An archaic revival of Wo-Mans Gaian connection through honoring the feminine. Soil Sisters cultivate an ally, a bond with Mother Earth, Gaia as *'The Live And Dynamic Co-evolutionary Partner'* in the shaping of the set, setting and the process.
+#### *Cultivating The Mother Tree;* An archaic revival of Wo-Mans Gaian connection through honoring the feminine. Soil Sisters cultivate an ally, bonding with Mother Earth as *'The Live And Dynamic Co-evolutionary Partner'* in the shaping of the set, setting and the process.
 
-***Creating co-Evolutionary Leaders;*** Revolutionary Eco-logical actions that are transferable through to nature. ***Bio-Logical Earth Care*** provides the environment for an enlightened, sustainable future. Conservation of freedom as a consequence of Lifestyle.
+***Creating co-Evolutionary Leaders;*** Revolutionary Eco-logical actions that are transferable through to nature. ***Bio-Logical Earth Care*** provides the environment for an enlightened, sustainable future. Conservation of freedom as a consequence of Lifestyle/Production.
 
-***Power as responsibility rather than domination.*** A radical sift from the 'dominator'; biological warfare built on guilt, fear and force. To an 'Eco-logical Partnership'; *Bio-Logical Freedom, free to swim in the rivers of Mother Earth without fear of reprisal.*
+***Power as responsibility rather than domination.*** A radical sift from the 'dominator' Bio-Logical Warfare; built on guilt, fear and force. To an 'Eco-logical Partnership'. *Bio-Logical Freedom; free to swim in the rivers of Mother Earth without fear of reprisal.*
 
 **Partnership systems support mutually respectful and caring relations.** Reconciliation, free to turn and question: Where does Wo-Man go from here?
 
@@ -57,9 +57,9 @@
 
 **The cultivation of a more attuned and responsive awareness of Wo-Mans ecological interconnections. Ones dream and the dream of the planet As One.**
 
-***Connecting with things that make living possible.*** Being attracted to all that is alive and vital, the human tendency to relate with life and natural processes - *Is The Expression Of A Biological Need.*
+***The fundaMental human birthright; Connection with things that make living possible.*** Being attracted to all that is alive and vital, the human tendency to relate with life and natural processes - *Is The Expression Of A Bio-Logical Need.*
 
-### *Quality Of Life* - Loss of biodiversity and ecosystems are catastrophic, impacts are symbiotic and happen within the physical body and *Mother Earth,* far into future generations.
+### *Quality Of Life* - Loss of biodiversity and ecosystems are catastrophic, impacts are symbiotic and happen within the physical body through too *Mother Earth,* far into future generations.
 
 **Being responsible stewards of the Earth means taking to heart the current planetary healing crisis. Having accepted this circumstance *responsibility* then means *ability,* to have a *creative response* to the situation as it is *now.* The *seeds of opportunity* and awareness, to take the moment and transform it into a better situation.**
 

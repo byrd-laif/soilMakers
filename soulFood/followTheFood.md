@@ -18,7 +18,7 @@ date: 2021-03-09
 
 ***Intelligence is not to see that nature is alive, its to recognize it when its seen. The felt experience of being in organism; standing as a mirror before nature as its object. Woman is natures destination; being endowed within by the spirit of selfless service, as such She can speak for Mother Earth. Being indigenous of this land means caring for its next generations use.***
 
-**This will document the alchemical journey of *Soul Food,* from its soil source, cultivation, harvest, preservation/preparation to culinary delight, and its multi dimensional return to source, soil.**
+**This will document the alchemical journey of *Soul Food,* from its soil source, cultivation, harvest, preservation/preparation to culinary delight, and its multi dimensional re-Cultivated return to source, soil.**
 
 ![Soul Food](./soilToSoulFoodImages/soulFood01.jpg)
 
@@ -28,7 +28,7 @@ date: 2021-03-09
 
 #### *Empowering direct experience, contact with the divine made manifest.*
 
-**A symbiotic microbial messenger; from humus, through human, to humus. Returned to a different local with a uniquely healing microbial make up, pro-biotic soul food for the *ancestral soil*, earth body. Healing Wo-Man, their relationships with one another and Mother Earth through the unified *Soil Womb*.**
+**A symbiotic microbial messenger; from humus, through human, to humus. Returned to a different local with a uniquely healing microbial make up, *pro-biotic soul food* for the ancestral soil, *earth body.* Healing Wo-Man, their relationships with one another and Mother Earth through the unified *Soil Womb*.**
 
 #### What ever the physical mind feeds upon is what the *Earth Body* calls to *Wo-Man*, *Soil too Soul* they receive.
 

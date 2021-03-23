@@ -71,9 +71,11 @@ There is a serious global environmental resource problem of water, soil and ener
 
 ***The Gift of Life is in the giving, conservation is the consequence of production. Cultivating cultures that heal, symbiotically keep the body healthy while restoring vitality and strength to the environment. It is easily done at negligible cost, free of harmful pollutants, effective, and multipurpose.***
 
-#### *The micro-biome connection between Humans and the Soil.*
+#### *Life-long symbiosis. The micro-biome connection between Humans and the Soil.*
  
-**A healthy micro-biome, which consists of an overwhelming majority of beneficial pro-biotic bacteria, is one of the most fundamental aspects of health. Body and Soil, Symbiotic Microbial Gardens.**
+**A healthy micro-biome, which consists of an overwhelming majority of beneficial pro-biotic bacteria, is one of the most fundamental aspects of health.**
+
+**Body and Soil, Symbiotic Microbial Gardens.**
 
 **The human body contain 10 times more bacteria than human cells, meaning around 100 trillion microbes make up the physical human body. Humans are Wild in this way, symbiotically connected to the environment.** The largest colony is located in the stomach and intestines. The bacteria digest substances that help the immune system defend against invaders. This exact same process happens symbiotically, in soil, water and the food that comes from it. Protect the microbes with Pro-biotic Eco-enzyme. Doing so will keep the micro-biome full of live beneficial organisms, which will help keep digestion, immunity and overall health on track. **Body, Soil and Water encourage the growth of healthy bacteria.**
 
@@ -81,7 +83,7 @@ There is a serious global environmental resource problem of water, soil and ener
 
 Fermentation naturally produces Lactic Acid Bacteria (LAB), one of the most well studied bacterial groups known from ancient times. ***Lactic acid - this molecule occurs in almost every living organism and it plays an essential role in the anaerobic energy metabolism of billions of life forms.*** These valuable micro-organisms are used in numerous areas, especially food industry and medicine. LAB produce a wide range of compounds for food upgrading. Moreover, LAB can find special applications like generation of bio-energy not affecting the surrounding environment.
 
-### Re-Act To The Environ-Mental Realities 
+### Re-Act To The Environ-Mental Realities
 
 **Lifestyles For Change. Eco-Enzyme is an ecologically responsible solution,** perfect for those living in urban or rural environments, as a way to use their fresh fruit and vegetable remnants as a **nutrient rich pro-biotic water and soil amendment.** Use in the garden, plant pots or the environment as a gift of thanks, pro-biotic water for Mother Earth. No traditional 'garden' is required. Be creative, whats around ...
 
@@ -125,6 +127,7 @@ Fermentation naturally produces Lactic Acid Bacteria (LAB), one of the most well
 
 - Cleansing the body, natural conditioner and moisturizer for the hair and skin.
 - Wound clean and heal; mouth wash, burns, cuts, abrasions, diaper rash, bed soars, diabetic wounds ...
+- Treatment for warts and fungal infections
 - Cleansing the built home & drainage systems
 - Kill and Repel Insects
 - Fertilize plants, Rehabilitate Soil and Water
@@ -228,7 +231,7 @@ A: Using various ingredients can create complex and stable enzymatic ecosystems.
 Q: Will there be bacteria in Eco-Enzyme after fermentation?
 Is it safe to be used for personal cleaning?
 
-A: Eco-enzyme contains natural acetic acid, bromelain (from pineapple),  probiotics, and antioxidants, which help fight bad bacteria on the skin’s surface. Eco-enzyme can reduce allergies caused by chemicals, eliminate harmful microorganisms and enhance cell regeneration. It is important to remember that the acidic value of Eco-enzyme sits at or below PH 5.0 if it has been fermented well. Remember to dilute accordingly. Eco-enzyme is very safe and makes a wonderfully gentle yet powerful wash for wound cleaning and healing. Safe for all family members to use.
+A: Eco-enzyme contains natural acetic acid, bromelain (from pineapple), probiotics and antioxidants, which help fight bad bacteria on the skin’s surface. Eco-enzyme can reduce allergies caused by chemicals, eliminate harmful microorganisms and enhance cell regeneration. It is important to remember that the acidic value of Eco-enzyme sits at or below PH 5.0 if it has been fermented well. Remember to dilute accordingly. Eco-enzyme is very safe and makes a wonderfully gentle yet powerful wash for wound cleaning and healing. Safe for all family members to use.
 
 The acetic acid in Eco-enzyme kills many strains of bacteria on household surfaces and inhibits the growth of new bacteria and mold. Eco-enzyme is natures all-natural cleaner. 
 
