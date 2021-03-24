@@ -14,7 +14,7 @@ date: 2021-03-09
 
 ![Growing Green](./soilToSoulFoodImages/frogPot.jpg)
 
-***Meaningful work; an Act that transfers through to nature, the microbial soil, symbiotically healing Wo-Man too the Womb of Mother Earth.***
+***Meaningful work; an Act that transfers through to nature, the microbial soil, symbiotically healing Wo-Man too the Womb of Mother Earth. A ritual; a participatory event done with purpose to achieve something real in ones life. To feel is to sense the mystery of life through nature, too allow change to occur while working in it. Working in nature allows one to investigate the nature of the physical body, allow the style of movement to evolve out of the personal creative expression, this is the style of Living. The integration of movement and feeling connected through Mother Earth.***
 
 ***Intelligence is not to see that nature is alive, its to recognize it when its seen. The felt experience of being in organism; standing as a mirror before nature as its object. Woman is natures destination; being endowed within by the spirit of selfless service, as such She can speak for Mother Earth. Being indigenous of this land means caring for its next generations use.***
 
@@ -79,3 +79,6 @@ Alchemy can only truly be understood by gaining an understanding of how and why 
 **danger resides** - from achieving wrong combinations from accurate information.
 
 Shall She Continue ...
+
+
+

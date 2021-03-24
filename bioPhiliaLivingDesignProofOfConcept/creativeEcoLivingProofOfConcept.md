@@ -26,7 +26,7 @@ Wo-Men have an inherited need to connect to nature and other biotic forms due to
 
 ![moringa tree bloom](./vivariumGeorgeTownGallery/vivariumGarden/vivariumMoringaFlowers02Web.JPG)
 
-***Cross Pollinate; be the *gardener*, an open hand bringing seed to soil the womb, the beginnings of life, love and endings. Each bloom in the doing of this most holy act.***
+***Cross Pollinate; be the *gardener*, an open hand bringing seed to soil, the womb, the beginnings of life, love and endings. Each bloom in the doing of this most holy act.***
 
 Using the symbiotic relationship with *'Mother Earth'* as a path of discovery into the unique characteristics of intentional independent habitats, that not only can influence a spontaneous therapeutic act but also can be used by the designer to open; they are dynamic, adaptable and can be experienced, offering a safe space and the possibility for trying out inventive solutions and transformation.
 
@@ -43,6 +43,8 @@ A living design built upon the inherent intuitive 'biophilic' response to built 
 ![Peek](./vivariumGeorgeTownGallery/vivariumLivingRoom/vivariumGTLivingroomPeekweb.jpg)
 
 #### *Authentic Living Design; creating symbiotic living environments that support, restore and regenerate both the physical body and the environment (earth body) have positive effects on the health of a population as a whole, not just the individual within the living design.*
+
+Urban environments are not nurturing environments in and of themselves, as such they must be curated and cultivated to be so. Look for something that is more like nature for its self. Bringing things that are real in ones lifeStyle. Coming from nature and finding the nature within. Break the role of 'consumer culture' of 'modern culture,' hang up the 'cultural costume' and design a lifeStyle of ones own, connected through too nature. Honoring the uniqueness of the self, breaking free of boundaries, to have reverence for ones own body. Avoiding pre-stylization of movement in life, taking off the 'cultural amour', allowing direct movement to evoke feelings. Going beyond, using the feeling to expand into the 'living' style of ones life through the kinesthetic sense.
 
 ![Authentic Living](./vivariumGeorgeTownGallery/vivariumLivingRoom/livingRoomCandidCafeWeb.jpg)
 
