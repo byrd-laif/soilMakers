@@ -16,9 +16,9 @@ date: 2018-08-13
 
 A series of guided invitations, natural cycles, bring one into the present moment, opening the doors of symbiotic communication with the soil, waters, and landscapes explored. Encounter not just the soil, but the many ways nature mirrors humans, encountering oneself, Soil to Soul Food.
 
-**Soil life is fragile,** an estimated one third of global soils are degraded. Each year, an estimated 24 billion tonnes of fertile soil are lost due to erosion alone.
+**Soil life is fragile,** an estimated one third of global soils are degraded. Moreover, each year an estimated 24 billion tonnes of fertile soil are lost due to erosion alone.
 
-The amount of arable land available for each person is continually dropping. Currently, each human being has only 2000m² at their disposal; in 1961, that figure was 4000m². AT this current rate of consumption the amount of arable land available per person will decrease to 1500m² by 2050.
+Due to rapid urbanization the amount of arable land available for each person is continually dropping. Currently, each human being has only 2,000m² at their disposal; in 1961, that figure was 4,000m². At current rates, the amount of arable land available per person will decrease to 1,500m² by 2050.
 
 Building up, maintaining and conserving the fertility of different soil types around the world in the face of diverse climatic conditions is the biggest challenge to agriculture today. The key to soil fertility lies mostly in the humus content of soils.
 
