@@ -6,11 +6,11 @@ date: 2021-02-28
 # Bio*Philia* Living Design ~ Learning to live in the light of Nature.
 (*Proof of concept: Oct 2016 - Jan 2020*)
 
-**The cultivation of a symbiotic habitat that honors the individual as a *biological organism* in the *built environment* within the *biophysical environment.***
+**The cultivation of a symbiotic habitat, that honors the individual as a *biological organism* in the *built environment*, within the *biophysical environment.***
 
-## *Becoming a part of the circle of life.* The *symbiotic relationship* between *Wo-Man and Mother Earth* (environment) is highlighted, not human and 'things'.
+## *Becoming a part of the circle of life.* The *symbiotic relationships* between *Wo-Man and Mother Earth* (environment) is highlighted, not human and 'things'.
 
-***Harvesting Knowledge:*** Learning to catalogue experiences, the sources in the natural environment, of positive emotional states that humans experience, then recreate them in the built and cultivated environment to enhance emotional, mental, physical and biological health.
+***Harvesting Knowledge:*** Cataloging experiences, sources in the natural environment, of positive biological, physical and  emotional states that humans experience then, recreate them in the built and cultivated environments to enhance emotional, mental, physical and biological health.
 
 Civilized living; life-giving and life-sustaining with a high degree of refinement and comfort. Adaptable to all practical needs of life within an attractive built environment.
 
@@ -18,7 +18,7 @@ Civilized living; life-giving and life-sustaining with a high degree of refineme
 
 ***Curated to allow enjoyment of nature as freely as possible.***
 
-Wo-Men have an inherited need to connect to nature and other biotic forms due to their *Evolutionary Dependence* on it for *Survival* and *Personal Fulfillment.* This is the human birth wright.
+Wo-Men have an inherited need to connect to nature and other biotic forms due to their *Evolutionary Dependence* on it for *Survival* and *Personal Fulfillment.* This is the shared human birth wright, their biological need to connect with things that make living possible.
 
 ![*Patio garden bird.*](./vivariumGeorgeTownGallery/vivariumPatio/vivariumGTPatioBirdweb.JPG)
 
@@ -46,7 +46,23 @@ A living design built upon the inherent intuitive 'biophilic' response to built 
 
 #### *Authentic Living Design; creating symbiotic living environments that support, restore and regenerate both the physical body and the environment (earth body) have positive effects on the health of a population as a whole, not just the individual within the living design.*
 
-Urban environments are not nurturing environments in and of themselves, but can be curated and cultivated to be so. Break the role of 'consumer culture' of 'modern culture,' hang up the 'cultural costume' and design a lifeStyle of ones own, connected through too nature. Honoring the uniqueness of the self, breaking free of boundaries, to have reverence for ones own body. Avoiding pre-stylization of movement in life, taking off the 'cultural amour', allowing direct movement to evoke feelings. Going beyond, using the feeling to expand into the 'living' style of ones life through the kinesthetic sense.
+**Just as the ancients danced to call upon the spirits in nature, she too, can dance to find the spirits within herself that have long been buried and forgotten.**
+
+#### Discover what kind of meaning to give it ...
+
+**Life is in motion, every day movement is a dance, what one sees, smells, hears, how one brings their consciousness to the experience, to a tree, and then brings it into the body, that becomes the dance; the experience of the breath made visible. The movment has a purpose, to achieve something real in ones life. Dancing with life on the line, creates a sense of reverence for the process.**
+
+... starting over ... nothing lasts ... What she does have control over is how she copes with what happens, change. ...
+
+**Art is a way** ...  finding a common way to move forward through to nature ... finding the commonalities.
+
+#### *Cure is a medical intervention, healing is becoming whole.*
+
+**Recapture the integration between life and art ... living the creativity is the most important thing one has. Dance the essence of things.**
+
+#### _The denial, the courage to confront, the release ... flow again ..._
+
+Urban environments are not nurturing environments in and of themselves, but with care can become so, curated and cultivated to be so. Breaking the role of 'consumer culture' of 'modern culture,' hanging up the 'cultural costume' and designing a lifeStyle of ones own, connected through too nature. Honoring the uniqueness of the self, breaking free of boundaries, to have reverence for ones own body. Avoiding pre-stylization of movement in life, taking off the 'cultural amour', allowing direct experience to evoke feelings. Going beyond, using the feeling to expand into the 'living' style of ones life through the kinesthetic sense.
 
 **Love,** to feel how things are so that the physical body recognizes itself as part of nature.
 ***Cultivating intimacy with nature.***
@@ -58,7 +74,8 @@ Urban environments are not nurturing environments in and of themselves, but can 
 **An effort to cultivate personal potential and help others do so in the process.**
 
 Change comes with discovery, that is the way.
-Her power to create is limited entirely by the rules she happens to have in her language *now.* In the beginning was the word, and the word was made flesh.
+
+Her power to create is limited entirely by the rules she happens to have in her language *now.* In the beginning was the logos, and the logos was made flesh.
 
 #### *The way out is a personal responsibility, the way out is in the soil. When the soil is healed the soul follows.*
 
@@ -76,7 +93,7 @@ Her power to create is limited entirely by the rules she happens to have in her 
 
 ![Harmonize with the Natural World.](./vivariumGeorgeTownGallery/vivariumLivingRoom/vivariumGTLivingroomPatioweb.jpg)
 
-#### *The Aim; to Harmonize the Natural World with the Modern World.*
+#### *The Aim; to Harmonize the Natural World within the Modern World.*
 
 **Quality of Life**- *Mind, Body, Earth; Anima Mundi (world soul) Symbiotic Ecological Connections. Creating live and dynamic, open independent spaces that feel as they have existed long before ones arrival and will remain long after their depart.*
 
@@ -140,7 +157,7 @@ Besides an assortment of herbs, aloe plants, and experimental seedlings like Dur
 
 ![hanging patio garden](./vivariumGeorgeTownGallery/vivariumPatio/kokedama03.jpg)
 
-It became difficult to catalog the ever changing garden. Growing a diverse garden is part of what makes it a pleasure and easy to enjoy an Eco-responsible lifestyle. ***The gardens of the Vivarium, once established, provided (and often exceeded) all nutritional requirements for the host and co-host.*** (More details on plant selection and care will follow in a separate post.)
+It became difficult to catalog the ever changing garden. Growing a diverse garden is part of what made it a pleasure and easy to enjoy the discovery process towards an Eco-responsible lifestyle. ***The gardens of the Vivarium, once established, provided (and often exceeded) all nutritional requirements for the host and co-host.*** (More details on plant selection and care will follow in a separate post.)
 
 ![Kokedama](./vivariumGeorgeTownGallery/vivariumWindowHanging/vivariumKokedama01Web.jpg)
 
@@ -160,9 +177,9 @@ This was a shared private residence. At times the entire space was made availabl
 
 ![mangoGinger](./vivariumGeorgeTownGallery/vivariumGarden/mangoGingerHarvestVivariumApril2018.jpg)
 
-**Marketing**
+#### *Marketing*
 
-The Vivarium experience was marketed to "Creative Eco-Conscious Travelers" using Airbnb and Workaway platforms with a small team of dedicated local friends that helped make it all possible. The Vivarium listings attained "super host" status on the Airbnb platform.
+**The Vivarium experience was marketed to "Creative Eco-Conscious Travelers" using Airbnb and Workaway platforms with a small team of dedicated local friends that helped make it all possible. The Vivarium listings attained "super host" status on the Airbnb platform.**
 
 ![living-room](./vivariumGeorgeTownGallery/vivariumLivingRoom/vivariumGTLivingroomDinningweb.jpg)
 
