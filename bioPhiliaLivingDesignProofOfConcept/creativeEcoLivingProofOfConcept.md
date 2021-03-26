@@ -18,7 +18,7 @@ Civilized living; life-giving and life-sustaining with a high degree of refineme
 
 ***Curated to allow enjoyment of nature as freely as possible.***
 
-Wo-Men have an inherited need to connect to nature and other biotic forms due to their *Evolutionary Dependence* on it for *Survival* and *Personal Fulfillment.* This is the shared human birth wright, their biological need to connect with things that make living possible.
+Wo-Men have an inherited need to connect to nature and other biotic forms due to their *Evolutionary Dependence* on it for *Survival* and *Personal Fulfillment.* This is the shared human birthright; the biological need to connect with things that make living possible.
 
 ![*Patio garden bird.*](./vivariumGeorgeTownGallery/vivariumPatio/vivariumGTPatioBirdweb.JPG)
 
@@ -26,9 +26,9 @@ Wo-Men have an inherited need to connect to nature and other biotic forms due to
 
 ![moringa tree bloom](./vivariumGeorgeTownGallery/vivariumGarden/vivariumMoringaFlowers02Web.JPG)
 
-***Cross Pollinate; be the *gardener*, an open hand bringing seed to soil, the womb, the beginnings of life, love and endings. Each bloom in the doing of this most holy act.***
+***Cross Pollinate; being the *gardener*, an open hand, bringing seed to soil, the womb, the beginnings of life, love and endings. Each bloom in the doing of this most holy act.***
 
-Using the symbiotic relationship with *'Mother Earth'* as a path of discovery into the unique characteristics of intentional independent habitats, that not only can influence a spontaneous therapeutic act but also can be used by the designer to open; they are dynamic, adaptable and can be experienced, offering a safe space and the possibility for trying out inventive solutions and transformation.
+Using the symbiotic relationships with *'Mother Earth'* as a path of discovery into the unique characteristics of intentional independent habitats, that not only can influence a spontaneous therapeutic act but also can be used by the designer to open; they are dynamic, adaptable and can be experienced, offering a safe space and the possibility for trying out inventive solutions and transformation.
 
 #### *Psychobiology, where mind meets matter. The interaction between bio-logical systems and behavior.*
 
@@ -40,7 +40,11 @@ Using the symbiotic relationship with *'Mother Earth'* as a path of discovery in
 
 ![Open Space living room, stone floor](./vivariumGeorgeTownGallery/vivariumLivingRoom/vivariumGTLivingroomRelaxWeb.JPG)
 
-A living design built upon the inherent intuitive 'biophilic' response to built forms, natural settings and systems. Designed to generate healthy interactions by encouraging their spontaneous occurrence. New ways of thinking, seeing and relating to the Natural World can be expanded, experienced. Causing a total shift of posture, perceptions, beliefs, and thought processes. Transforming ones relationship with the Natural World.
+A living design built upon the inherent intuitive 'biophilic' response to built forms, natural settings and systems. Designed to generate healthy interactions by encouraging their spontaneous occurrence.
+
+New ways of thinking, seeing and relating to the Natural World can be expanded, experienced. Causing a total shift of posture, perceptions, beliefs, and thought processes. 
+
+***Transforming ones relationship with the Natural World.***
 
 ![Peek](./vivariumGeorgeTownGallery/vivariumLivingRoom/vivariumGTLivingroomPeekweb.jpg)
 
@@ -50,22 +54,29 @@ A living design built upon the inherent intuitive 'biophilic' response to built 
 
 #### Discover what kind of meaning to give it ...
 
-**Life is in motion, every day movement is a dance, what one sees, smells, hears, how one brings their consciousness to the experience, to a tree, and then brings it into the body, that becomes the dance; the experience of the breath made visible. The movment has a purpose, to achieve something real in ones life. Dancing with life on the line, creates a sense of reverence for the process.**
+**Life is in motion, every day movement is a dance, what one sees, smells, hears, how one brings their consciousness to the experience, to a tree, and then brings it into the body, that becomes the dance; the experience of the breath made visible.**
+
+**A ritual is a movement that has a purpose, to achieve something real in ones life. Dancing with life on the line, creates a sense of reverence for the process.**
 
 ... starting over ... nothing lasts ... What she does have control over is how she copes with what happens, change. ...
 
 **Art is a way** ...  finding a common way to move forward through to nature ... finding the commonalities.
 
-#### *Cure is a medical intervention, healing is becoming whole.*
+***Cure is a medical intervention, healing is becoming whole.***
 
-**Recapture the integration between life and art ... living the creativity is the most important thing one has. Dance the essence of things.**
+**Recapturing the integration between life and art ... living the creativity is the most important thing one has. Dance the essence of things.**
 
-#### _The denial, the courage to confront, the release ... flow again ..._
+***The denial, the courage to confront, the release ... too flow again ...***
 
-Urban environments are not nurturing environments in and of themselves, but with care can become so, curated and cultivated to be so. Breaking the role of 'consumer culture' of 'modern culture,' hanging up the 'cultural costume' and designing a lifeStyle of ones own, connected through too nature. Honoring the uniqueness of the self, breaking free of boundaries, to have reverence for ones own body. Avoiding pre-stylization of movement in life, taking off the 'cultural amour', allowing direct experience to evoke feelings. Going beyond, using the feeling to expand into the 'living' style of ones life through the kinesthetic sense.
+Urban environments are not nurturing environments in and of themselves, but with care, can be curated and cultivated into being so. Breaking the role of 'consumer culture' of 'modern culture,' hanging up the 'cultural costume' and designing a lifeStyle of ones own, connected through too nature. 
 
-**Love,** to feel how things are so that the physical body recognizes itself as part of nature.
-***Cultivating intimacy with nature.***
+***Honoring the uniqueness of the self,*** breaking free of boundaries, having reverence for ones own body. Avoiding pre-stylization of movement in life, taking off the 'cultural amour', allowing direct experience to evoke feelings. 
+
+Going beyond, using the feeling to expand into the 'living' style of ones life through the kinesthetic sense.
+
+**Love;** to feel how things are so that the physical body recognizes itself as part of nature.
+
+***Cultivating intimacy within nature.***
 
 ![Authentic Living](./vivariumGeorgeTownGallery/vivariumLivingRoom/livingRoomCandidCafeWeb.jpg)
 
