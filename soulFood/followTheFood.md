@@ -10,11 +10,15 @@ date: 2021-03-09
 ### *To whence it comes from, to wherein it is going, and to whither it will become.*
 *Proof of concept within a story. Harvesting form the environment too re-Cultivating an environmental deposit.*
 
-#### Soil to Soul; Nature creates conditions for life. She can't force it and she can't fake it, things must undergo the formality of actually occurring. Its the soil and plants as part of a *symbiotic partnership* that make *soul food* plausible.
+#### Soil to Soul; Nature creates conditions for life. She can't force it and she can't fake it, things must undergo the formality of actually occurring. Its the soil and plants as part of a *symbiotic partnership* that make *soul food* possible.
 
 ![Growing Green](./soilToSoulFoodImages/frogPot.jpg)
 
-***Meaningful work; an Act that transfers through to nature, the microbial soil, symbiotically healing Wo-Man too the Womb of Mother Earth. A ritual; a participatory event done with purpose to achieve something real in ones life. To feel is to sense the mystery of life through nature, too allow change to occur while working in it. Working in nature allows one to investigate the nature of the physical body, allowing the style of movement to evolve out of the personal creative expression, this is the style of Living. The integration of movement and feeling connected through Mother Earth.***
+***Meaningful work; an Act that transfers through to nature, the microbial soil, symbiotically healing Wo-Man too the Womb of Mother Earth.***
+
+***A ritual; a participatory event done with purpose to achieve something real in ones life. To feel is to sense the mystery of life through nature, too allow change to occur while working in it.***
+
+***Working in nature allows one to investigate the nature of the physical body, allowing the style of movement to evolve out of the personal creative expression, this is the style of Living. The integration of movement and feeling connected through Mother Earth.***
 
 ***Intelligence is not to see that nature is alive, its to recognize when its seen. The felt experience of being in organism; standing as a mirror before nature as its object. Woman is natures destination; being endowed within by the spirit of selfless service, as such She can speak for Mother Earth. Being indigenous of this land means caring for its next generations use.***
 
@@ -42,7 +46,7 @@ Re-connecting, bringing the *physical body* back into conversation with all that
 
 Bending down and spreading the *mud* with hands across the *Womb* of *Mother Earth.* Being moved into *action* by the extraordinary gifts of the plants and animals, sing *in thanks of giving* and dancing with feet caressing *Mother Earth.*
 
-***The gifts reside in the giving.***
+***The gifts live in the giving.***
 
 The living land grows and grows as *Earth Wo-Man* dances in thanks, from the dab of mud on *Womb*, the *alchemy* of all the animals’ gifts coupled with *Earth Wo-Man* in symbiotic deep gratitude. Together, this *alchemical dance*, formed what people know today as planet *Earth*, home.
 
