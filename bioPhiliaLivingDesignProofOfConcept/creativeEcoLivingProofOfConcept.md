@@ -34,6 +34,8 @@ Using the symbiotic relationship with *'Mother Earth'* as a path of discovery in
 
 ![Hanging Gardens window with jute and bamboo Moringa room](./vivariumGeorgeTownGallery/vivariumWindowHanging/vivariumGTDoubleWindowViewWeb.JPG)
 
+***People are deeply nourished by the process of creating wholeness.***
+
 ***Healing environments*** allow one to draw emotional support from their settings through the Symbiotic Energy, the living energy of the space. One then feels free to move around and interact unselfconsciously, to combine ones life with the life of the living systems and elements within the built space. Achieved by bringing in a number of high quality visual and intuitive interactions among the bio-logical ecosystems and elements of a built space and its users.
 
 ![Open Space living room, stone floor](./vivariumGeorgeTownGallery/vivariumLivingRoom/vivariumGTLivingroomRelaxWeb.JPG)
@@ -46,11 +48,17 @@ A living design built upon the inherent intuitive 'biophilic' response to built 
 
 Urban environments are not nurturing environments in and of themselves, but can be curated and cultivated to be so. Break the role of 'consumer culture' of 'modern culture,' hang up the 'cultural costume' and design a lifeStyle of ones own, connected through too nature. Honoring the uniqueness of the self, breaking free of boundaries, to have reverence for ones own body. Avoiding pre-stylization of movement in life, taking off the 'cultural amour', allowing direct movement to evoke feelings. Going beyond, using the feeling to expand into the 'living' style of ones life through the kinesthetic sense.
 
+**Love,** to feel how things are so that the physical body recognizes itself as part of nature.
+***Cultivating intimacy with nature.***
+
 ![Authentic Living](./vivariumGeorgeTownGallery/vivariumLivingRoom/livingRoomCandidCafeWeb.jpg)
 
 ### *Knowledge Harvested* from the 'symbiotic co-evolutionary experience' and theory are shared here.
 
 **An effort to cultivate personal potential and help others do so in the process.**
+
+Change comes with discovery, that is the way.
+Her power to create is limited entirely by the rules she happens to have in her language *now.* In the beginning was the word, and the word was made flesh.
 
 #### *The way out is a personal responsibility, the way out is in the soil. When the soil is healed the soul follows.*
 
