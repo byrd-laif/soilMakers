@@ -10,7 +10,7 @@ date: 2021-02-28
 
 ## *Becoming a part of the circle of life.* The *symbiotic relationships* between *Wo-Man and Mother Earth* (environment) is highlighted, not human and 'things'.
 
-***Harvesting Knowledge:*** Cataloging experiences, sources in the natural environment, of positive biological, physical and  emotional states that humans experience then, recreate them in the built and cultivated environments to enhance emotional, mental, physical and biological health.
+***Harvesting Knowledge:*** Cataloging experiences, sources in the natural environment, of positive biological, physical and  emotional states that humans experience then, recreating them in the built and cultivated environments to enhance emotional, mental, physical and biological health.
 
 Civilized living; life-giving and life-sustaining with a high degree of refinement and comfort. Adaptable to all practical needs of life within an attractive built environment.
 
@@ -18,7 +18,7 @@ Civilized living; life-giving and life-sustaining with a high degree of refineme
 
 ***Curated to allow enjoyment of nature as freely as possible.***
 
-Wo-Men have an inherited need to connect to nature and other biotic forms due to their *Evolutionary Dependence* on it for *Survival* and *Personal Fulfillment.* This is the shared human birthright; the biological need to connect with things that make living possible.
+Wo-Men have an inherit need to connect to nature and other biotic forms due to their *Evolutionary Dependence* on it for *Survival* and *Personal Fulfillment.* This is the shared human birthright; the biological need to connect with things that make living possible.
 
 ![*Patio garden bird.*](./vivariumGeorgeTownGallery/vivariumPatio/vivariumGTPatioBirdweb.JPG)
 
@@ -74,7 +74,7 @@ Urban environments are not nurturing environments in and of themselves, but with
 
 Going beyond, using the feeling to expand into the 'living' style of ones life through the kinesthetic sense.
 
-**Love;** to feel how things are so that the physical body recognizes itself as part of nature.
+**Love;** to feel how things are, allowing the physical body recognize itself as part of nature.
 
 ***Cultivating intimacy within nature.***
 
@@ -104,7 +104,7 @@ Her power to create is limited entirely by the rules she happens to have in her 
 
 ![Harmonize with the Natural World.](./vivariumGeorgeTownGallery/vivariumLivingRoom/vivariumGTLivingroomPatioweb.jpg)
 
-#### *The Aim; to Harmonize the Natural World within the Modern World.*
+#### *The Aim; to Harmonize the Natural World Within the Modern World.*
 
 **Quality of Life**- *Mind, Body, Earth; Anima Mundi (world soul) Symbiotic Ecological Connections. Creating live and dynamic, open independent spaces that feel as they have existed long before ones arrival and will remain long after their depart.*
 
