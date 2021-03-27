@@ -18,7 +18,7 @@ date: 2021-03-09
 
 ***A ritual; a participatory event done with purpose to achieve something real in ones life. To feel is to sense the mystery of life through nature, too allow change to occur while working in it.***
 
-***Working in nature allows one to investigate the nature of the physical body, allowing the style of movement to evolve out of the personal creative expression, this is the style of Living. The integration of movement and feeling connected through Mother Earth.***
+***Investigating the nature of the physical body, through the earth body, allowing the style of movement to evolve out of the personal creative expression, this is the style of life. The integration of movement and feeling connected through Mother Earth.***
 
 ***Intelligence is not to see that nature is alive, its to recognize when its seen. The felt experience of being in organism; standing as a mirror before nature as its object. Woman is natures destination; being endowed within by the spirit of selfless service, as such She can speak for Mother Earth. Being indigenous of this land means caring for its next generations use.***
 
@@ -40,7 +40,7 @@ date: 2021-03-09
 
 ![Nam Khan River](./soilToSoulFoodImages/bambooBridgeNamKhan01.jpg)
 
-#### *To reveal a path toward healing the rift that grows between Wo-Man and nature.*
+#### *To Reveal a path toward healing the rift that grows between Wo-Man and nature.*
 
 Re-connecting, bringing the *physical body* back into conversation with all that is green and growing. A *universe* that never stopped speaking to *Earth Wo-Man,* even when they forgot how to listen.
 
