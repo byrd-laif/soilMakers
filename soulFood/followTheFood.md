@@ -46,7 +46,7 @@ Re-connect, bring the *physical body* back into conversation with all that is gr
 
 Bend down and spread the *mud* with hands across the *Womb* of *Mother Earth.* Being moved into *action* by the extraordinary gifts of the plants and animals, singing *in thanks of giving* and dancing with feet caressing *Mother Earth.*
 
-***The gifts live in the giving.***
+***The gift of life lives in the giving.***
 
 The living land grows and grows as *Earth Wo-Man* dances in thanks, from the dab of mud on *Womb*, the *alchemy* of all the animals’ gifts coupled with *Earth Wo-Man* in symbiotic deep gratitude. Together, this *alchemical dance*, formed what people know today as planet *Earth*, home.
 
