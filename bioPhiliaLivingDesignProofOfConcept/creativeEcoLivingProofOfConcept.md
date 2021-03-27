@@ -190,7 +190,7 @@ This was a shared private residence. At times the entire space was made availabl
 
 #### *Marketing*
 
-**The Vivarium experience was marketed to "Creative Eco-Conscious Travelers" using Airbnb and Workaway platforms with a small team of dedicated local friends that helped make it all possible. The Vivarium listings attained "super host" status on the Airbnb platform.**
+**The Vivarium experience was marketed to "Creative Eco-Conscious Travelers" using Airbnb and Workaway platforms with a small team of dedicated local friends that helped make it all possible. The Vivarium listings attained "super host" status within its first three months on the Airbnb platform, hosting 411 guests from around the world (Oct 2016 - Jan 2020).**
 
 ![living-room](./vivariumGeorgeTownGallery/vivariumLivingRoom/vivariumGTLivingroomDinningweb.jpg)
 
