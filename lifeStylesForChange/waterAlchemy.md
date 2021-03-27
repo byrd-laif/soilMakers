@@ -69,7 +69,7 @@ Increased urbanization has introduced a staggeringly large volume of contaminant
 By no surprise, improving water quality makes a significant difference.
 
 **Waterborne infections account for 80% of all infectious diseases.**
-There is a serious global environmental resource problem of water, soil and energy that are now coming to bear on *Life As People Know It:* food production, malnutrition, the incidence of diseases, ... . ***By 2025, half the world population will be living in water-stressed areas.***(WHO) People are literally killing the micro-biome with chemicals that alter this grand vast unknowable microbial balance of Mother Earth. 
+There is a serious global environmental resource problem of water, soil and energy that are now coming to bear down on *Life As People Know It:* food production, malnutrition, the incidence of diseases, ... . ***By 2025, half the world population will be living in water-stressed areas.***(WHO) People are literally killing the micro-biome with chemicals that alter this grand vast unknowable microbial balance of Mother Earth.
 
 **Water, the “universal solvent,”** is a major constituent of the soil and exerts a strong influence on soil biota because many of the biota are adapted to life in a saturated atmosphere.
 
