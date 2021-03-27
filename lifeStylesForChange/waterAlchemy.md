@@ -61,10 +61,11 @@ There are many targeted uses for these metabolites. LAB are applied in food prod
 **Home Cleaning products and fertilizers made with chemicals and pesticides pollute the underground water, rivers and surrounding ecosystems.** Pharmaceutical drugs and personal care products, also manufactured by many pharmaceutical companies (such as sunscreen lotions, lipsticks, deodorants, perfumes, body soaps, and shampoos, ...), are produced in staggeringly huge quantities; **often equaling or surpassing agrochemicals in tonnage.** The volume consumed is simply astounding. All of these go into the ecosystem, most of them into waste treatment systems. These conventional cleaning products contain harmful amounts of chemicals such as phosphate, nitrates, ammonia, chlorine etc. The accumulated effect of these chemicals released from every household causes significant damage to the health of the environment and the body.
 
 #### *Cleaner Water Is Cleaner Air.*
+**Polluted bodies of water are toxic hot-spots for greenhouse gas emissions.**
 
 The fact is that rivers are being polluted by human activities, especially in urban areas, which is also causing higher greenhouse gas emissions. More than half of the world's population lives closer than 3km to a freshwater body, many are river networks.
 
-Increased urbanization has introduced a staggeringly large volume of contaminants to rivers, more than 80% of municipal wastewater is still directly discharged into the environment. Most of the pollutants come from untreated wastewater, agricultural runoffs, and increased sediment accumulation. Polluted bodies of water are toxic hot-spots for greenhouse gas emissions.
+Increased urbanization has introduced a staggeringly large volume of contaminants to rivers, more than 80% of municipal wastewater is still directly discharged into the environment. Most of the pollutants come from untreated wastewater, agricultural runoffs, and increased sediment accumulation.
 
 ***River restoration begins with reducing pollution.***
 
