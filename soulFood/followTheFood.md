@@ -42,9 +42,9 @@ date: 2021-03-09
 
 #### *To Reveal a path toward healing the rift that grows between Wo-Man and nature.*
 
-Re-connecting, bringing the *physical body* back into conversation with all that is green and growing. A *universe* that never stopped speaking to *Earth Wo-Man,* even when they forgot how to listen.
+Re-connect, bring the *physical body* back into conversation with all that is green and growing. A *universe* that never stopped speaking to *Earth Wo-Man,* even when they forgot how to listen.
 
-Bending down and spreading the *mud* with hands across the *Womb* of *Mother Earth.* Being moved into *action* by the extraordinary gifts of the plants and animals, singing *in thanks of giving* and dancing with feet caressing *Mother Earth.*
+Bend down and spread the *mud* with hands across the *Womb* of *Mother Earth.* Being moved into *action* by the extraordinary gifts of the plants and animals, singing *in thanks of giving* and dancing with feet caressing *Mother Earth.*
 
 ***The gifts live in the giving.***
 
