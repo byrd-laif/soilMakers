@@ -65,6 +65,8 @@ There are many targeted uses for these metabolites. LAB are applied in food prod
 
 The fact is that rivers are being polluted by human activities, especially in urban areas, which is also causing higher greenhouse gas emissions. More than half of the world's population lives closer than 3km to a freshwater body, many are river networks.
 
+**Mother Earths Rivers Are Breathing, fresh water lakes, rivers, streams ... breath, however they are now so toxic they are exhaling all that humanity has give them, giving them back what they gave in return for the use.**
+
 Increased urbanization has introduced a staggeringly large volume of contaminants to rivers, more than 80% of municipal wastewater is still directly discharged into the environment. Most of the pollutants come from untreated wastewater, agricultural runoffs, and increased sediment accumulation.
 
 ***River restoration begins with reducing pollution.***
