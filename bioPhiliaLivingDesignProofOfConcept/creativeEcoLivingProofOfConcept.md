@@ -58,13 +58,13 @@ New ways of thinking, seeing and relating to the Natural World can be expanded, 
 
 **A ritual is a movement that has a purpose, to achieve something real in ones life. Dancing with life on the line, creates a sense of reverence for the process.**
 
-... starting over ... nothing lasts ... What she does have control over is how she copes with what happens, change. ...
+... starting over ... nothing lasts ... What one does have control over is how one copes with what happens, change. ...
 
 **Art is a way** ...  finding a common way to move forward through to nature ... finding the commonalities.
 
 ***Cure is a medical intervention, healing is becoming whole.***
 
-**Recapturing the integration between life and art ... living the creativity is the most important thing one has. Dance the essence of things.**
+**Recapturing the integration between life and art/style, ... living the creativity is the most important thing one has. Dance the essence of things.**
 
 ***The denial, the courage to confront, the release ... too flow again ...***
 
@@ -190,7 +190,7 @@ This was a shared private residence. At times the entire space was made availabl
 
 #### *Marketing*
 
-**The Vivarium experience was marketed to "Creative Eco-Conscious Travelers" using Airbnb and Workaway platforms with a small team of dedicated local friends that helped make it all possible. The Vivarium listings attained "super host" status within its first three months on the Airbnb platform, hosting 411 guests from around the world (Oct 2016 - Jan 2020).**
+**The Vivarium experience was marketed to "Creative Eco-Conscious Travelers" using Airbnb and Workaway platforms with a small team of dedicated local friends that helped make it all possible. The Vivarium listings attained "super host" status within its first three months on the Airbnb platform, taking 411 bookings with guests from the world (Oct 2016 - Jan 2020).**
 
 ![living-room](./vivariumGeorgeTownGallery/vivariumLivingRoom/vivariumGTLivingroomDinningweb.jpg)
 

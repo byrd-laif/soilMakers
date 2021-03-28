@@ -18,7 +18,7 @@ date: 2021-03-09
 
 ***A ritual; a participatory event done with purpose to achieve something real in ones life. To feel is to sense the mystery of life through nature, too allow change to occur while working in it.***
 
-***Investigating the nature of the physical body, through the earth body, allowing the style of movement to evolve out of the personal creative expression, this is the style of life. The integration of movement and feeling connected through Mother Earth.***
+***Investigating the nature of the physical body, through the earth body, allowing the style of movement to evolve out of the personal creative expression. The style of life; the integration of movement and feeling connected through Mother Earth.***
 
 ***Intelligence is not to see that nature is alive, its to recognize when its seen. The felt experience of being in organism; standing as a mirror before nature as its object. Woman is natures destination; being endowed within by the spirit of selfless service, as such She can speak for Mother Earth. Being indigenous of this land means caring for its next generations use.***
 
@@ -30,7 +30,7 @@ date: 2021-03-09
 
 **A movable feast; plant knowledge distilled and assimilated through the physical body, cultivated into living soil, and returned to the womb of Mother Earth *in-kind.* Sustenance; life supporting and sustaining. Returned as something meaningful.**
 
-#### *Empowering direct experience, contact with the divine made manifest.*
+#### *Empowering direct experience; contact with the divine made manifest.*
 
 **A symbiotic microbial messenger; from humus, through human, to humus. Returned to a different local with a uniquely healing microbial make up, *pro-biotic soul food* for the ancestral soil, *earth body.* Healing Wo-Man, their relationships with one another and Mother Earth through the unified *Soil Womb*.**
 
@@ -42,7 +42,7 @@ date: 2021-03-09
 
 #### *To Reveal a path toward healing the rift that grows between Wo-Man and nature.*
 
-Re-connect, bring the *physical body* back into conversation with all that is green and growing. A *universe* that never stopped speaking to *Earth Wo-Man,* even when they forgot how to listen.
+Re-connect; bring the *physical body* back into conversation with all that is green and growing. A *universe* that never stopped speaking to *Earth Wo-Man,* even when they forgot how to listen.
 
 Bend down and spread the *mud* with hands across the *Womb* of *Mother Earth.* Being moved into *action* by the extraordinary gifts of the plants and animals, singing *in thanks of giving* and dancing with feet caressing *Mother Earth.*
 
@@ -63,6 +63,8 @@ The genes that translate to mast fruiting flow on enzymatic coevolutionary curre
 ***Communities in mutual symbiosis solve problems.***
 
 Synergized in people by plants, the living lands are a power of responsibility, *the world* is an enacted, *sacred ground*. To *Earth Wo-Man* it is everything, a living legacy; identity, connection to ancestors, the symbiotic whole home, the pharmacy, the library, the source of all that sustains *Earth Wo-Man*.
+
+***The essence of the beautiful is unity in variety.***
 
 All belong, it is through actions of reciprocity, the giving and receiving in harmony with the living land that people have become *Earth Wo-Man* (indigenous). Just as *Mother Earth* cannot be claimed, nor can *Earth Wo-Man*. Being self-initiated/declared, not from a land domination named through conquer or conquest.
 
