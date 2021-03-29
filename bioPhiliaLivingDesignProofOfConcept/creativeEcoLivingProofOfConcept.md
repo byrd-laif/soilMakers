@@ -4,6 +4,7 @@ date: 2021-02-28
 ---
 
 # Bio*Philia* Living Design ~ Learning to live in the light of Nature.
+*An archaic revival; Working toward a shared and living language, learning how to discover patterns which are deep, and capable of generating life.*
 (*Proof of concept: Oct 2016 - Jan 2020*)
 
 **The cultivation of a symbiotic habitat, that honors the individual as a *biological organism* in the *built environment*, within the *biophysical environment.***

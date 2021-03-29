@@ -2,6 +2,8 @@
 
 ***A Living Legacy - Ecology As Art;* curating symbiotic relationships between Wo-Man, organisms and their environments.**
 
+*An archaic revival; Working toward a shared and living language, learning how to discover patterns which are deep, and capable of generating life.*
+
 [Live Blog On Matrix - Soil Seekers](https://matrix.to/#/!EwezVvVjpxKVCMIuRM:matrix.org?via=matrix.org&via=kde.org&via=converser.eu)
 
 ## *Vivarium Salon Circle/Programs ~ place of life*
