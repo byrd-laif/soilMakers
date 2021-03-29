@@ -11,7 +11,7 @@ date: 2021-02-28
 
 ## *Becoming a part of the circle of life.* The *symbiotic relationships* between *Wo-Man and Mother Earth* (environment) is highlighted, not human and 'things'.
 
-***Harvesting Knowledge:*** Cataloging experiences, sources in the natural environment, of positive biological, physical and  emotional states that humans experience then, recreating them in the built and cultivated environments to enhance emotional, mental, physical and biological health.
+***Harvesting Knowledge:*** In order to discover patterns which are alive one must always start with observation. Cataloging experiences, sources in the natural environment, of positive biological, physical and  emotional states that humans experience then, recreating them in the built and cultivated environments to enhance emotional, mental, physical and biological health.
 
 Civilized living; life-giving and life-sustaining with a high degree of refinement and comfort. Adaptable to all practical needs of life within an attractive built environment.
 
