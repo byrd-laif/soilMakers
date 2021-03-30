@@ -36,7 +36,7 @@ date: 2021-03-09
 
 #### What ever the physical mind feeds upon is what the *Earth Body* calls to *Wo-Man*, *Soil too Soul* they receive.
 
-**As such this journey will begin in a field,** the soils cultivated by the [Nam Khan Eco Lodge and Farm,](https://www.namkhanecolodge.com/) chosen for the close proximity and open access. The Nam Khan River is a major tributary of the river Mekong, with which it joins at Luang Prabang. A journey 6.5km up river to harvest soil knowledge at the source, and document cultivation from seed to harvest. The journey will then continue into the home kitchen, with recipes of soul food for the physical body. Moving through the physical body, bio-matter enters into a cyclical fermentation process, whereupon the spirit is released. From tomb to womb, emerging whole as unified humus soil, pro-biotic soul food for the earth body.
+**As such this journey will begin in a field,** the soils cultivated by the Nam Khan Eco Lodge and Farm, chosen for the close proximity and open access. The Nam Khan River is a major tributary of the river Mekong, with which it joins at Luang Prabang. A journey 6.5km up river to harvest soil knowledge at the source, and document cultivation from seed to harvest. The journey will then continue into the home kitchen, with recipes of soul food for the physical body. Moving through the physical body, bio-matter enters into a cyclical fermentation process, whereupon the spirit is released. From tomb to womb, emerging whole as unified humus soil, pro-biotic soul food for the earth body.
 
 ![Nam Khan River](./soilToSoulFoodImages/bambooBridgeNamKhan01.jpg)
 
@@ -62,7 +62,7 @@ The genes that translate to mast fruiting flow on enzymatic coevolutionary curre
 
 ***Communities in mutual symbiosis solve problems.***
 
-Synergized in people by plants, the living lands are a power of responsibility, *the world* is an enacted, *sacred ground*. To *Earth Wo-Man* it is everything, a living legacy; identity, connection to ancestors, the symbiotic whole home, the pharmacy, the library, the source of all that sustains *Earth Wo-Man*.
+Self-actualized - Synergized in people by plants, the living lands are a power of responsibility, *the world* is an enacted, *sacred ground*. To *Earth Wo-Man* it is everything, a living legacy; identity, connection to ancestors, the symbiotic whole home, the pharmacy, the library, the source of all that sustains *Earth Wo-Man*.
 
 ***The essence of the beautiful is unity in variety.***
 
