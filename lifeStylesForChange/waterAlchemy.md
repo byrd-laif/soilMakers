@@ -17,7 +17,9 @@ date: 2018-08-13
 ### *Water Alchemy - Recycling organic materials through living organisms naturally purifies water.*
 ***Water Alchemy*** is the ongoing exploration of what happens when people connect head, heart, and body in the crucible of the water. The ancient alchemists combined substances and used the influence of their own minds to study the transmutation of matter and of spirit. Observe when the discursive mind becomes quieter and the intelligence of the heart comes to the foreground, a new ecologically symbiotic consciousness emerges. Work in symbiotic partnership with the more-than-human world and make incredible discoveries.
 
-#### Pro-biotic Eco-enzyme is *Water Therapy;* the practice of spending time *cultivating living healing water* for the purpose of enhancing whole health, *Earth Care,* wellness, and happiness. A practice of *symbiotic connection* with the natural world and with each other, *healing water to soul.*
+#### Pro-biotic Eco-enzyme is *Water Therapy;* the practice of spending time *cultivating living healing water* for the purpose of enhancing whole health, *Earth Care,* wellness, and happiness. A practice of *symbiotic connection* with the natural world and with each other; forgiveness, *healing water to soul.*
+
+***Bio-Logical Freedom; free to swim in the rivers of Mother Earth without fear of reprisal.***
 
 Wo-Men connect through water, the universal solvent. Water speaks, it takes the knowledge of the leaf from the mountains to the sea, and the rain takes it up from the sea back to the mountains.
 
@@ -58,14 +60,14 @@ There are many targeted uses for these metabolites. LAB are applied in food prod
 
 *Every part of the World is given its character, essentially, by a small number of patterns which repeat themselves over and over again.*
 
-**Home Cleaning products and fertilizers made with chemicals and pesticides pollute the underground water, rivers and surrounding ecosystems.** Pharmaceutical drugs and personal care products, also manufactured by many pharmaceutical companies (such as sunscreen lotions, lipsticks, deodorants, perfumes, body soaps, and shampoos, ...), are produced in staggeringly huge quantities; **often equaling or surpassing agrochemicals in tonnage.** The volume consumed is simply astounding. All of these go into the ecosystem, most of them into waste treatment systems. These conventional cleaning products contain harmful amounts of chemicals such as phosphate, nitrates, ammonia, chlorine etc. The accumulated effect of these chemicals released from every household causes significant damage to the health of the environment and the body.
+**Home Cleaning products and fertilizers made with chemicals and pesticides pollute the underground water, rivers and surrounding ecosystems.** Pharmaceutical drugs and personal care products, also manufactured by many pharmaceutical companies (such as sunscreen lotions, lipsticks, deodorants, perfumes, body soaps, and shampoos, ...), are produced in staggeringly huge quantities; **often equaling or surpassing agrochemicals in tonnage.** The volume consumed is simply astounding. All of these go into the ecosystem, most of them into waste treatment systems. These conventional body and home cleaning products contain harmful amounts of chemicals such as phosphate, nitrates, ammonia, chlorine etc. The accumulated effect of these chemicals released from every household causes significant damage to the health of the environment and the body.
 
 #### *Clean Water Is Clean Air.*
-**Polluted bodies of water are toxic hot-spots for greenhouse gas emissions.**
+**Polluted bodies of water are toxic hot-spots for greenhouse gas emissions.** 
 
-The fact is that rivers are being polluted by human activities, especially in urban areas, which is also causing higher greenhouse gas emissions. More than half of the world's population lives closer than 3km to a freshwater body, many are river networks.
+**The fact is that rivers are being polluted by human activities, especially in urban areas, which is also causing higher greenhouse gas emissions. More than half of the world's population lives closer than 3km to a freshwater body, many are river networks.**
 
-**Mother Earths Rivers Are Breathing, fresh water lakes, rivers, streams ... breath, however they are now so toxic they are exhaling all that humanity has give them, giving them back what they gave in return for the use.**
+**Mother Earths Rivers Are Breathing, fresh water lakes, rivers, streams ... breath, however they are now so toxic they are exhaling all that humanity has give them, giving them back what they gave in return for the use. This is the trend that must be reversed.**
 
 Increased urbanization has introduced a staggeringly large volume of contaminants to rivers, more than 80% of municipal wastewater is still directly discharged into the environment. Most of the pollutants come from untreated wastewater, agricultural runoffs, and increased sediment accumulation.
 

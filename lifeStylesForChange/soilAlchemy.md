@@ -12,13 +12,11 @@ date: 2018-08-13
 
 ***Soil Alchemy*** is the ongoing exploration of what happens when people connect head, heart, and body in the crucible of the soil. The ancient alchemists combined substances and used the influence of their own minds to study the transmutation of matter and of spirit. Observe when the discursive mind becomes quieter and the intelligence of the heart comes to the foreground, a new *ecologically symbiotic consciousness* emerges. Work in *symbiotic partnership with the more-than-human world* and make incredible discoveries.
 
-### Bokashi is *Soil Therapy;* the practice of spending time *cultivating fertile soil* for the purpose of enhancing whole health, *Earth Care,* wellness, and happiness. A practice of *symbiotic connection* with the natural world and with each other, healing soil to soul.
+### Bokashi is *Soil Therapy;* the practice of spending time *cultivating fertile soil* for the purpose of enhancing whole health, *Earth Care,* wellness, and happiness. A practice of *symbiotic connection* with the natural world and with each other; forgiveness, healing soil to soul.
 
 A series of guided invitations, natural cycles, bring one into the present moment, opening the doors of symbiotic communication with the soil, waters, and landscapes explored. Encounter not just the soil, but the many ways nature mirrors humans, encountering oneself, Soil to Soul Food.
 
 **Soil life is fragile,** an estimated one third of global soils are degraded. Moreover, each year an estimated 24 billion tonnes of fertile soil are lost due to erosion alone.
-
-Due to rapid urbanization the amount of arable land available for each person is continually dropping. Currently, each human being has only 2,000m² at their disposal; in 1961, that figure was 4,000m². At current rates, the amount of arable land available per person will decrease to 1,500m² by 2050.
 
 Building up, maintaining and conserving the fertility of different soil types around the world in the face of diverse climatic conditions is the biggest challenge to agriculture today. The key to soil fertility lies mostly in the humus content of soils.
 
@@ -32,6 +30,8 @@ Its easy to destroy something, the challenge is to create something meaningful. 
 **Humus is organic matter reduced until it can break down no further. In this state of evolution its appearance is unified. Commonly known as topsoil, humus is essential for all life. It creates fertile terrain for new growth, strengthens immunity and offers nutrients needed for soil organisms to regenerate.**
 
 The current high erosion rates throughout the world are of great concern because of the slow rate of topsoil renewal; it takes approximately 500 years for 2.5 cm layer of fertile topsoil to form under agricultural conditions.
+
+Due to rapid urbanization the amount of arable land available for each person is continually dropping. Currently, each human being has only 2,000m² at their disposal; in 1961, that figure was 4,000m². At current rates, the amount of arable land available per person will decrease to 1,500m² by 2050.
 
 **Bokashi gives a finished pro-biotic living soil in 30–45 days all in.** The speed of the fermentation process is a big advantage, cycling organic remnants faster by going straight from kitchen to fermentation, to soil, over and over again in small batches. With out the need to collect a critical mass of scraps to start, the fermentation process starts right away. Scale the fermentation vessel to the amount of scraps being generated, going straight into the bokashi bucket as soon as they are produced.
 

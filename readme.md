@@ -53,7 +53,7 @@
 
 ***Power as responsibility rather than domination.*** A radical sift from the 'dominator' Bio-Logical Warfare; built on guilt, fear and force. To an 'Eco-logical Partnership'. *Bio-Logical Freedom; free to swim in the rivers of Mother Earth without fear of reprisal.*
 
-**Partnership systems support mutually respectful and caring relations.** Reconciliation, free to turn and question: Where does Wo-Man go from here?
+**Partnership systems support mutually respectful and caring relations.** Reconciliation; forgiveness, free to turn and question: Where does Wo-Man go from here?
 
 **Environ-Mental Health ~ *The ethics of ecology;* Learning to live in the light of Nature.**
 

@@ -11,7 +11,7 @@ date: 2021-02-28
 
 ## *Becoming a part of the circle of life.* The *symbiotic relationships* between *Wo-Man and Mother Earth* (environment) is highlighted, not human and 'things'.
 
-***Harvesting Knowledge:*** In order to discover patterns which are alive one must always start with observation. Cataloging experiences, sources in the natural environment, of positive biological, physical and  emotional states that humans experience then, recreating them in the built and cultivated environments to enhance emotional, mental, physical and biological health.
+***Harvesting Knowledge:*** In order to discover patterns which are alive one must always start with observation. Cataloging experiences, sources in the natural environment, of positive biological, physical and emotional states that humans experience then, recreating them in the built and cultivated environments to enhance emotional, mental, physical and biological health.
 
 Civilized living; life-giving and life-sustaining with a high degree of refinement and comfort. Adaptable to all practical needs of life within an attractive built environment.
 
@@ -27,9 +27,9 @@ Wo-Men have an inherit need to connect to nature and other biotic forms due to t
 
 ![moringa tree bloom](./vivariumGeorgeTownGallery/vivariumGarden/vivariumMoringaFlowers02Web.JPG)
 
-***Cross Pollinate; being the *gardener*, an open hand, bringing seed to soil, the womb, the beginnings of life, love and endings. Each bloom in the doing of this most holy act.***
+***Cross Pollinate; being the *gardener*, an open hand, bringing seed to soil, the womb of Mother Earh, the beginnings of life, love and endings. Each bloom in the doing of this most holy act.***
 
-Using the symbiotic relationships with *'Mother Earth'* as a path of discovery into the unique characteristics of intentional independent habitats, that not only can influence a spontaneous therapeutic act but also can be used by the designer to open; they are dynamic, adaptable and can be experienced, offering a safe space and the possibility for trying out inventive solutions and transformation.
+Using the symbiotic relationships with *'Mother Earth'* as a path of discovery into the unique characteristics of intentional independent habitats, that not only can influence a spontaneous therapeutic act but can also be used by the designer to open; they are dynamic, adaptable and can be experienced, offering a safe space and the possibility for trying out inventive solutions and transformation.
 
 #### *Psychobiology, where mind meets matter. The interaction between bio-logical systems and behavior.*
 
@@ -37,7 +37,7 @@ Using the symbiotic relationships with *'Mother Earth'* as a path of discovery i
 
 ***People are deeply nourished by the process of creating wholeness.***
 
-***Healing environments*** allow one to draw emotional support from their settings through the Symbiotic Energy, the living energy of the space. One then feels free to move around and interact unselfconsciously, to combine ones life with the life of the living systems and elements within the built space. Achieved by bringing in a number of high quality visual and intuitive interactions among the bio-logical ecosystems and elements of a built space and its users.
+***Healing environments*** allow one to draw emotional support from their settings through the Symbiotic Energy, the living energy of the space. One then feels free to move around and interact unselfconsciously, *to combine ones life with the life of the living* systems and elements within the built space. Achieved by bringing in a number of high quality visual and intuitive interactions among the bio-logical ecosystems and elements of a built space and its users.
 
 ![Open Space living room, stone floor](./vivariumGeorgeTownGallery/vivariumLivingRoom/vivariumGTLivingroomRelaxWeb.JPG)
 
@@ -47,11 +47,13 @@ New ways of thinking, seeing and relating to the Natural World can be expanded, 
 
 ***Transforming ones relationship with the Natural World.***
 
+Then, once discovered as a fluid field of relationships, one can redefine it, as an entity, to make it operational.
+
 ![Peek](./vivariumGeorgeTownGallery/vivariumLivingRoom/vivariumGTLivingroomPeekweb.jpg)
 
 #### *Authentic Living Design; creating symbiotic living environments that support, restore and regenerate both the physical body and the environment (earth body) have positive effects on the health of a population as a whole, not just the individual within the living design.*
 
-**Just as the ancients danced to call upon the spirits in nature, she too, can dance to find the spirits within herself that have long been buried and forgotten.**
+**Just as the ancients danced to call upon the spirits in nature, Wo-Man too, can dance to find the spirits within oneself that have long been buried and forgotten.**
 
 #### Discover what kind of meaning to give it ...
 
@@ -59,15 +61,13 @@ New ways of thinking, seeing and relating to the Natural World can be expanded, 
 
 **A ritual is a movement that has a purpose, to achieve something real in ones life. Dancing with life on the line, creates a sense of reverence for the process.**
 
-... starting over ... nothing lasts ... What one does have control over is how one copes with what happens, change. ...
+*... starting over ... nothing lasts ... What one does have control over is how one copes with what happens, change. ...*
 
 **Art is a way** ...  finding a common way to move forward through to nature ... finding the commonalities.
 
 ***Cure is a medical intervention, healing is becoming whole.***
 
-**Recapturing the integration between life and art/style, ... living the creativity is the most important thing one has. Dance the essence of things.**
-
-***The denial, the courage to confront, the release ... too flow again ...***
+**Recapturing the integration between life and art/style, ... living the creativity is the most important thing one has. Dance the essence of things.** *The denial, the courage to confront, the release ... too flow again ...*
 
 Urban environments are not nurturing environments in and of themselves, but with care, can be curated and cultivated into being so. Breaking the role of 'consumer culture' of 'modern culture,' hanging up the 'cultural costume' and designing a lifeStyle of ones own, connected through too nature. 
 
@@ -113,9 +113,9 @@ Her power to create is limited entirely by the rules she happens to have in her 
 
 **Environ-mental Health** - An enchanted sensibility can be strategically cultivated to ***'Capitalize On The Use Of The Senses To Create Change'.***
 
-***Physical body is the placebo;*** the mind’s natural capacity to influence bodily functions and symptoms.
+***The Physical Body Is The Placebo;*** the mind’s natural capacity to influence bodily functions and symptoms.
 
-**Co-evolutionary ecosystems:** Re-establishing and encouraging healthy symbiotic connections with nature (Mother Earth) through sensory experiences; physical and biological interactions, movement, and hands-on activities. Allowing the brain, body and earth body to establish new, more productive patterns.
+**Co-evolutionary ecosystems:** Re-establishing and encouraging healthy symbiotic connections with nature (Mother Earth) through sensory experiences; physical and biological interactions, movement, and hands-on meaningful activities. Allowing the brain, body and earth body to establish new, more productive patterns.
 
 ![Harvest](./vivariumGeorgeTownGallery/vivariumHarvest/vivariumLivingHarvest01Web.JPG)
 
@@ -137,7 +137,7 @@ The surrounding low density neighborhood is tranquil with many large trees, and 
 
 #### The Building and Property
 
-A residential, 3-story apartment building with 15 exclusive units, each 1230 square feet in size. With permission, residents were voluntary participants in composting and a small food garden was under personal cultivation.
+A residential, 3-story apartment building with 15 exclusive units, each 1230 square feet in size. With permission, residents were voluntary participants in bokashi soil building and a small food garden was under personal cultivation.
 
 #### *The Vivarium ~ place of life*
 
@@ -157,7 +157,7 @@ Intentional privacy screening was installed allowing guests to keep bedroom door
 
 ![Eco Window Covers](./vivariumGeorgeTownGallery/vivariumWindowHanging/vivariumGTWindowCoversDinning.jpg)
 
-Jute window covers where installed to provide natural air-conditioning. Additionally an evaporative cooler was used in the common area that supported the creation of a very pleasant and natural micro climate. (More details on Eco-deco and micro climates will follow in a separate post.)
+**Jute window covers where installed, when wet these provide very effective natural air-conditioning,** even when dry keeping the sun off the glass was impactful not only to the temperature but also the noise, acting as a natural buffer the entire vibration was transformed. Additionally an evaporative cooler was used in the common area that supported the creation of a very pleasant and natural, outdoor feeling, micro climate. (More details on Eco-deco and micro climates will follow in a separate post.)
 
 ![Work](./vivariumGeorgeTownGallery/vivariumPatio/patioWorkVivarium.jpg)
 
@@ -165,11 +165,11 @@ Jute window covers where installed to provide natural air-conditioning. Addition
 
 ![passion flower](./vivariumGeorgeTownGallery/vivariumGarden/patioPassion.jpg)
 
-Besides an assortment of herbs, aloe plants, and experimental seedlings like Durian the garden was home to 23 Moringa oleifera trees, Papaya trees, Coconut seedlings, Sacha inchi vines and a passion fruit vine (that tried to take over the laundry wire) where among the numerous plants.
+Besides an assortment of herbs, aloe plants, and experimental seedlings like Durian, the garden was home to 23 Moringa oleifera trees, Papaya trees, Coconut seedlings, Sacha inchi vines and a passion fruit vine (that tried to take over the laundry wire) where among the numerous plants.
 
 ![hanging patio garden](./vivariumGeorgeTownGallery/vivariumPatio/kokedama03.jpg)
 
-It became difficult to catalog the ever changing garden. Growing a diverse garden is part of what made it a pleasure and easy to enjoy the discovery process towards an Eco-responsible lifestyle. ***The gardens of the Vivarium, once established, provided (and often exceeded) all nutritional requirements for the host and co-host.*** (More details on plant selection and care will follow in a separate post.)
+It became difficult to catalog the ever changing garden. Growing a diverse garden is magical, cultivating pleasure, making it easy to enjoy the discovery process towards an Eco-responsible lifestyle. ***The gardens of the Vivarium, once established, provided (and often exceeded) all nutritional requirements for the host and co-host.*** (More details on plant selection and care will follow in a separate post.)
 
 ![Kokedama](./vivariumGeorgeTownGallery/vivariumWindowHanging/vivariumKokedama01Web.jpg)
 
@@ -185,7 +185,7 @@ Rooms had low voltage LED lighting providing a pleasant healthy light, a large c
 
 Kitchen was well supplied for preparing modest meals. Washing machine was locate off the kitchen. Drinking water was arranged for delivery and offered to guests at market rate.
 
-This was a shared private residence. At times the entire space was made available, mostly there was a live in host (curator) or co-host that helped the project literally stay alive, always self selected and in harmony with the concept. Guests where offered laundry service and a small 'A La Carte Menu' was also available for a modest fee.
+This was a shared private residence. At times the entire space was made available, mostly there was a live in host (curator Anna) or co-host that helped the project literally stay alive, always self selected and in harmony with the concept. Guests where offered laundry service and a small 'A La Carte Menu' was also available for a modest fee.
 
 ![mangoGinger](./vivariumGeorgeTownGallery/vivariumGarden/mangoGingerHarvestVivariumApril2018.jpg)
 
@@ -213,7 +213,7 @@ Living room was an open shared space, with beautiful cooling white marble floors
 
 #### Bedroom Options
 
-*A peaceful nights sleep, a little sanctuary in the city, spacious and private.* All rooms included cotton linens and towels.
+*A peaceful nights sleep, a little nature sanctuary in the city, spacious and private.* All rooms included cotton linens and towels.
 
 ![Luxury is nature.](./vivariumGeorgeTownGallery/VivariumMasterBed/vivariumGTEcoDecoMasterWeb.JPG)
 
@@ -225,11 +225,11 @@ The private attached bathroom has a large vanity, mirror, sink, toilet, small wi
 
 ![Moringa Room](./vivariumGeorgeTownGallery/VivariumDouble/vivariumDouble04Web.JPG)
 
-**Double and Single Bedrooms:** each room featured a large corner window garden, natural wood parquet flooring and coconut tatami mats, each on there own custom made Polynesian style wood platform. Two large open custom design closets (double room) and a single large open custom design closet (single room) for easy access with plenty of room to hang clothes.
+**Double and Single Bedrooms:** each room featured a large corner window garden, natural wood parquet flooring and coconut tatami mats, each on there own custom made Polynesian style wood platform. Coconut tatami mats offer spinal support, are naturally breathable, cooling and recommended for those that suffer allergies. 
+
+Two large open custom design closets (double room) and a single large open custom design closet (single room) for easy access with plenty of room to hang clothes. Large baskets were provided for smaller items. Unpacking was easy and quick, everything within reach and functional, created a feeling of being at home within moments.
 
 ![Single](./vivariumGeorgeTownGallery/vivariumSingle/vivariumSingleWeb.JPG)
-
-Coconut tatami mats offer spinal support, are naturally breathable and recommended for those that suffer allergies. 
 
 **Shared bathroom** provide a mirror above the sink, toilet and standing shower with hot water, located just outside the bedrooms.
 
@@ -239,7 +239,7 @@ The Vivarium was a shoe free environment, guests where asked to leave outdoor sh
 
 ![master bath](./vivariumGeorgeTownGallery/VivariumMasterBed/vivariumMasterBath.JPG)
 
-Additionally guests where asked to please shower before laying in the bed, and not lay in the bed with street clothes on (being a hot climate in a shared living space this was a matter of personal requirement). 
+Additionally guests where asked to please shower upon arrival, before laying in the bed, and not lay in the bed with street clothes on (being a hot climate in a shared living space this was a matter of personal requirement). People often miss how effective it is to **actively cool down the physical body, *arriving* into the space** through this active participation, washing the street off and becoming a-part of the vivarium.
 
 ![Private](./vivariumGeorgeTownGallery/VivariumMasterBed/vivariumMasterPrivacyScreenEntranceWeb.JPG)
 
@@ -247,7 +247,7 @@ Guests where asked too leave windows open as much as possible for nice air flow 
 
 ![Eco Eating Out](./vivariumGeorgeTownGallery/vivariumMis/vivariumEcoEatingOutSupportWeb.JPG)
 
-Guest where offered to participate during their stay and refrain from using personal care and body products that contain chemicals, artificial scents and other harmful agents. Eco Eating Out support was also provided with copper water bottle, food containers and utensils.
+Guest where offered to participate during their stay and refrain from using personal care and body products that contain chemicals, artificial scents and other harmful agents. **Eco Eating Out** support was also provided with copper water bottle, food containers and utensils.
 
 ![Lounge](./vivariumGeorgeTownGallery/vivariumLivingRoom/vivariumLivingroomLoungeweb.jpg)
 
