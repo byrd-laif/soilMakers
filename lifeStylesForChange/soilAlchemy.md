@@ -43,7 +43,7 @@ Pro-biotic fluffy soil.
 **Pro-biotic Soul Food For The Soil.**
 Bokashi is a Japanese term meaning fermented organic matter and refers to a 2-step method of ***indoor soil building*** that uses beneficial micro-organisms to quickly ferment many types of organic matter including food remnants, fruit, vegetables, meat, dairy and bread.
 
-Although the terms humus and compost are informally used inter-changeably, they are distinct soil components with different origins; humus is created through anaerobic fermentation, while compost is the result of aerobic decomposition. This is the very important difference between composting and bokashi method. There is no purification or toxic leaching happening here. Bokashi is pro-biotic, working symbiotically with nature to accelerate the process using beneficial microbes. 
+Although the terms humus and compost are informally used inter-changeably, they are distinct soil components with different origins; humus is created through anaerobic fermentation, while compost is the result of aerobic decomposition. This is the very important difference between composting and bokashi method. There is no putrefaction or toxic leaching happening here. Bokashi is pro-biotic, working symbiotically with nature to accelerate the process of anerobic fermentation using beneficial microbes.
 
 ***The Soil Is A Garden.***
 Bokashi conserves water in the ground, nutrients are less prone to leaching and run-off because the organic nutrients literally are the soil after Bokashi fermentation is complete. Humus soils are not as water soluble and less prone to leaching away with watering and run-off after rains.
