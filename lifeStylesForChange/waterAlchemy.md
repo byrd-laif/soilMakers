@@ -23,6 +23,10 @@ date: 2018-08-13
 
 Wo-Men connect through water, the universal solvent. Water speaks, it takes the knowledge of the leaf from the mountains to the sea, and the rain takes it up from the sea back to the mountains.
 
+Water- being a biological need, freely having access to it, playing in it; liberates essential subconscious processes, especially in children. There is a spontaneous confirmation of the pattern, born directly out of people's feelings.
+
+No scientific experiments, are capable of generating a phenomenon of this extraordinary level of agreement.
+
 Wo-Men don't have to abandon their 'modern' lives but they do have to protect the rivers.
 
 ![Enzyme Spa Glass Brew](./enzymeImages/enzymeGlassBrew.jpg)
