@@ -27,6 +27,8 @@ Water- being a biological need, freely having access to it, playing in it; liber
 
 No scientific experiments, are capable of generating a phenomenon of this extraordinary level of agreement.
 
+Then, once discovered as a fluid field of relationships, one can redefine it, as an entity, to make it operational.
+
 Wo-Men don't have to abandon their 'modern' lives but they do have to protect the rivers.
 
 ![Enzyme Spa Glass Brew](./enzymeImages/enzymeGlassBrew.jpg)
