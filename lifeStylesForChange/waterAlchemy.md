@@ -15,7 +15,7 @@ date: 2018-08-13
 ![Enzyme Spa](./enzymeImages/enzymeWoodHempBrush.JPG)
 
 ### *Water Alchemy - Recycling organic materials through living organisms naturally purifies water.*
-***Water Alchemy*** is the ongoing exploration of what happens when people connect head, heart, and body in the crucible of the water. The ancient alchemists combined substances and used the influence of their own minds to study the transmutation of matter and of spirit. Observe when the discursive mind becomes quieter and the intelligence of the heart comes to the foreground, a new ecologically symbiotic consciousness emerges. Work in symbiotic partnership with the more-than-human world and make incredible discoveries.
+***Water Alchemy*** is the ongoing exploration of what happens when people connect head, heart, and body in the crucible of the water. The ancient alchemists combined substances and used the influence of their own minds to study the transmutation of matter and of spirit. Observe when the discursive mind becomes quieter and the intelligence of the heart comes to the foreground, feeling through nature an ancient *ecologically symbiotic consciousness* reemerges. Work in symbiotic partnership with the more-than-human world and make incredible discoveries.
 
 #### Pro-biotic Eco-enzyme is *Water Therapy;* the practice of spending time *cultivating living healing water* for the purpose of enhancing whole health, *Earth Care,* wellness, and happiness. A practice of *symbiotic connection* with the natural world and with each other; forgiveness, *healing water to soul.*
 
@@ -23,9 +23,9 @@ date: 2018-08-13
 
 Wo-Men connect through water, the universal solvent. Water speaks, it takes the knowledge of the leaf from the mountains to the sea, and the rain takes it up from the sea back to the mountains.
 
-Water- being a biological need, freely having access to it, playing in it; liberates essential subconscious processes, especially in children. There is a spontaneous confirmation of the pattern, born directly out of people's feelings.
+***Water-*** being a biological need, freely having access to it, ***playing in it; liberates essential subconscious processes, especially in children.*** There is a spontaneous confirmation of the pattern, born directly out of people's feelings.
 
-No scientific experiments, are capable of generating a phenomenon of this extraordinary level of agreement.
+No scientific experiments are capable of generating a phenomenon of this extraordinary level of agreement.
 
 Then, once discovered as a fluid field of relationships, one can redefine it, as an entity, to make it operational.
 
@@ -33,7 +33,7 @@ Wo-Men don't have to abandon their 'modern' lives but they do have to protect th
 
 ![Enzyme Spa Glass Brew](./enzymeImages/enzymeGlassBrew.jpg)
 
-***Self-care that goes far beyond the self. Symbiotically nourishing, fortifying and gentle. Remarkably enough the Physical Body and Mother Earth find natural healing benefits from this one easy process.***
+***Symbiotically nourishing, fortifying and gentle. Self-care that goes far beyond the self, re-connecting. Remarkably enough the Physical Body and Mother Earth find natural healing benefits from this one easy process.***
 
 *Yes, Nature is that simple, effective and synergistic.*
 

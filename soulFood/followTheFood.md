@@ -38,6 +38,14 @@ date: 2021-03-09
 
 **As such this journey will begin in a field,** the soils cultivated by the Nam Khan Eco Lodge and Farm, chosen for the close proximity and open access. The Nam Khan River is a major tributary of the river Mekong, with which it joins at Luang Prabang. A journey 6.5km up river to harvest soil knowledge at the source, and document cultivation from seed to harvest. The journey will then continue into the home kitchen, with recipes of soul food for the physical body. Moving through the physical body, bio-matter enters into a cyclical fermentation process, whereupon the spirit is released. From tomb to womb, emerging whole as unified humus soil, pro-biotic soul food for the earth body.
 
+Born to die.
+
+Reincarnate;
+
+To cause to be reborn in another body; incarnate again.
+
+To cause to appear in a new form; refurbish or revitalize.
+
 ![Nam Khan River](./soilToSoulFoodImages/bambooBridgeNamKhan01.jpg)
 
 #### *To Reveal a path toward healing the rift that grows between Wo-Man and nature.*
