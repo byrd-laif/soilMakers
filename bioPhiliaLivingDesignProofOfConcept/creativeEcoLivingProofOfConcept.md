@@ -9,9 +9,9 @@ date: 2021-02-28
 
 **The cultivation of a symbiotic habitat, that honors the individual as a *biological organism* in the *built environment*, within the *biophysical environment.***
 
-## *Becoming a part of the circle of life.* The *symbiotic relationships* between *Wo-Man and Mother Earth* (environment) is highlighted, not human and 'things'.
+## *Becoming a part of the circle of life.* The *symbiotic relationships* and the feelings generated between *Wo-Man and Mother Earth* (environment) are highlighted, not human and 'things'.
 
-***Harvesting Knowledge:*** In order to discover patterns which are alive one must always start with observation. Cataloging experiences, sources in the natural environment, of positive biological, physical and emotional states that humans experience then, recreating them in the built and cultivated environments to enhance emotional, mental, physical and biological health.
+***Harvesting Knowledge:*** In order to discover patterns which are alive one must always start with observation. Cataloging felt experiences, sources in the natural environment, of positive biological, physical and emotional states that humans experience then, recreating them in the built and cultivated environments to enhance emotional, mental, physical and biological health.
 
 Civilized living; life-giving and life-sustaining with a high degree of refinement and comfort. Adaptable to all practical needs of life within an attractive built environment.
 
@@ -21,9 +21,11 @@ Civilized living; life-giving and life-sustaining with a high degree of refineme
 
 Wo-Men have an inherit need to connect to nature and other biotic forms due to their *Evolutionary Dependence* on it for *Survival* and *Personal Fulfillment.* This is the shared human birthright; the biological need to connect with things that make living possible.
 
+It is when ones feelings are perfectly in touch with the reality of the forces in their environment, that one can begin to see the patterns which are capable of generating life.
+
 ![*Patio garden bird.*](./vivariumGeorgeTownGallery/vivariumPatio/vivariumGTPatioBirdweb.JPG)
 
-#### *Naturally tap into the abundant emotions of joy, grace, awe, wholeness, passion and compassion that are experienced from beauty in nature. An archaic revival of Wo-Mans symbiotic microbial Gaian connection, honoring the feminine by connecting soil to soul.*
+#### *Naturally taping into the abundant emotions of joy, grace, awe, wholeness, passion and compassion that are experienced from recognizing beauty in nature. An archaic revival of Wo-Mans symbiotic microbial Gaian connection, honoring the feminine through feeling, connecting soil to soul.*
 
 ![moringa tree bloom](./vivariumGeorgeTownGallery/vivariumGarden/vivariumMoringaFlowers02Web.JPG)
 
@@ -41,7 +43,7 @@ Using the symbiotic relationships with *'Mother Earth'* as a path of discovery i
 
 ![Open Space living room, stone floor](./vivariumGeorgeTownGallery/vivariumLivingRoom/vivariumGTLivingroomRelaxWeb.JPG)
 
-A living design built upon the inherent intuitive 'biophilic' response to built forms, natural settings and systems. Designed to generate healthy interactions by encouraging their spontaneous occurrence.
+A living design built upon the inherent intuitive 'biophilic' response to built forms, natural settings and systems. Designed to generate healthy feeling interactions by encouraging their spontaneous occurrence.
 
 New ways of thinking, seeing and feeling; relating to the Natural World can be expanded, experienced. Causing a total shift of posture, perceptions, beliefs, and thought processes. 
 

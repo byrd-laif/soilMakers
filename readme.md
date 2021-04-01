@@ -17,7 +17,7 @@
 
 ### *Salon Circle;* A renewed culture of Artful Conversation, honoring personal intention within group process to create egalitarian forums.
 
-**At a time of ecological and economic precarity, *salon style* "wisdom/council circle", offer space for rethinking and remaking symbiotic relations with one-self, one-another and Mother Earth.**
+**At a time of ecological and economic precarity, *salon style* "wisdom/council circle", offer space for sharing feelings, rethinking and remaking symbiotic relations with one-self, one-another and Mother Earth.**
 
 ### *Salon Programs;* Designed to be Fun, Creative, Interactive and Resourceful.
 
@@ -51,15 +51,15 @@
 
 ***Creating co-Evolutionary Leaders;*** Revolutionary Eco-logical actions that are transferable through to nature. ***Bio-Logical Earth Care*** provides the environment for an enlightened, sustainable future. Conservation of freedom as a consequence of Lifestyle/Production.
 
-***Power as responsibility rather than domination.*** A radical sift from the 'dominator' Bio-Logical Warfare; built on guilt, fear and force. To an 'Eco-logical Partnership'. *Bio-Logical Freedom; free to swim in the rivers of Mother Earth without fear of reprisal.*
+***Power as responsibility rather than domination.*** A radical sift from the 'dominator' Bio-Logical Warfare; built on guilt, fear and force. To an 'Eco-logical Partnership', feel *Bio-Logical Freedom; free to swim in the rivers of Mother Earth without fear of reprisal.*
 
 **Partnership systems support mutually respectful and caring relations.** Reconciliation; forgiveness, free to turn and question: Where does Wo-Man go from here?
 
 **Environ-Mental Health ~ *The ethics of ecology;* Learning to live in the light of Nature.**
 
-**The cultivation of a more attuned and responsive awareness of Wo-Mans ecological interconnections. Ones dream and the dream of the planet As One.**
+**The cultivation of a more attuned and responsive awareness of Wo-Mans ecological interconnections, recognizing feelings which are in touch with reality. Feelings provide a powerful way of finding out which lifestyle patterns are balanced and which are not. Ones dream and the dream of the planet As One.**
 
-***The fundaMental human birthright; Connection with things that make living possible.*** Being attracted to all that is alive and vital, the human tendency to relate with life and natural processes - *Is The Expression Of A Bio-Logical Need.*
+***The fundamental human birthright; Connection with things that make living possible.*** Being attracted to all that is alive and vital, the human tendency to relate with life and natural processes - *Is The Expression Of A Bio-Logical Need.*
 
 ### *Quality Of Life* - Loss of biodiversity and ecosystems are catastrophic, impacts are symbiotic and happen within the physical body through too *Mother Earth,* far into future generations.
 
