@@ -42,8 +42,6 @@ The alchemical journey will then continue into the personal home kitchen, with r
 
 From soil womb, through alchemical tomb, Reborn- emerging whole as unified humus soil, pro-biotic soul food for the earth body.
 
-Born to die.
-
 Reincarnate; To cause to be reborn in another body; incarnate again.
 
 To cause to appear in a new form; refurbish or revitalize.
