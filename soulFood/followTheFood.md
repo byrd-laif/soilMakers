@@ -5,7 +5,7 @@ date: 2021-03-09
 
 # *From Soil To Plate To Soil*
 
-## The *Life - Death - Life* Cycle Of Soul Food.
+## The *'Life - Death - Life'* Cycle Of Soul Food.
 
 ### *To whence it comes from, to wherein it is going, and to whither it will become.*
 *Proof of concept within a story. Harvesting form the environment too re-Cultivating an environmental deposit.*
@@ -76,7 +76,7 @@ Those who harvest this knowledge; know how to read the land for *seeds of life*,
 
 ***Communities in mutual symbiosis solve problems.***
 
-Self-actualized - Synergized in people by plants, the living lands are a power of responsibility, *the world* is an enacted, *sacred ground*. To *Earth Wo-Man* it is everything, a living legacy; identity, connection to ancestors, the symbiotic whole home, the pharmacy, the library, the source of all that sustains *Earth Wo-Man*.
+Self-actualized - Synergized in people by plants; the living lands are a power of responsibility, *the world* is an enacted, *sacred ground*. To *Earth Wo-Man* it is everything, a living legacy; identity, connection to ancestors, the symbiotic whole home, the pharmacy, the library, the source of all that sustains *Earth Wo-Man*.
 
 ***The essence of the beautiful is unity in variety.***
 
