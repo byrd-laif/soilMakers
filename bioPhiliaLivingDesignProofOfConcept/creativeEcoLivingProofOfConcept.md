@@ -29,7 +29,7 @@ It is when ones feelings are perfectly in touch with the reality of the forces i
 
 ![moringa tree bloom](./vivariumGeorgeTownGallery/vivariumGarden/vivariumMoringaFlowers02Web.JPG)
 
-***Cross Pollinate; being the *gardener*, an open hand, bringing seed to soil, the womb of Mother Earth, the beginnings of life, love and endings. Each bloom in the doing of this most holy act.***
+***Cross Pollinate; being the gardener, an open hand, bringing seed to soil, the womb of Mother Earth, the beginnings of life, love and endings. Each bloom in the doing of this most holy act.***
 
 Using the symbiotic relationships with *'Mother Earth'* as a path of discovery into the unique characteristics of intentional independent habitats, that not only can influence a spontaneous therapeutic act but can also be used by the designer to open; they are dynamic, adaptable and can be experienced, generate feelings, offering a safe space and the possibility for trying out inventive solutions and transformation.
 
@@ -57,11 +57,11 @@ New ways of thinking, seeing and feeling; relating to the Natural World can be e
 
 #### Discover what kind of meaning to give it ...
 
-**Life is in motion, every day movement is a dance, what one sees, smells, hears, how one brings their consciousness to the experience, to a tree, and then brings it into the body, that becomes the dance; the experience of the breath made visible.**
+**Life is in motion, every day movement is a dance, what one sees, smells, hears, how one brings their consciousness to the experience, to a tree, and then brings it into the body, that becomes the dance; the felt experience of the breath made visible.**
 
 **A ritual is a movement that has a purpose, to achieve something real in ones life. Dancing with life on the line, creates a sense of reverence for the process.**
 
-*... starting over ... nothing lasts ... What one does have control over is how one copes with what happens, change. ...*
+*... starting over ... nothing lasts ... What one can have control over is how one copes with what happens, being adaptable to change. ...*
 
 **Art is a way** ...  finding a common way to move forward through to nature ... finding the commonalities.
 
@@ -69,11 +69,11 @@ New ways of thinking, seeing and feeling; relating to the Natural World can be e
 
 **Recapturing the integration between life and art/style, ... living the creativity is the most important thing one has. Dance the essence of things.** *The denial, the courage to confront, the release ... too flow again ...*
 
-Urban environments are not nurturing environments in and of themselves, but with care, can be curated and cultivated into being so. Breaking the role of 'consumer culture' of 'modern culture,' hanging up the 'cultural costume' and designing a lifeStyle of ones own, connected through too nature. 
+Urban environments are not nurturing environments in and of themselves, but with care, can be curated and cultivated into being so. Breaking the role of 'consumer culture,' of 'modern culture,' hanging up the 'cultural costume' and designing a lifeStyle of ones own, connected through too nature. 
 
 ***Honoring the uniqueness of the self,*** breaking free of boundaries, having reverence for ones own body. Avoiding pre-stylization of movement in life, taking off the 'cultural amour', allowing direct experience to evoke feelings. 
 
-Going beyond, using the feeling to expand into the 'living' style of ones life through the kinesthetic sense.
+Going beyond, using the feelings to expand into the 'living' style of ones life through the kinesthetic sense.
 
 **Love;** to feel how things are, allowing the physical body recognize itself as part of nature.
 
@@ -131,7 +131,7 @@ The Vivarium, central to many George Town attractions and just 500 meters from "
 
 **The Neighborhood**
 
-![Street viiew](./vivariumGeorgeTownGallery/vivariumMis/dunnRoadGeorgeTown_20170101.jpg)
+![Street view](./vivariumGeorgeTownGallery/vivariumMis/dunnRoadGeorgeTown_20170101.jpg)
 
 The surrounding low density neighborhood is tranquil with many large trees, and properties with plenty of green space.
 
@@ -157,7 +157,7 @@ Intentional privacy screening was installed allowing guests to keep bedroom door
 
 ![Eco Window Covers](./vivariumGeorgeTownGallery/vivariumWindowHanging/vivariumGTWindowCoversDinning.jpg)
 
-**Jute window covers where installed, when wet these provide very effective natural air-conditioning,** even when dry keeping the sun off the glass was impactful not only to the temperature but also the noise, acting as a natural buffer the entire vibration was transformed. Additionally an evaporative cooler was used in the common area that supported the creation of a very pleasant and natural, outdoor feeling, micro climate. (More details on Eco-deco and micro climates will follow in a separate post.)
+**Jute window covers where installed, when wet these provide very effective natural air-conditioning,** even when dry keeping the sun off the glass was dramatic, not only to the temperature but also the noise, acting as a natural buffer the entire vibration was transformed. Additionally an evaporative cooler was used in the common area that supported the creation of a very pleasant and natural outdoor feeling micro climate. (More details on Eco-deco and micro climates will follow in a separate post.)
 
 ![Work](./vivariumGeorgeTownGallery/vivariumPatio/patioWorkVivarium.jpg)
 

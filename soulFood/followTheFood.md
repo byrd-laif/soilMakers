@@ -36,13 +36,13 @@ date: 2021-03-09
 
 #### What ever the physical mind feeds upon is what the *Earth Body* calls to *Wo-Man*, *Soil too Soul* they receive.
 
-**As such this journey will begin in a field,** the soils cultivated by the Nam Khan Eco Lodge and Farm, chosen for the close proximity and open access. The Nam Khan River is a major tributary of the river Mekong, with which it joins at Luang Prabang. A journey 6.5km up river to harvest soil knowledge at the source, and document cultivation from seed to harvest. The journey will then continue into the home kitchen, with recipes of soul food for the physical body. Moving through the physical body, bio-matter enters into a cyclical fermentation process, whereupon the spirit is released. From tomb to womb, emerging whole as unified humus soil, pro-biotic soul food for the earth body.
+**As such this journey will begin in a field,** the soils cultivated by the Nam Khan Eco Lodge and Farm, chosen for the close proximity and open access. The Nam Khan River is a major tributary of the river Mekong, with which it joins at Luang Prabang. A journey 6.5km up river to harvest soil knowledge at the source, and document cultivation from seed to harvest.
+
+The journey will then continue into the home kitchen, with recipes of soul food for the physical body. Moving through the physical body, bio-matter enters into a cyclical fermentation process, whereupon the spirit is released. From tomb to womb, reborn emerging whole as unified humus soil, pro-biotic soul food for the earth body.
 
 Born to die.
 
-Reincarnate;
-
-To cause to be reborn in another body; incarnate again.
+Reincarnate; To cause to be reborn in another body; incarnate again.
 
 To cause to appear in a new form; refurbish or revitalize.
 
@@ -58,7 +58,7 @@ Bend down and spread the *mud* with hands across the *Womb* of *Mother Earth.* B
 
 The living land grows and grows as *Earth Wo-Man* dances in thanks, from the dab of mud on *Womb*, the *alchemy* of all the animals’ gifts coupled with *Earth Wo-Man* in symbiotic deep gratitude. Together, this *alchemical dance*, formed what people know today as planet *Earth*, home.
 
-Like any good guest, *Earth Wo-Man* has not come empty-handed. With soil bundle clutched in hand, when toppled by domination from the hole in human heart, *Earth Wo-Man* reaches out clutching *Tree of Life* that grows. With-in grasp, branches—fruits and seeds of all kinds of plants. These *Earth Wo-Man* scatters onto new ground and carefully tends each one until *the world* turns from brown to green. Sunlight streams through the hole in the heart of the dominated, for-given, these seeds too flourish. Wild grasses, flowers, trees, and medicines spread everywhere. And now that the animals too have plenty to eat, many come to live with *Earth Wo-Man* on *Earth Island*, the planet of life in *Ocean Sky*.
+Like any good guest, *Earth Wo-Man* has not come empty-handed. With revitalized soil bundle clutched in hand, when toppled by domination from the hole in human heart, *Earth Wo-Man* reaches out clutching *Tree of Life* that grows. With-in grasp, branches—fruits and seeds of all kinds of plants. These *Earth Wo-Man* scatters onto new ground and carefully tends each one until *the world* turns from brown to green. Sunlight streams through the hole in the heart of the dominated, for-given, these seeds too flourish. Wild grasses, flowers, trees, and medicines spread everywhere. And now that the animals too have plenty to eat, many come to live with *Earth Wo-Man* on *Earth Island*, the planet of life in *Ocean Sky*.
 
 #### The plants tell the story; *Learn to live in the light of nature.*
 
