@@ -39,8 +39,6 @@
 
 *It's time to start comparing consumption and lifestyle, and checking this against nature's ability to provide for this consumption. Humans have destroyed and continue to destroy the habitats of species on a daily basis. It's time to own up to the realities of what that translates to for the generations to come, aesthetically and otherwise. It's time to be *Ecologically Realistic* and get back to the *heart* of what *life* is all about.* 
 
-**This is about honesty and responsibility. Honesty; admitting to what is. Responsibility; not blaming anybody else.**
-
 # *Soil Sisters ~ Eco-logical Movement And Enterprise*
 
 ## Cultivating a *Bio-logical Economy* creates the market for an *Ecologically Sustainable* future.
@@ -49,11 +47,13 @@
 
 #### *Cultivating The Mother Tree;* An archaic revival of Wo-Mans Gaian connection through honoring the feminine. Soil Sisters cultivate an ally, bonding with Mother Earth as *'The Live And Dynamic Co-evolutionary Partner'* in the shaping of the set, setting and the process.
 
-***Creating co-Evolutionary Leaders;*** Revolutionary Eco-logical actions that are transferable through to nature. ***Bio-Logical Earth Care*** provides the environment for an enlightened, sustainable future. Cultivating a bio-logical consciousness, conservation of freedom as a consequence of Lifestyle/Production.
+***Creating co-Evolutionary Leaders;*** Revolutionary Eco-logical actions that are transferable through to nature. ***Bio-Logical Earth Care*** provides the environment for an enlightened, sustainable future. Cultivating a bio-logical consciousness; conservation of freedom as a consequence of Lifestyle/Production.
 
-***Power as responsibility rather than domination.*** A radical sift from the 'dominator' Bio-Logical Warfare; built on guilt, fear and force. To an 'Eco-logical Partnership', feel *Bio-Logical Freedom; free to swim in the rivers of Mother Earth without fear of reprisal.*
+***Power as responsibility rather than domination.*** A radical sift from the 'dominator' Bio-Logical Warfare; built on guilt, fear and force. To an 'Eco-logical Partnership', *Bio-Logical Freedom; feeling free to swim in the rivers of Mother Earth without fear of reprisal.*
 
 **Partnership systems support mutually respectful and caring relations.** Reconciliation; forgiveness, free to turn and question: Where does Wo-Man go from here?
+
+**This is about honesty and responsibility. Honesty; admitting to what is. Responsibility; not blaming anybody else.**
 
 **Environ-Mental Health ~ *The ethics of ecology;* Learning to live in the light of Nature.**
 
