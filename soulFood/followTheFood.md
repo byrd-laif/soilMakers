@@ -40,7 +40,7 @@ A symbiotic microbial messenger; from humus, through human, to humus. Returned t
 
 The alchemical journey will then continue into the personal home kitchen, with recipes of soul food for the physical body. Moving through the physical body, bio-matter enters into a cyclical fermentation process, whereupon the spirit is released. 
 
-From soil womb, to alchemical tomb, to soil womb; reborn emerging whole as unified humus soil, pro-biotic soul food for the earth body.
+From soil womb, through alchemical tomb, Reborn- emerging whole as unified humus soil, pro-biotic soul food for the earth body.
 
 Born to die.
 
