@@ -60,6 +60,8 @@ There are many targeted uses for these metabolites. LAB are applied in food prod
 
 #### *Why make Eco-Enzyme?*
 
+***The Gift of Life is in the giving, conservation is the consequence of production. Cultivating cultures that heal, symbiotically keep the body healthy while restoring vitality and strength to the environment. It is easily done at negligible cost, free of harmful pollutants, effective, and multipurpose.***
+
 ***WATER***
 
 **It is very difficult to reverse the effects of water pollution.** Natural processes that cleanse the water can take years, decades, or even centuries, and even with costly technological processes, it can take years to remove all of the harmful substances from the water. There are many aspects of the contamination that must be removed. **First, and most importantly, the source of the water pollution must be removed, so that additional water contamination does not occur.**
@@ -68,12 +70,13 @@ There are many targeted uses for these metabolites. LAB are applied in food prod
 
 **Home Cleaning products and fertilizers made with chemicals and pesticides pollute the underground water, rivers and surrounding ecosystems.** Pharmaceutical drugs and personal care products, also manufactured by many pharmaceutical companies (such as sunscreen lotions, lipsticks, deodorants, perfumes, body soaps, and shampoos, ...), are produced in staggeringly huge quantities; **often equaling or surpassing agrochemicals in tonnage.** The volume consumed is simply astounding. All of these go into the ecosystem, most of them into waste treatment systems. These conventional body and home cleaning products contain harmful amounts of chemicals such as phosphate, nitrates, ammonia, chlorine etc. The accumulated effect of these chemicals released from every household causes significant damage to the health of the environment and the body.
 
-#### *Clean Water Is Clean Air.*
+**Clean Water Is Clean Air.**
+
 **Polluted bodies of water are toxic hot-spots for greenhouse gas emissions.** 
 
 **The fact is that rivers are being polluted by human activities, especially in urban areas, which is also causing higher greenhouse gas emissions. More than half of the world's population lives closer than 3km to a freshwater body, many are river networks.**
 
-**Mother Earths Rivers Are Breathing, fresh water lakes, rivers, streams ... breath, however they are now so toxic they are exhaling all that humanity has give them, giving them back what they gave in return for the use. This is the trend that must be reversed.**
+**Mother Earths Rivers Are Breathing, fresh water lakes, rivers, streams ... breath, however they are now so toxic they are exhaling all that humanity has given them, toxic water is toxic air and rain. This is the current toxic trend, a rape and pillage lifestyle of using Mother Earth.**
 
 Increased urbanization has introduced a staggeringly large volume of contaminants to rivers, more than 80% of municipal wastewater is still directly discharged into the environment. Most of the pollutants come from untreated wastewater, agricultural runoffs, and increased sediment accumulation.
 
@@ -86,15 +89,13 @@ There is a serious global environmental resource problem of water, soil and ener
 
 **Water, the “universal solvent,”** is a major constituent of the soil and exerts a strong influence on soil biota because many of the biota are adapted to life in a saturated atmosphere.
 
-#### *Pro-biotic Eco-enzyme is a viable solution to some very big problems. Re-use of wastewater, to recover water, nutrients, or energy, is becoming an important strategy.*
+**Pro-biotic Eco-enzyme is a viable solution to some very big problems. Re-use of wastewater, to recover water, nutrients, or energy, is becoming an important strategy.**
+
+#### *Life-long symbiosis. The micro-biome connection between Humans and the Soil.*
 
 **Pro*Biotic*; For Life.**
 
 **Science defines Pro-biotic as live micro-organisms that, "when administered in adequate amounts, confer a health benefit on the host."**
-
-***The Gift of Life is in the giving, conservation is the consequence of production. Cultivating cultures that heal, symbiotically keep the body healthy while restoring vitality and strength to the environment. It is easily done at negligible cost, free of harmful pollutants, effective, and multipurpose.***
-
-#### *Life-long symbiosis. The micro-biome connection between Humans and the Soil.*
  
 **A healthy micro-biome, which consists of an overwhelming majority of beneficial pro-biotic bacteria, is one of the most fundamental aspects of health.**
 
@@ -106,7 +107,7 @@ There is a serious global environmental resource problem of water, soil and ener
 
 Fermentation naturally produces Lactic Acid Bacteria (LAB), one of the most well studied bacterial groups known from ancient times. ***Lactic acid - this molecule occurs in almost every living organism and it plays an essential role in the anaerobic energy metabolism of billions of life forms.*** These valuable micro-organisms are used in numerous areas, especially food industry and medicine. LAB produce a wide range of compounds for food upgrading. Moreover, LAB can find special applications like generation of bio-energy not affecting the surrounding environment.
 
-### Re-Act To The Environ-Mental Realities
+**Re-Act To The Environ-Mental Realities**
 
 **Lifestyles For Change. Eco-Enzyme is an ecologically responsible solution,** perfect for those living in urban or rural environments, as a way to use their fresh fruit and vegetable remnants as a **nutrient rich pro-biotic water and soil amendment.** Use in the garden, plant pots or the environment as a gift of thanks, pro-biotic water for Mother Earth. No traditional 'garden' is required. Be creative, whats around ...
 
@@ -138,15 +139,9 @@ Fermentation naturally produces Lactic Acid Bacteria (LAB), one of the most well
 
 **Any plant matter can be used in this process, choose fruits such as citrus and pineapple peel for there powerful cleaning and healing abilities and pleasing aroma.**
 
-**Pro-Biotic Eco-Enzyme is easy to make, three ingredients are required:**
-
-- molasses or brown sugar
-- water
-- fresh fruit remnants
-
 ![bottle glass product](./enzymeImages/enzymeMarket.jpg)
 
-**Functions**
+#### **Functions**
 
 *What can be done with it:*
 
@@ -165,11 +160,11 @@ Fermentation naturally produces Lactic Acid Bacteria (LAB), one of the most well
 #### *Method*
 **How To Make Pro-Biotic Eco-Enzyme**
 
-**The 1:3:10 Ratio**
+**The 1:4:10 Ratio**
 
-1. Sugar: 1 part
-2. Organic food remnants: 4-5 parts
-3. Water: 10 parts
+- Molasses or brown sugar: 1 part
+- Organic food remnants: 4-5 parts
+- Water: 10 parts
 
 ![bottle enzyme](./enzymeImages/enzymeBottle.jpg)
 
@@ -177,47 +172,49 @@ Fermentation naturally produces Lactic Acid Bacteria (LAB), one of the most well
 - Fill container half way with water, leaving room for expansion and fresh fruit remnants (50% of the volume).
 
 **Step 2:**
-- Put 1 part brown sugar in the container and stir.
+- Add 1 part (or less) brown sugar to the container and stir.
 
 **Step 3:**
-- Put 4-5 parts fruit remnants into the container. The smaller chopped the pieces the better the ferment.
+- Add 4-5 parts fruit remnants into the container. The smaller chopped the pieces the better the ferment.
 This is just a guideline, experiment and play with the ratio.
 
 **Step 4:**
-- Top up with water, close the container and let the mixture **ferment for 3 months.** It’s important not to expose the ferment to the air. During the first month, gases will be released during fermentation process. Pressure will built up in the container, release daily to avoid rupturing or use an airlock. Leave the cap a little lose or put a balloon over to avoid an explosion. A cloth with elastic is not suitable for this type of fermentation. Date the bin!
+- Top up with water if needed, close the container and let the mixture **ferment for 3 months.** It’s important not to expose the ferment to the air. During the first month, gases will be released during fermentation process. **Pressure will built up in the container, release daily to avoid rupturing or use an airlock.** Leave the cap a little lose or put a balloon over to avoid an explosion. A cloth with elastic is not suitable for this type of fermentation. Date the bin!
 
 Fermentation time & environment: 3 months minimum, from the time stopped adding food remnants. Store in a dark environment away from excessive heat.
 
 ![filter](./enzymeImages/enzymeProcess05.jpg)
 
 **Step 5:**
-- Harvest Day! In a suitable size vessel with a suitable size strainer, separate the solids form the liquids. The filtered Eco-enzyme can be bottled and is ready for use. For a more polished product allow the filtered liquid enzyme to rest overnight so the sediment can settle to the bottom. Repeat straining this time through a microfiber cloth, taking care to not disturb the sediment.
+- Harvest Day! In a suitable size vessel with a suitable size strainer, separate the solids form the liquids. The filtered Eco-enzyme can be bottled and is ready for use. For a more polished product allow the filtered liquid enzyme to rest overnight (or longer) so the sediment can settle to the bottom. Repeat straining this time through a microfiber cloth, taking care to not disturb the sediment.
 
-A portion of filtered solids or sediment can be used as a starter for the next batch, dried and used as a powdered fertilizer, add them to the [Bokashi](./soilAlchemy.md) bin, garden compost or turn them directly into the soil. Even dumping them down the toilet is perfectly fine.
+A portion of filtered solids or sediment can be used as a starter for the next batch, dried and used as a powdered fertilizer, or add them to the [Bokashi](./soilAlchemy.md) bin, garden compost or turn them directly into the soil. Even dumping them down the toilet is perfectly fine.
+
+Example harvest ratio: From 14 liters of enzyme under ferment; 12 liters of liquid enzyme was harvested with 2 liters of solid fermented fruit remnants. Further filtration yielded 9 liters of clear enzyme and 3 liters of fine fermented fruit sediment. 
 
 ![enzyme bokashi](./enzymeImages/enzymeRemnatsBikashiBin_web.jpg)
 
 #### *TIPS and Details:*
 
-**Sugars**- For best results use molasses, brown sugar, jaggery or some similar sugar, it is full of minerals and will create a more rich product.
+**Sugars**- For best results try use molasses, brown sugar, jaggery or some similar sugar, as they are full of minerals and will create a more rich product.
 
-**Separate kitchen remnants**, think aroma.
-Different organics have different benefits aromas and textures. Separate citrus fruits like Orange, Lemon, Lime and Pineapple into a dedicated bin, these create a fantastic and powerful cleaning enzyme. Other aromatics and medicinal plants and flowers such as Ginger, Aloe Vera Lemongrass, Tea, Plumeria, Rose ... can be added for a luxurious whole body healing wash product.
+**Separating kitchen remnants**, think aroma.
+Different organics have different benefits, aromas and textures. Separating citrus fruits like Orange, Lemon, Lime and Pineapple into a dedicated bin creates a fantastic and powerful cleaning enzyme. Other aromatics and medicinal plants and flowers such as Ginger, Aloe Vera Lemongrass, Tea, Plumeria, Rose ... can be added for a luxurious whole body healing wash product.
 
-Create a separate catch-all bin for everything else like veggie scraps, purely for 'compost', garden use and drains. Or add these to the [Bokashi](./soilAlchemy.md) pro-biotic soil building bin.
+One can create a separate catch-all bin for everything else like veggie scraps, purely for 'compost', garden use and drains. Or these can be added to the [Bokashi](./soilAlchemy.md) pro-biotic soil building bin.
 
 ![flowers](./enzymeImages/flowersPlumeria.jpg)
 
-**Use Airlocks for an anaerobic environment.** Keeping the ferment clean and free of insects. This is important for a nice functional product and for safety, **containers may burst if the gasses are not released.** Plastic containers are best suited for this reason. Repurposed plastic milk containers are perfect.
+**Using Airlocks for an anaerobic environment.** Keeping the ferment clean and free of insects. This is important for a nice functional product and for safety, **containers may burst if the gasses are not released.** Plastic containers are best suited for this reason. Repurposed plastic milk containers are perfect for the job.
 
 ![air lock](./enzymeImages/airLock.jpg)
 
-- Cut the ingredients into small pieces to let them break down faster.
-- Make sure all the organic ingredients are covered by the sugar water.
-- Don’t use oily food remnants (fish and meat) as ingredients, this will create a bad smell, put these in the bokashi soil building system.
-- Leave some space at the top of the container for natural fermentation expansion.
-- During fermentation keep away from direct sunlight.
-- If small insects are found in the container, close the lid tightly and let those insects decompose. (Increasing protein content!)
+- Cutting the ingredients into small pieces allows them break down faster.
+- Ensure all the organic ingredients are freely moving in the sugar water.
+- Using oily food remnants (fish and meat) as ingredients will create a bad smell, these are not suitable for this type of application, but can be processed through the bokashi soil building system.
+- Leave some air space to allow for natural fermentation expansion.
+- During fermentation its best to keep away from direct sunlight.
+- If small insects are found in the container, close the lid tightly and let those insects decompose. (Increasing protein content)
 - A white layer on the surface of Eco Enzyme is a sign that fermentation is healthy and underway. This is a natural and harmless Kahm yeast.
 - Label the ‘Start Date’ on the container.
 - The best Eco-Enzyme ferments are 3 months and longer, fermentation starts once the last organic ingredients are added into the container.
@@ -243,7 +240,7 @@ Eco-Enzymes can be used safely at full strength, undiluted, on the most sensitiv
 
 ![enzyme with soap](./enzymeImages/enzymeFinish.jpg)
 
-*Adding 50ml of liquid store bought detergent/shampoo to 1000ml of Eco-Enzyme make a great concentrated de-greaser/cleaner/shampoo. Drastically reducing consumption and mitigating harmful effects. Perfect for dish washing, laundry, shampoo and body wash.*
+***Adding 50ml of liquid store bought detergent/shampoo to 1000ml of Eco-Enzyme makes a great concentrated de-greaser/cleaner/shampoo. Drastically reducing consumption and mitigating harmful effects. Perfect for dish washing, laundry, shampoo and body wash.***
 
 ... The list goes on.
 
