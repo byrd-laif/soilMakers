@@ -49,7 +49,7 @@
 
 #### *Cultivating The Mother Tree;* An archaic revival of Wo-Mans Gaian connection through honoring the feminine. Soil Sisters cultivate an ally, bonding with Mother Earth as *'The Live And Dynamic Co-evolutionary Partner'* in the shaping of the set, setting and the process.
 
-***Creating co-Evolutionary Leaders;*** Revolutionary Eco-logical actions that are transferable through to nature. ***Bio-Logical Earth Care*** provides the environment for an enlightened, sustainable future. Conservation of freedom as a consequence of Lifestyle/Production.
+***Creating co-Evolutionary Leaders;*** Revolutionary Eco-logical actions that are transferable through to nature. ***Bio-Logical Earth Care*** provides the environment for an enlightened, sustainable future. Cultivating a bio-logical consciousness, conservation of freedom as a consequence of Lifestyle/Production.
 
 ***Power as responsibility rather than domination.*** A radical sift from the 'dominator' Bio-Logical Warfare; built on guilt, fear and force. To an 'Eco-logical Partnership', feel *Bio-Logical Freedom; free to swim in the rivers of Mother Earth without fear of reprisal.*
 
