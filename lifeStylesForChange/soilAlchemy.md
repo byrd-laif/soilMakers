@@ -31,7 +31,7 @@ Its easy to destroy something, the challenge is to create something meaningful. 
 
 The current high erosion rates throughout the world are of great concern because of the slow rate of topsoil renewal; it takes approximately 500 years for 2.5 cm layer of fertile topsoil to form under agricultural conditions.
 
-Due to rapid urbanization the amount of arable land available for each person is continually dropping. Currently, each human being has only 2,000m² at their disposal; in 1961, that figure was 4,000m². At current rates, the amount of arable land available per person will decrease to 1,500m² by 2050.
+Due to rapid urbanization the amount of *arable land* available for each person is continually dropping. Currently, each human being has only 2,000m² at their disposal; in 1961, that figure was 4,000m². At current rates, the amount of arable land available per person will decrease to 1,500m² by 2050.
 
 **Bokashi gives a finished pro-biotic living soil in 30–45 days all in.** The speed of the fermentation process is a big advantage, cycling organic remnants faster by going straight from kitchen to fermentation, to soil, over and over again in small batches. With out the need to collect a critical mass of scraps to start, the fermentation process starts right away. Scale the fermentation vessel to the amount of scraps being generated, going straight into the bokashi bucket as soon as they are produced.
 
@@ -46,7 +46,43 @@ Bokashi is a Japanese term meaning fermented organic matter and refers to a 2-st
 Although the terms humus and compost are informally used inter-changeably, they are distinct soil components with different origins; humus is created through anaerobic fermentation, while compost is the result of aerobic decomposition. This is the very important difference between composting and bokashi method. There is no putrefaction or toxic leaching happening here. Bokashi is pro-biotic, working symbiotically with nature to accelerate the process of anerobic fermentation using beneficial microbes.
 
 ***The Soil Is A Garden.***
+
+Fermentation naturally produces Lactic Acid Bacteria (LAB), one of the most well studied bacterial groups known from ancient times. ***Lactic acid - this molecule occurs in almost every living organism and it plays an essential role in the anaerobic energy metabolism of billions of life forms.*** LAB can find special applications like generation of bio-energy not affecting the surrounding environment.
+
+***One handful of healthy soil contains more micro-organisms than there are people living on earth.***
+
 Bokashi conserves water in the ground, nutrients are less prone to leaching and run-off because the organic nutrients literally are the soil after Bokashi fermentation is complete. Humus soils are not as water soluble and less prone to leaching away with watering and run-off after rains.
+
+#### *Benefits of Bokashi*
+
+**Bokashi is therapeutic, providing essential nutrients to rebuild soil organic matter content, and re-establish microbial populations. Benefits directly associated with improved organic matter content are: enhanced water infiltration and moisture-holding, aggregation, aeration, nutrient supply for plant growth, and microbial activity.**
+
+***Bokashi Is A Solution To Some Very Big Problems.***
+
+**Responsible management of organic kitchen remnants can reduce 70% of the total waste production and reduce the bad gases produced during organic decomposition, all while revitalizing the environment by creating bio-active humus soil and pro-biotic liquid fertilizer to combat the negative use of toxic chemicals and pollutants.**
+
+**Soils store more than 4000 billion tonnes of carbon. By way of comparison, the forests store 360 billion tonnes of carbon as woody biomass, and the atmosphere more than 800 billion tonnes in the form of carbon dioxide.**
+
+**Bioremediation**- Biotechnology employs the use of living organisms, microbes and bacteria, in the removal of contaminants, pollutants, and toxins from soil, water, and other environments.
+
+#### *Conservation as a consequence of production.*
+
+***Urban soil cultivation practices can have a significant impact on urban ecosystem.***
+
+Bokashi, the ecologically responsible option for all food remnants, perfect for those living in apartments/condos and those looking to use their food remnants as a nutrient rich pro-biotic soil amendment in their garden, plant pots or the surrounding environment (ecosystem) as a gift of thanks, fertile pro-biotic soil for Mother Earth. No modern garden is required, be creative, whats around ...
+
+A healthy microbiome of the physical body is like a healthy microbiome of the soil, when cared for correctly creates space for more healthy lifeforms to exist. The flora and fauna, healthy bacteria and yeast of the body and soil, actually can, do and have gone extinct! Especially in the gut, from a life time of unhealthy eating they just become eliminated. Fermentation is the way to bring that balance back, body and soil all life is 'built' the same.
+
+**Bokashi can be:**
+
+- fairly easy to maintain
+- can be done indoors, suitable for urban environments
+- very affordable
+- can use most food remnants (including meat, dairy and cooked foods)
+- provides a rich pro-biotic soil amendment for remediation, revitalization and reuse
+- emotionally nutritive 
+
+**Note:** Fresh citrus and pineapple remnants are packed with powerful organic cleaning enzymes that can be easily fermented to produce luxury [Pro-biotic and multi purpose; Symbiotic Healing and Cleaning Products.](./waterAlchemy.md) That can be added to the bokashi system as a byproduct.
 
 #### *Method*
 
@@ -63,39 +99,6 @@ Most food remnants will be indistinguishable from the soil in a week or two, alt
 The active ingredients in the process are the effective microorganisms – a combination of lactic acid bacteria (also found in home kefir whey and lacto ferments), photosynthetic bacteria, and yeast - that ferment the organic matter. These microbes, present in the Bokashi Starter Mix, are sprinkled over the layers of food remnants as the bin is filled.
 
 A healthy Bokashi bin does not create bad odors,  greenhouse gas, or heat - uses no power, no aeration is required (no turning) and is completely natural. The aroma of the open bin is slightly sweet, fermented (sour), perhaps slightly alcoholic odor and should not be offensive.
-
-#### *Benefits of Bokashi*
-
-***A solution to some very big problems.***
-
-**Responsible management of organic kitchen remnants can reduce 70% of the total waste production and reduce the bad gases produced during organic decomposition, while saving the environment by creating bio-active humus soil and pro-biotic liquid fertilizer to combat the negative use of toxic chemicals and pollutants.**
-
-Soils store more than 4000 billion tonnes of carbon. By way of comparison, the forests store 360 billion tonnes of carbon as woody biomass, and the atmosphere more than 800 billion tonnes in the form of carbon dioxide.
-
-**Bokashi is therapeutic, provides essential nutrients to rebuild soil organic matter content, and re-establish microbial populations. Benefits directly associated with improved organic matter content are: enhanced water infiltration and moisture-holding, aggregation, aeration, nutrient supply for plant growth, and microbial activity.**
-
-**Bioremediation**- Biotechnology employs the use of living organisms, microbes and bacteria, in the removal of contaminants, pollutants, and toxins from soil, water, and other environments.
-
-Fermentation naturally produces Lactic Acid Bacteria (LAB), one of the most well studied bacterial groups known from ancient times. *Lactic acid - this molecule occurs in almost every living organism and it plays an essential role in the anaerobic energy metabolism of billions of life forms.* LAB can find special applications like generation of bio-energy not affecting the surrounding environment.
-
-***One handful of healthy soil contains more micro-organisms than there are people living on earth.***
-
-#### *Conservation as a consequence of production.*
-***Urban soil cultivation practices can have a significant impact on urban ecosystem.***
-Bokashi, the ecologically responsible option for all food remnants, perfect for those living in apartments/condos and those looking to use their food remnants as a nutrient rich pro-biotic soil amendment in their garden, plant pots or the surrounding environment (ecosystem) as a gift of thanks, fertile pro-biotic soil for Mother Earth. No modern garden is required, be creative, whats around ...
-
-A healthy microbiome of the physical body is like a healthy microbiome of the soil, when cared for correctly creates space for more healthy lifeforms to exist. The flora and fauna, healthy bacteria and yeast of the body and soil, actually can, do and have gone extinct! Especially in the gut, from a life time of unhealthy eating they just become eliminated. Fermentation is the way to bring that balance back, body and soil all life is 'built' the same.
-
-**Bokashi can be:**
-
-- fairly easy to maintain
-- can be done indoors, suitable for urban environments
-- very affordable
-- can use most food remnants (including meat, dairy and cooked foods)
-- provides a rich pro-biotic soil amendment for remediation, revitalization and reuse
-- emotionally nutritive 
-
-**Note:** Fresh citrus and pineapple remnants are packed with powerful organic cleaning enzymes that can be easily fermented to produce luxury [Pro-biotic and multi purpose; Symbiotic Healing and Cleaning Products.](./waterAlchemy.md) That can be added to the bokashi system as a byproduct.
 
 #### *Materials and Tools Needed*
 

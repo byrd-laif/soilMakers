@@ -28,17 +28,19 @@ date: 2021-03-09
 
 #### *The Return; a journey through the alchemy of soil.*
 
-**A movable feast; plant knowledge distilled and assimilated through the physical body, cultivated into living soil, and returned to the womb of Mother Earth *in-kind.* Sustenance; life supporting and sustaining. Returned as something meaningful.**
+**A movable feast; plant knowledge distilled and assimilated through the physical body, whereupon bio-matter is re-cultivated into living soil, and returned to the womb of Mother Earth *in-kind.* Sustenance; life supporting and sustaining. Returned as something meaningful.**
 
-#### *Empowering direct experience; contact with the divine made manifest.*
+***Empowering direct experience; contact with the divine made manifest.***
 
-**A symbiotic microbial messenger; from humus, through human, to humus. Returned to a different local with a uniquely healing microbial make up, *pro-biotic soul food* for the ancestral soil, *earth body.* Healing Wo-Man, their relationships with one another and Mother Earth through the unified *Soil Womb*.**
+A symbiotic microbial messenger; from humus, through human, to humus. Returned to a different local with a uniquely healing microbial make up, *pro-biotic soul food* for the ancestral soil, *earth body.* Healing Wo-Man, their relationships with one another and Mother Earth through the unified *Soil Womb*.
 
-#### What ever the physical mind feeds upon is what the *Earth Body* calls to *Wo-Man*, *Soil too Soul* they receive.
+**What ever the physical mind feeds upon is what the *Earth Body* calls to *Wo-Man*, *Soil too Soul* they receive.**
 
 **As such this journey will begin in a field,** the soils cultivated by the Nam Khan Eco Lodge and Farm, chosen for the close proximity and open access. The Nam Khan River is a major tributary of the river Mekong, with which it joins at Luang Prabang. A journey 6.5km up river to harvest soil knowledge at the source, and document cultivation from seed to harvest.
 
-The journey will then continue into the home kitchen, with recipes of soul food for the physical body. Moving through the physical body, bio-matter enters into a cyclical fermentation process, whereupon the spirit is released. From tomb to womb, reborn emerging whole as unified humus soil, pro-biotic soul food for the earth body.
+The alchemical journey will then continue into the personal home kitchen, with recipes of soul food for the physical body. Moving through the physical body, bio-matter enters into a cyclical fermentation process, whereupon the spirit is released. 
+
+From soil womb, to alchemical tomb, to soil womb; reborn emerging whole as unified humus soil, pro-biotic soul food for the earth body.
 
 Born to die.
 
@@ -58,7 +60,9 @@ Bend down and spread the *mud* with hands across the *Womb* of *Mother Earth.* B
 
 The living land grows and grows as *Earth Wo-Man* dances in thanks, from the dab of mud on *Womb*, the *alchemy* of all the animals’ gifts coupled with *Earth Wo-Man* in symbiotic deep gratitude. Together, this *alchemical dance*, formed what people know today as planet *Earth*, home.
 
-Like any good guest, *Earth Wo-Man* has not come empty-handed. With revitalized soil bundle clutched in hand, when toppled by domination from the hole in human heart, *Earth Wo-Man* reaches out clutching *Tree of Life* that grows. With-in grasp, branches—fruits and seeds of all kinds of plants. These *Earth Wo-Man* scatters onto new ground and carefully tends each one until *the world* turns from brown to green. Sunlight streams through the hole in the heart of the dominated, for-given, these seeds too flourish. Wild grasses, flowers, trees, and medicines spread everywhere. And now that the animals too have plenty to eat, many come to live with *Earth Wo-Man* on *Earth Island*, the planet of life in *Ocean Sky*.
+Like any good guest, *Earth Wo-Man* has not come empty-handed. With revitalized soil bundle clutched in hand, when toppled by domination from the hole in human heart, *Earth Wo-Man* reaches out clutching *Tree of Life* that grows. With-in grasp, branches—fruits and seeds of all kinds of plants.
+
+These *Earth Wo-Man* scatters onto new ground and carefully tends each one until *the world* turns from brown to green. Sunlight streams through the hole in the heart of the dominated, for-given, these seeds too flourish. Wild grasses, flowers, trees, and medicines spread everywhere. And now that the animals too have plenty to eat, many come to live with *Earth Wo-Man* on *Earth Island*, the planet of life in *Ocean Sky*.
 
 #### The plants tell the story; *Learn to live in the light of nature.*
 
@@ -66,7 +70,9 @@ Co-evolution; Each unique *Tree of Life* acts while keeping their autonomy, part
 
 ***Forewarned is forearmed. The microbes warn each other and the invaders are repelled.***
 
-The genes that translate to mast fruiting flow on enzymatic coevolutionary currents through the unified soil womb of *Mother Earth*. Symbiotically, through *Earth Wo-Man* soil knowledge is pulled into the next generations, as an attractor, like insects and the flowers that they pollinate. Those who harvest this knowledge; know how to read the land for *seeds of life*, carry them home to safety and cultivate *living soil*, will survive the *blizzards.* Passing on the knowledge harvested to their progeny, not by genetic transmission alone, but through symbiotic cultural practice, agreed upon *meaningful work.*
+The genes that translate to mast fruiting flow on enzymatic coevolutionary currents through the unified soil womb of *Mother Earth*. Symbiotically, through *Earth Wo-Man* soil knowledge is pulled into the next generations, as an attractor, like insects and the flowers that they pollinate.
+
+Those who harvest this knowledge; know how to read the land for *seeds of life*, carry them home to safety and cultivate *living soil*, will survive the *blizzards.* Passing on the knowledge harvested to their progeny, not by genetic transmission alone, but through symbiotic cultural practice, agreed upon *meaningful work.*
 
 ***Communities in mutual symbiosis solve problems.***
 

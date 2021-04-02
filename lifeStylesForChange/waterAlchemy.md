@@ -138,14 +138,16 @@ Fermentation naturally produces Lactic Acid Bacteria (LAB), one of the most well
 
 **Any plant matter can be used in this process, choose fruits such as citrus and pineapple peel for there powerful cleaning and healing abilities and pleasing aroma.**
 
-#### Pro-Biotic Eco-Enzyme is easy to make, three ingredients are required:
+**Pro-Biotic Eco-Enzyme is easy to make, three ingredients are required:**
+
 - molasses or brown sugar
 - water
 - fresh fruit remnants
 
 ![bottle glass product](./enzymeImages/enzymeMarket.jpg)
 
-#### *Functions*
+**Functions**
+
 *What can be done with it:*
 
 - Cleansing the body, natural conditioner and moisturizer for the hair and skin.
@@ -160,7 +162,7 @@ Fermentation naturally produces Lactic Acid Bacteria (LAB), one of the most well
 - Leather conditioner
 ...
 
-### *Method*
+#### *Method*
 **How To Make Pro-Biotic Eco-Enzyme**
 
 **The 1:3:10 Ratio**
@@ -224,7 +226,7 @@ Create a separate catch-all bin for everything else like veggie scraps, purely f
 
 ![enzyme filter with micro fiber](./enzymeImages/enzymeFineProcess08.jpg)
 
-### *Using Eco-Enzyme*
+#### *Using Eco-Enzyme*
 
 **Favored usage and dilution ratios with water:**
 Eco-Enzymes can be used safely at full strength, undiluted, on the most sensitive skin.
