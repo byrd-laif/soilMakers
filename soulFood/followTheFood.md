@@ -28,7 +28,7 @@ date: 2021-03-09
 
 #### *The Return; a journey through the alchemy of soil.*
 
-**A movable feast; plant knowledge distilled and assimilated through the physical body, whereupon bio-matter is re-cultivated into living soil, and returned to the womb of Mother Earth *in-kind.* Sustenance; life supporting and sustaining. Returned as something meaningful.**
+**A movable feast; plant knowledge distilled and assimilated through the physical body, re-cultivated into living soil, and returned to the womb of Mother Earth *in-kind.* Sustenance; life supporting and sustaining. Returned as something meaningful.**
 
 ***Empowering direct experience; contact with the divine made manifest.***
 
@@ -52,7 +52,7 @@ To cause to appear in a new form; refurbish or revitalize.
 
 Re-connect; bringing the *physical body* back into conversation with all that is green and growing. A *universe* that never stopped speaking to *Earth Wo-Man,* even when they forgot how to listen.
 
-Bend down and spread the *mud* with hands across the *Womb* of *Mother Earth.* Being moved into *action* by the extraordinary gifts of the plants and animals, singing *in thanks of giving* and dancing with feet caressing *Mother Earth.*
+Bending down and spreading the *mud* with hands across the *Womb* of *Mother Earth.* Being moved into *action* by the extraordinary gifts of the plants and animals, singing *in thanks of giving* and dancing with feet caressing *Mother Earth.*
 
 ***The gift of life lives in the giving.***
 
@@ -64,17 +64,30 @@ These *Earth Wo-Man* scatters onto new ground and carefully tends each one until
 
 #### The plants tell the story; *Learn to live in the light of nature.*
 
-Co-evolution; Each unique *Tree of Life* acts while keeping their autonomy, participates in collaborative symbiosis. Exactly how(?) is not the objective, *acknowledge the power of unity*. Living together, each changing as a result of changes in the other or others. Nature is a novelty conserving engine, its only objective is to conserve the 'gene,' not meaning.
+Co-evolution; Each unique *Tree of Life* acts while keeping their autonomy, participates in collaborative symbiosis. Exactly how(?) is not the objective, *acknowledge the power of unity*. Living together, each changing as a result of changes in the other or others.
 
-***Forewarned is forearmed. The microbes warn each other and the invaders are repelled.***
+Within a healthy environment; the organism is formed purely by the interaction of its cells, guided by the genetic code. A miracle of subtle organized cooperation between the parts. The growing cells alone, communicating with each other, and guided only by the instructions programmed into them by the genetic code, act correctly, with respect to one another, in such a way that they create an entirely individual whole, not predictable in detail, but recognizable in species.
+
+Nature is a novelty conserving engine, its only objective is to conserve the 'gene,' not meaning.
+
+***The network runs on empathy. Cell division is empathy in motion.***
+*Empathy is one of the greatest creators of energy. It's counterintuitive because it's selfless.*
 
 The genes that translate to mast fruiting flow on enzymatic coevolutionary currents through the unified soil womb of *Mother Earth*. Symbiotically, through *Earth Wo-Man* soil knowledge is pulled into the next generations, as an attractor, like insects and the flowers that they pollinate.
 
-Those who harvest this knowledge; know how to read the land for *seeds of life*, carry them home to safety and cultivate *living soil*, will survive the *blizzards.* Passing on the knowledge harvested to their progeny, not by genetic transmission alone, but through symbiotic cultural practice, agreed upon *meaningful work.*
+***Creative power, ones capacity to make something beautiful, lies  in the capacity to observe correctly, and deeply.*** 
+
+Those who harvest this knowledge; know how to read the land for *seeds of life*, carry them home to safety and cultivate *living soil*, will survive the *blizzards.* 
+
+***Forewarned is forearmed. The microbes warn each other and the invaders are repelled.***
+
+**Passing on the knowledge harvested to their progeny, not by genetic transmission alone, but through symbiotic cultural practice, agreed upon *meaningful work.***
 
 ***Communities in mutual symbiosis solve problems.***
 
-Self-actualized - Synergized in people by plants; the living lands are a power of responsibility, *the world* is an enacted, *sacred ground*. To *Earth Wo-Man* it is everything, a living legacy; identity, connection to ancestors, the symbiotic whole home, the pharmacy, the library, the source of all that sustains *Earth Wo-Man*.
+To *Earth Wo-Man* it is everything, a living legacy; identity, connection to ancestors, the symbiotic whole home, the pharmacy, the library, the source of all that sustains *Earth Wo-Man*.
+
+Self-actualized - Synergized in people by plants; the living lands are a power of responsibility, *the world* is an enacted, *sacred ground*.
 
 ***The essence of the beautiful is unity in variety.***
 
@@ -98,7 +111,8 @@ Alchemy can only truly be understood by gaining an understanding of how and why 
 
 **danger resides** - from achieving wrong combinations from accurate information.
 
-Shall She Continue ...
+**Nature is a great Book, an open book to be read by putting nature through processes which reveal not only its inner mechanics, but the inner mechanics of the artifex, the person working upon the material.**
 
+Shall She Continue ...
 
 

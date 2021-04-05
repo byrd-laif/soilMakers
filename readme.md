@@ -7,11 +7,11 @@
 [Live Blog On Matrix - Soil Seekers](https://matrix.to/#/!EwezVvVjpxKVCMIuRM:matrix.org?via=matrix.org&via=kde.org&via=converser.eu)
 
 ## *Vivarium Salon Circle/Programs ~ place of life*
-*Global Communities For Local Impact. Cross-pollinate and connect diverse opinions.*
+*Global Communities For Local Impact. Cross-pollinate and connect, sharing diverse feelings about the ecological future.*
 
 ### [Life*Styles* For Change ~ Becoming a part of the circle of life.](./lifeStylesForChange)
 
-**Vivarium Salon Culture; *Art,* as the vehicle of feeling with and thinking through living in a damaged world, cultivating cultures that symbiotically heal soil to soul.** An effort to cultivate personal potential and help others do so in the process.
+**Vivarium Salon Culture; *Art,* as the vehicle of working through feelings of living in a damaged world, cultivating cultures that symbiotically heal soil to soul.**
 
 [Real time on Matrix; Join the conversation in the interactive **Vivarium Salon**](https://matrix.to/#/!LSpVaMCiYQehpJONFF:matrix.org?via=matrix.org&via=t2bot.io&via=stux.chat)
 
@@ -27,53 +27,57 @@
 
 *An integrated set of processes that allow the often hidden insight of human expertise to be captured and converted into specific actionable know-how that can be transferred to others.*
 
-### *The Ecology Is The Economy.*
+#### *The Ecology Is The Economy.*
 
-#### *Conservation as a consequence of lifestyle/production.*
+***Conservation as a consequence of lifestyle/production.***
 
 **Projecting ones lifestyle into a future possibility, living the creative process, and designing a living that feeds the Soul and honors the Soil, that pays the Bills.**
 
-#### *Examining ecologic behaviors.*
+**Examining ecologic behaviors.**
 
-***Loss of biodiversity is directly related to the lifestyles of human beings.***
+*Loss of biodiversity is directly related to the lifestyles of human beings.*
 
 *It's time to start comparing consumption and lifestyle, and checking this against nature's ability to provide for this consumption. Humans have destroyed and continue to destroy the habitats of species on a daily basis. It's time to own up to the realities of what that translates to for the generations to come, aesthetically and otherwise. It's time to be *Ecologically Realistic* and get back to the *heart* of what *life* is all about.* 
+
+**This is about honesty and responsibility. Honesty; admitting to what is. Responsibility; not blaming anybody else.**
 
 # *Soil Sisters ~ Eco-logical Movement And Enterprise*
 
 ## Cultivating a *Bio-logical Economy* creates the market for an *Ecologically Sustainable* future.
 
-### *A mutually beneficial, 'symbiotic legacy venture' with Mother Earth. An ecosystem that operates to deliver positive bio-logical impact and by that symbiotically profit through seeding the soil, the Womb of Mother Earth. Directly addressing the biological effects of climate change.*
+### *A mutually beneficial; 'symbiotic legacy venture' with Mother Earth. An ecosystem that operates to deliver positive bio-logical impact and by that symbiotically profit through seeding the soil, the Womb of Mother Earth. Directly addressing the biological effects of climate change.*
 
-#### *Cultivating The Mother Tree;* An archaic revival of Wo-Mans Gaian connection through honoring the feminine. Soil Sisters cultivate an ally, bonding with Mother Earth as *'The Live And Dynamic Co-evolutionary Partner'* in the shaping of the set, setting and the process.
+#### *Cultivating The Mother Tree;* An archaic revival of Wo-Mans Gaian connection through honoring the feminine. Soil Sisters cultivate an ally; bonding with Mother Earth as *'The Live And Dynamic Co-evolutionary Partner'* in the shaping of the set, setting and the process.
 
-***Creating co-Evolutionary Leaders;*** Revolutionary Eco-logical actions that are transferable through to nature. ***Bio-Logical Earth Care*** provides the environment for an enlightened, sustainable future. Cultivating a bio-logical consciousness; conservation of freedom as a consequence of Lifestyle/Production.
+***Creating co-Evolutionary Leaders;*** Revolutionary Eco-logical Actions that are transferable through to nature. ***Bio-Logical Earth Care*** provides the environment for an enlightened, sustainable future.
 
 ***Power as responsibility rather than domination.*** A radical sift from the 'dominator' Bio-Logical Warfare; built on guilt, fear and force. To an 'Eco-logical Partnership', *Bio-Logical Freedom; feeling free to swim in the rivers of Mother Earth without fear of reprisal.*
 
 **Partnership systems support mutually respectful and caring relations.** Reconciliation; forgiveness, free to turn and question: Where does Wo-Man go from here?
 
-**This is about honesty and responsibility. Honesty; admitting to what is. Responsibility; not blaming anybody else.**
+#### *Environ-Mental Health*
 
-**Environ-Mental Health ~ *The ethics of ecology;* Learning to live in the light of Nature.**
+*The ethics of ecology;* Learning to live in the light of Nature.
 
-**The cultivation of a more attuned and responsive awareness of Wo-Mans ecological interconnections, recognizing feelings which are in touch with reality. Feelings provide a powerful way of finding out which lifestyle patterns are balanced and which are not. Ones dream and the dream of the planet As One.**
+The cultivation of a more attuned and responsive awareness of Wo-Mans ecological interconnections, recognizing feelings which are in touch with reality. Feelings provide a powerful way of finding out which lifestyle patterns are balanced and which are not. Ones dream and the dream of the planet As One.
 
 ***The fundamental human birthright; Connection with things that make living possible.*** Being attracted to all that is alive and vital, the human tendency to relate with life and natural processes - *Is The Expression Of A Bio-Logical Need.*
 
-### *Quality Of Life* - Loss of biodiversity and ecosystems are catastrophic, impacts are symbiotic and happen within the physical body through too *Mother Earth,* far into future generations.
+#### *Quality Of Life*
 
-**Being responsible stewards of the Earth means taking to heart the current planetary healing crisis. Having accepted this circumstance *responsibility* then means *ability,* to have a *creative response* to the situation as it is *now.* The *seeds of opportunity* and awareness, to take the moment and transform it into a better situation.**
+Loss of biodiversity and ecosystems are catastrophic, impacts are symbiotic and happen within the physical body through too *Mother Earth,* far into future generations.
+
+Being responsible stewards of the Earth means taking to heart the current planetary healing crisis. Having accepted this circumstance *responsibility* then means *ability,* to have a *creative response* to the situation as it is *now.* The *seeds of opportunity* and awareness, to take the moment and transform it into a better situation.
 
 #### An opportunity for the creation of something new and beautiful.
 
-**Putting nature on the balance sheet. Bio-Logical Eco System Services; Transforming an Environ-mental withdraw to an Environ-mental Deposit for the future. Mobilizing bio-resources (organic refuse) and converting them into bio-gold, Earth Care Commodities and Services.**
+***Putting nature on the balance sheet. Bio-Logical Eco System Services; Transforming an Environ-mental withdraw to an Environ-mental Deposit for the future. Mobilizing bio-resources (organic refuse) and converting them into bio-gold, Earth Care Commodities and Services.***
 
-**Today’s young generation are being handed the biggest challenge of all; *'Cultivating Biodiversity'* the symbiotic living *'Fabric of Life'* of this planet.**
+Today’s young generation are being handed the biggest challenge of all; *'Cultivating Biodiversity'* the symbiotic living *'Fabric of Life'* of this planet.
 
-**Not addressing immediate needs is an insult to the young. People with passion, purpose and practical skills make the world a better place.** 
+Not addressing immediate needs is an insult to the young. People with passion, purpose and practical skills make the world a better place.
 
-#### *It's time to call home. To act and that act to transfer through Mother Earth, soil to soul cultivate cultures that heal.*
+**It's time to call home. To act and that act to transfer through Mother Earth, soil to soul cultivate cultures that heal.**
 
 #### Explore
 

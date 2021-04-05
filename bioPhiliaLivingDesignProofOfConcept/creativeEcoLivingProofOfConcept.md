@@ -69,7 +69,7 @@ New ways of thinking, seeing and feeling; relating to the Natural World can be e
 
 **Recapturing the integration between life and art/style, ... living the creativity is the most important thing one has. Dance the essence of things.** *The denial, the courage to confront, the release ... too flow again ...*
 
-Urban environments are not nurturing environments in and of themselves, but with care, can be curated and cultivated into being so. Breaking the role of 'consumer culture,' of 'modern culture,' hanging up the 'cultural costume' and designing a lifeStyle of ones own, connected through too nature. 
+Urban environments are not nurturing environments in and of themselves, but with care, can be curated and cultivated into being so. Breaking the role of 'consumer culture,' of 'modern culture,' hanging up the 'cultural costume' and designing a lifeStyle of ones own, connected through too nature. For it is impossible to form anything which has the character of nature by adding preformed parts.
 
 ***Honoring the uniqueness of the self,*** breaking free of boundaries, having reverence for ones own body. Avoiding pre-stylization of movement in life, taking off the 'cultural amour', allowing direct experience to evoke feelings. 
 
@@ -87,9 +87,7 @@ Going beyond, using the feelings to expand into the 'living' style of ones life 
 
 Change comes with discovery, that is the way.
 
-Her power to create is limited entirely by the rules she happens to have in her language *now.* In the beginning was the logos, and the logos was made flesh.
-
-#### *The way out is a personal responsibility, the way out is in the soil. When the soil is healed the soul follows.*
+The power to create is limited entirely by the rules one happens to have in their language *now.*
 
 ***It's time to call home.***
 ***To act and that act to transfer through nature.***
@@ -103,9 +101,13 @@ Her power to create is limited entirely by the rules she happens to have in her 
 
 **Vivarium**- (Latin, literally for "place of life"; plural: vivaria or vivariums) is an area, usually enclosed, for keeping and raising animals (in this case Wo-Man and biological ecosystems) or plants for observation or research. Often, a portion of the ecosystem for a particular species is simulated on a smaller scale, with controls for environmental conditions.
 
+**The way out is a personal responsibility, the way out is in the soil. When the soil is healed the soul follows.**
+
 ![Harmonize with the Natural World.](./vivariumGeorgeTownGallery/vivariumLivingRoom/vivariumGTLivingroomPatioweb.jpg)
 
 #### *The Aim; to Harmonize the Natural World Within the Modern World.*
+
+To do it one need only let it happen in the mind.
 
 **Quality of Life**- *Mind, Body, Earth; Anima Mundi (world soul) Symbiotic Ecological Connections. Creating live and dynamic, open independent spaces that feel as they have existed long before ones arrival and will remain long after their depart.*
 
@@ -115,7 +117,11 @@ Her power to create is limited entirely by the rules she happens to have in her 
 
 ***The Physical Body Is The Placebo;*** the mind’s natural capacity to influence bodily functions and symptoms.
 
+The mind is a medium within which the creative spark that jumps between the pattern and the world can happen. The individual, oneself is only the medium for this creative spark, not its originator.
+
 **Co-evolutionary ecosystems:** Re-establishing and encouraging healthy symbiotic connections with nature (Mother Earth) through sensory experiences; physical and biological interactions, movement, and hands-on meaningful activities. Allowing the brain, body and earth body to establish new, more productive patterns.
+
+The individual is only the medium in which the patterns come to life, and of their own accord give birth to something new.
 
 ![Harvest](./vivariumGeorgeTownGallery/vivariumHarvest/vivariumLivingHarvest01Web.JPG)
 
@@ -161,7 +167,7 @@ Intentional privacy screening was installed allowing guests to keep bedroom door
 
 ![Work](./vivariumGeorgeTownGallery/vivariumPatio/patioWorkVivarium.jpg)
 
-**The Private Medicinal Food Garden;** boasted over ***27 large 5 gallon (or larger) containers*** located outside all bedroom windows, as well as ***22+ clay pots*** on the balcony. Nearly all plants being edible, medicinal or functional. 
+**The Private Medicinal Food Garden;** boasted over ***27 large 5 gallon (or larger) containers*** located outside all bedroom windows, as well as ***22+ clay pots*** on the balcony. Nearly all plants being edible, medicinal or functional.
 
 ![passion flower](./vivariumGeorgeTownGallery/vivariumGarden/patioPassion.jpg)
 
@@ -172,6 +178,8 @@ Besides an assortment of herbs, aloe plants, and experimental seedlings like Dur
 It became difficult to catalog the ever changing garden. Growing a diverse garden is magical, cultivating pleasure, making it easy to enjoy the discovery process towards an Eco-responsible lifestyle. ***The gardens of the Vivarium, once established, provided (and often exceeded) all nutritional requirements for the host and co-host.*** (More details on plant selection and care will follow in a separate post.)
 
 ![Kokedama](./vivariumGeorgeTownGallery/vivariumWindowHanging/vivariumKokedama01Web.jpg)
+
+***Gardens made for eating, smelling and touching flowers.***
 
 All rooms having several opening windows with large concrete window boxes provided ample space for gardens, easy access and beautiful ambience. The windows being covered in jute became gardens themselves and where home to over ***40+ bamboo hanging planters and Kokedama*** (苔玉, in English, literally "moss ball") a ball of soil, covered with moss, held by being wrapped in coconut cord on which ferns and other medicinal plants grew.
 
