@@ -57,9 +57,9 @@ New ways of thinking, seeing and feeling; relating to the Natural World can be e
 
 #### Discover what kind of meaning to give it ...
 
-**Life is in motion, every day movement is a dance, what one sees, smells, hears, how one brings their consciousness to the experience, to a tree, and then brings it into the body, that becomes the dance; the felt experience of the breath made visible.**
+**Life is in motion, every day movement is a dance, what one sees, smells, hears, how one brings their consciousness to the experience, to a tree, and then brings it into the body, that becomes the dance; the felt experience of the shared breath made visible.**
 
-**A ritual is a movement that has a purpose, to achieve something real in ones life. Dancing with life on the line, creates a sense of reverence for the process.**
+**A ritual is a movement that has a purpose, to achieve something real in ones life. Dancing within life, creates a sense of reverence for the process.**
 
 *... starting over ... nothing lasts ... What one can have control over is how one copes with what happens, being adaptable to change. ...*
 
