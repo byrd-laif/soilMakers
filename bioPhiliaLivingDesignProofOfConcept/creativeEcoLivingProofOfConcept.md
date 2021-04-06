@@ -9,7 +9,7 @@ date: 2021-02-28
 
 **The cultivation of a symbiotic habitat, that honors the individual as a *biological organism* in the *built environment*, within the *biophysical environment.***
 
-## *Becoming a part of the circle of life.* The *symbiotic relationships* and the feelings generated between *Wo-Man and Mother Earth* (environment) are highlighted, not human and 'things'.
+## *Becoming a part of the circle of life.* The *symbiotic relationships* and feelings generated between *Wo-Man and Mother Earth* (environment) are highlighted, not human and 'things'.
 
 ***Harvesting Knowledge:*** In order to discover patterns which are alive one must always start with observation. Cataloging felt experiences, sources in the natural environment, of positive biological, physical and emotional states that humans experience then, recreating them in the built and cultivated environments to enhance emotional, mental, physical and biological health.
 
@@ -43,7 +43,7 @@ Using the symbiotic relationships with *'Mother Earth'* as a path of discovery i
 
 ![Open Space living room, stone floor](./vivariumGeorgeTownGallery/vivariumLivingRoom/vivariumGTLivingroomRelaxWeb.JPG)
 
-A living design built upon the inherent intuitive 'biophilic' response to built forms, natural settings and systems. Designed to generate healthy feeling interactions by encouraging their spontaneous occurrence.
+A living design built upon the inherent intuitive 'biophilic' response to natural built forms, natural settings and systems. Designed to generate healthy feeling interactions by encouraging their spontaneous occurrence.
 
 New ways of thinking, seeing and feeling; relating to the Natural World can be expanded, experienced. Causing a total shift of posture, perceptions, beliefs, and thought processes. 
 
@@ -57,7 +57,9 @@ New ways of thinking, seeing and feeling; relating to the Natural World can be e
 
 #### Discover what kind of meaning to give it ...
 
-**Life is in motion, every day movement is a dance, what one sees, smells, hears, how one brings their consciousness to the experience, to a tree, and then brings it into the body, that becomes the dance; the felt experience of the shared breath made visible.**
+**Life is in motion, every day movement is a dance, what one sees, smells, hears, how one brings their consciousness to the experience, to a tree, ..., a bird in the garden, and then brings it into the body, that becomes the dance; the felt experience of the shared breath made visible.**
+
+*For it is impossible to form anything which has the character of nature by adding preformed parts.*
 
 **A ritual is a movement that has a purpose, to achieve something real in ones life. Dancing within life, creates a sense of reverence for the process.**
 
@@ -69,25 +71,17 @@ New ways of thinking, seeing and feeling; relating to the Natural World can be e
 
 **Recapturing the integration between life and art/style, ... living the creativity is the most important thing one has. Dance the essence of things.** *The denial, the courage to confront, the release ... too flow again ...*
 
-Urban environments are not nurturing environments in and of themselves, but with care, can be curated and cultivated into being so. Breaking the role of 'consumer culture,' of 'modern culture,' hanging up the 'cultural costume' and designing a lifeStyle of ones own, connected through too nature. For it is impossible to form anything which has the character of nature by adding preformed parts.
+Urban environments are not nurturing environments in and of themselves, but with care, can be curated and cultivated into being so. Breaking the role of 'consumer culture,' of 'modern culture,' hanging up the 'cultural costume' and designing a lifeStyle of ones own, connected through too nature. 
+
+![Authentic Living](./vivariumGeorgeTownGallery/vivariumLivingRoom/livingRoomCandidCafeWeb.jpg)
+
+***Cultivating intimacy within nature.***
 
 ***Honoring the uniqueness of the self,*** breaking free of boundaries, having reverence for ones own body. Avoiding pre-stylization of movement in life, taking off the 'cultural amour', allowing direct experience to evoke feelings. 
 
 Going beyond, using the feelings to expand into the 'living' style of ones life through the kinesthetic sense.
 
-**Love;** to feel how things are, allowing the physical body recognize itself as part of nature.
-
-***Cultivating intimacy within nature.***
-
-![Authentic Living](./vivariumGeorgeTownGallery/vivariumLivingRoom/livingRoomCandidCafeWeb.jpg)
-
-### *Knowledge Harvested* from the 'symbiotic co-evolutionary experience' and theory are shared here.
-
-**An effort to cultivate personal potential and help others do so in the process.**
-
-Change comes with discovery, that is the way.
-
-The power to create is limited entirely by the rules one happens to have in their language *now.*
+**Love;** to feel how things are, allowing the physical body too recognize itself as part of nature.
 
 ***It's time to call home.***
 ***To act and that act to transfer through nature.***
@@ -163,7 +157,7 @@ Intentional privacy screening was installed allowing guests to keep bedroom door
 
 ![Eco Window Covers](./vivariumGeorgeTownGallery/vivariumWindowHanging/vivariumGTWindowCoversDinning.jpg)
 
-**Jute window covers where installed, when wet these provide very effective natural air-conditioning,** even when dry keeping the sun off the glass was dramatic, not only to the temperature but also the noise, acting as a natural buffer the entire vibration was transformed. Additionally an evaporative cooler was used in the common area that supported the creation of a very pleasant and natural outdoor feeling micro climate. (More details on Eco-deco and micro climates will follow in a separate post.)
+**Jute window covers where installed, when wet these provide very effective natural air-conditioning,** even when dry keeping the sun off the glass was dramatic, not only to the temperature but also the noise, acting as a natural buffer, the entire vibration was transformed. Additionally, an evaporative cooler was used in the common area that supported the creation of a very pleasant micro climate and natural outdoor feeling. (More details on Eco-deco and micro climates will follow in a separate post.)
 
 ![Work](./vivariumGeorgeTownGallery/vivariumPatio/patioWorkVivarium.jpg)
 
@@ -185,7 +179,7 @@ All rooms having several opening windows with large concrete window boxes provid
 
 ![Eco Deco](./vivariumGeorgeTownGallery/VivariumMasterBed/vivariumGTEcoDecoMaster01Web.JPG)
 
-Guests where offered garden care responsibilities and to participate in any activities that may have been happening at the time. Guests where also encouraged to use the in-house [Eco friendly body, home and earth care products.](../lifeStylesForChange/waterAlchemy.md) Bathrooms had bidet water hose installed and small cotton towels were provided in place of toilet paper.
+Guests where offered garden care responsibilities and to participate in any activities that may have been happening at the time. These activities ranged from harvesting and processing moringa leaf and other medicinal plants, too biological earth care activities; in house organic refuse management, pro-biotic fruit enzyme and soil building production. Guests where also encouraged to use the in-house [Eco friendly body, home and earth care products.](../lifeStylesForChange/waterAlchemy.md) Bathrooms had bidet water hose installed and small cotton towels were provided in place of toilet paper.
 
 ![Master Bedroom](./vivariumGeorgeTownGallery/VivariumMasterBed/vivariumMasterBed01Web.JPG)
 
@@ -211,11 +205,11 @@ Every stay mattered to this self funded project, contributed and kept this creat
 
 ![deco](./vivariumGeorgeTownGallery/VivariumDouble/vivariumDouble03Web.JPG)
 
-**Vivarium LifeStyle** - Bringing the unique human touch and spirit back from the generic manufactured sea of junk made available by the faceless factory market place. Functional Eco-decor was handcrafted from natural bamboo, wood, coconut and rattan. Handmade textiles of organic cotton, silk and hemp decorated the walls.
+**Vivarium LifeStyle** - Bringing the unique human touch and spirit back from the generic manufactured sea of junk made available by the faceless factory market place. **Functional Eco-decor was handcrafted from natural bamboo, wood, coconut and rattan. Handmade textiles of organic cotton, silk and hemp decorated the walls.**
 
 ![Patio Living](./vivariumGeorgeTownGallery/vivariumLivingRoom/vivariumGTLivingroomYogaweb.jpg)
 
-Living room was an open shared space, with beautiful cooling white marble floors, very spacious for any kind of body work. The furniture was locally custom built and designed to encourage healthy body movement, to relax and/or work. Space was ample to enjoy a tea on the patio and experience the company of visiting birds, that where always around, singing, exploring and foraging in the gardens that surrounded the unit.
+Living room was an open shared space, with beautiful cooling white marble floors, very spacious for any kind of body work. ***The furniture was locally custom built and designed to encourage healthy body movement, to relax and/or work.*** Space was ample to enjoy a tea on the patio and experience the company of visiting birds, that where always around, singing, exploring and foraging in the gardens that surrounded the unit.
 
 ![Relax in nature](./vivariumGeorgeTownGallery/vivariumPatio/vivariumPatio01Web.JPG)
 
