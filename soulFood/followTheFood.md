@@ -52,7 +52,7 @@ To cause to appear in a new form; refurbish or revitalize.
 
 Re-connect; bringing the *physical body* back into conversation with all that is green and growing. A *universe* that never stopped speaking to *Earth Wo-Man,* even when they forgot how to listen.
 
-Bending down and spreading the *mud* with hands across the *Womb* of *Mother Earth.* Being moved into *action* by the extraordinary gifts of the plants and animals, singing *in thanks of giving* and dancing with feet caressing *Mother Earth.*
+Bending down and spreading the *mud* with hands across the *Womb* of *Mother Earth.* Being moved into *action* by the extraordinary gifts of the plants and animals, singing ***in thanks of giving*** and dancing with feet caressing *Mother Earth.*
 
 ***The gift of life lives in the giving.***
 
@@ -75,9 +75,9 @@ Nature is a novelty conserving engine, its only objective is to conserve the 'ge
 
 The genes that translate to mast fruiting flow on enzymatic coevolutionary currents through the unified soil womb of *Mother Earth*. Symbiotically, through *Earth Wo-Man* soil knowledge is pulled into the next generations, as an attractor, like insects and the flowers that they pollinate.
 
-***Creative power, ones capacity to make something beautiful, lies  in the capacity to observe correctly, and deeply.*** 
+***Creative power, ones capacity to make something beautiful, lies in the capacity to observe correctly, and deeply.***
 
-Those who harvest this knowledge; know how to read the land for *seeds of life*, carry them home to safety and cultivate *living soil*, will survive the *blizzards.* 
+Those who harvest this knowledge; know how to read the land for *seeds of life*, carry them home to safety and cultivate *living soil*, will survive the *blizzards.*
 
 ***Forewarned is forearmed. The microbes warn each other and the invaders are repelled.***
 

@@ -6,12 +6,12 @@
 
 [Live Blog On Matrix - Soil Seekers](https://matrix.to/#/!EwezVvVjpxKVCMIuRM:matrix.org?via=matrix.org&via=kde.org&via=converser.eu)
 
-## *Vivarium Salon Circle/Programs ~ place of life*
+## *Vivarium Salon (Circle/Programs) ~ place of life*
 *Global Communities For Local Impact. Cross-pollinate and connect, sharing diverse feelings about the ecological future.*
 
 ### [Life*Styles* For Change ~ Becoming a part of the circle of life.](./lifeStylesForChange)
 
-**Vivarium Salon Culture; *Art,* as the vehicle of working through feelings of living in a damaged world, cultivating cultures that symbiotically heal soil to soul.**
+**Vivarium Salon Culture; Bringing Life to Style. *Art,* as the vehicle of working through feelings of living in a damaged world, cultivating cultures that symbiotically connect, healing soil to soul.**
 
 [Real time on Matrix; Join the conversation in the interactive **Vivarium Salon**](https://matrix.to/#/!LSpVaMCiYQehpJONFF:matrix.org?via=matrix.org&via=t2bot.io&via=stux.chat)
 
