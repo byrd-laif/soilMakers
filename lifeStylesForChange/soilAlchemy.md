@@ -23,7 +23,7 @@ Building up, maintaining and conserving the fertility of different soil types ar
 #### *Ancestral Healing; Cultivating cultures that heal cultivates compassion for mother earth, an act of humility.*
 Its easy to destroy something, the challenge is to create something meaningful. To bring something back to the Village that people can live from.
 
-***Humility:*** The state of being Humble; Middle English, from Anglo-French, from Latin humilis low, humble, ***from humus earth;*** akin to Greek chthōn ***earth***, chamai on the ground.
+***Humility:*** The state of being Humble; Middle English, from Anglo-French, from Latin humilis low, humble, ***from humus earth;*** akin to Greek chthōn ***earth,*** chamai on ***the ground.***
 
 #### Soil Return - bokashi pro-biotic soil offers *humus soul food* to the field. Soil is the ultimate store of energy, it holds history in its molecules, vital energy that flows forever, transporting light energies.
 
@@ -71,7 +71,7 @@ Bokashi conserves water in the ground, nutrients are less prone to leaching and 
 
 Bokashi, the ecologically responsible option for all food remnants, perfect for those living in apartments/condos and those looking to use their food remnants as a nutrient rich pro-biotic soil amendment in their garden, plant pots or the surrounding environment (ecosystem) as a gift of thanks, fertile pro-biotic soil for Mother Earth. No modern garden is required, be creative, whats around ...
 
-A healthy microbiome of the physical body is like a healthy microbiome of the soil, when cared for correctly creates space for more healthy lifeforms to exist. The flora and fauna, healthy bacteria and yeast of the body and soil, actually can, do and have gone extinct! Especially in the gut, from a life time of unhealthy eating they just become eliminated. Fermentation is the way to bring that balance back, body and soil all life is 'built' the same.
+A healthy microbiome of the physical body is like a healthy microbiome of the soil, when cared for correctly creates space for more healthy lifeforms to exist. The flora and fauna, healthy bacteria and yeast of the body and soil, actually can, do and have gone extinct! Especially in the gut, and the soil, from a life time of unhealthy eating they just become eliminated. Fermentation is the way to bring that balance back, body and soil all life is 'built' the same.
 
 **Bokashi can be:**
 
@@ -150,25 +150,27 @@ Making Bokashi starter using small dry leaf as a substrate.
 
 *Voila "Bokashi Bran"*
 
-#### *Making Serum = E/M*
+#### *Home Ferment Bokashi Serum = E/M*
 
-**1) Rice Water**
+*Two Options*
+
+**Option 1) Rice Water and Milk Ferment**
 
 - To Make Rice Water:
 
 - 1:2 rice to water ratio, soak rice for about 15 minutes, stir vigorously then strain and ferment the water in a open air vessel with a secured cloth cover to allow exposure to the air for 5 - 8 days. (rice can be cooked and consumed)
 
-**2) Home ferment Kefir Milk Whey or Sauerkraut Juice**
-
-[Kefir Milk](./kefirMilkAlchemy.md) Whey comes from straining kefir milk through cloth to separate the milk solids from the liquid whey. If neither whey or sauerkraut juice is available then add 1 part fermented rice water to 10 parts whole milk, cover and allow to ferment 10 - 14 days. The ferment will separate into three distinct layers. Use a turkey baster or some such device to retrieve the middle layer.
-
 **Next combine:**
 
-**1 part rice water : 10 parts Kefir Whey, sauerkraut juice or above milk/rice culture**
+- 1 part fermented rice water to 10 parts whole milk, cover and allow to ferment 10 - 14 days. The ferment will separate into three distinct layers. Use a turkey baster or some such device to retrieve the middle layer.
 
 - Bottle, cap and store in a cool dark place.
 
 - For long storage of bokashi serum add a little molasses.
+
+**Option 2) Home ferment Kefir Milk Whey or Sauerkraut Juice**
+
+[Kefir Milk](./kefirMilkAlchemy.md) Whey comes from straining live cultured home fermented kefir milk through cloth to separate the milk solids from the liquid whey. If neither whey or sauerkraut juice is available then use above method.
 
 #### *Inside the Bokashi Bucket*
 
@@ -181,18 +183,18 @@ Apartment bokashi setup, adding kitchen remnants.
 
 - Repeat until the bin is full.
 
-Once full seal and set aside in a warm dark corner to ferment for 2 weeks.
+- Once full seal and set aside in a warm dark corner to ferment for 2 weeks.
 
-Bury in the garden, add to a compost bin, move into a bokashi soil building system or use in pots (up to 1/3 by volume).
+- Bury in the garden, add to a compost bin, move into a bokashi soil building system or use in pots (up to 1/3 by volume).
 
 ![Bokashi soil building system in action.](./bokashiImages/bokashiSoilBuildingSystem_web.jpg)
 Bokashi soil building system in action.
 
 #### *Bokashi Tea*
 
-The liquid or Bokashi Tea that collects during the process must be removed on a regular basis. Bokashi tea contains nutrients from the fermented food remnants, alive with micro-organisms, a rich fertilizer.
+The liquid or Bokashi Tea that collects during the process must be removed on a regular basis. Bokashi tea contains nutrients from the fermented food remnants, alive with micro-organisms, a rich pro-biotic natural fertilizer.
 
-Bokashi tea has millions of microbes, an incredibly beneficial soil enhancer. Accelerate decomposition in compost piles, pour directly into compost. The beneficial bacteria help to speed up the composting process. Adding bokashi tea is a great way to add moisture to the compost pile, if needed. Use fresh bokashi tea for best results.
+Bokashi tea has millions of microbes, an incredibly beneficial soil enhancer that can be used too accelerate decomposition in compost piles by pouring directly into the compost. The beneficial bacteria help to speed up the composting process, adding bokashi tea is a great way too add moisture to the compost pile, if needed. Use fresh bokashi tea for best results.
 
 Watering the garden... Bokashi tea is strong and must be diluted with water at a 100:1 ratio, 100 parts water to 1 part bokashi tea, approximately 2 teaspoons of tea for every liter of water.
 

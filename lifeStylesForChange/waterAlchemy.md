@@ -115,7 +115,7 @@ Fermentation naturally produces Lactic Acid Bacteria (LAB), one of the most well
 
 ![bottle glass](./enzymeImages/proBioticEcoEnzymeGlass.jpg)
 
-#### *Benefits:*
+#### *Physical body and Earth body Benefits:*
 
 ***Naturally; Anti-Bacterial, Anti-Fungal, Anti-Viral and a Natural Antiseptic.***
 
@@ -158,6 +158,7 @@ Fermentation naturally produces Lactic Acid Bacteria (LAB), one of the most well
 ...
 
 #### *Method*
+
 **How To Make Pro-Biotic Eco-Enzyme**
 
 **The 1:4:10 Ratio**
