@@ -28,7 +28,7 @@ The symbiotic community of organisms that ferment milk into kefir includes yeast
 
 For centuries, it’s been used in European and Asian folk medicine due to the wide variety of conditions it’s been known to cure.
 
-### *Milk Alchemy* 
+#### Milk Alchemy 
 
 ***Culturing Kefir requires cycles, to return to, to inspect, to refresh and renew.***
 
@@ -38,13 +38,13 @@ For centuries, it’s been used in European and Asian folk medicine due to the w
 
 *Recolonize a domesticated digestive track with ancient native cultures that heal.*
 
-#### *A Symbiotic Gaian Connection; Coevolution.* 
+#### A Symbiotic Gaian Connection; Coevolution.
+
+**Kefir is a living demonstration of the integration processes by which symbiotic cells evolving from bacteria still occur.**
+
+**Biologically kefir grains evolved from spontaneous symbiosis, are a symbiotic entity that self-reproduces and can not be recreated by science.**
 
 **Ancient descendants of the living *Mother-culture,* "kefir grains" are a true *Living Legacy* that can theoretically live forever! *Symbiotically nurturing each other, human engagement keeps the kefir culture alive.* Given adequate nutrition and tolerable environmental conditions, healthy kefir grains grow and reproduce rapidly.**
-
-#### Biologically kefir grains evolved from spontaneous symbiosis, are a symbiotic entity that self-reproduces and can not be recreated by science.
-
-***Kefir is a living demonstration of the integration processes by which symbiotic cells evolving from bacteria still occur.***
 
 Kefir grains are soft gelatinous clusters of microorganisms, bacterial and fungal cells that has evolved an elaborate symbiotic arrangement; sharing nutrients, coordinating reproduction and co-create a shared physical form that varies in appearance.
 
@@ -59,7 +59,7 @@ Kefir grains can also ferment other non dairy beverages such as; rice or coconut
 ![*Kefir milk under ferment, grains in process of drying and grains fully dehydrated for storage or further processing.*](./kefirImages/kefirMilk_GrainsDry3_web.JPG)
 *Kefir milk under ferment, grains in process of drying and grains fully dehydrated for storage or further processing.*
 
-#### *There are many benefits to pro-biotic foods and Kefir is a Star among them.*
+#### There are many benefits to pro-biotic foods and Kefir is a Star among them.
 
 Kefir is one of the factors associated with the long life expectancy of the people of the Caucasus, owing to its many health benefits such as anti-stress properties, immune-modulation, cholesterol-lowering, anti-allergenic, anti-asthmatic, anti-microbial, anticancer properties and chemo-prevention against colon cancer, aside from its gastrointestinal beneficial effects.
 
@@ -67,41 +67,41 @@ Kefir contains many bio-active compounds, including as many as 30+ strains of be
 
 Kefir also contains partially digested proteins (e.g., caseins) that aid in its digestion and absorption by the body. The essential amino acids found in abundance in kefir also regulate protein, glucose and lipid metabolism and exhibit a positive effect on the regulation of body weight, maintenance of immune response and energy balance. Amino acids prevent disability and prolong the healthy life expectancy of elderly. The branched-chain amino acids that are also found in kefir improve cognitive recovery of patients with severe traumatic brain injury.
 
-### *Top Kefir Benefits*
+#### Top Kefir Benefits
 
-#### *Boosts Immunity*
+***Boosts Immunity***
 
 Kefir contains compounds and nutrients, that support and enhance the immune system and protect cells. It has a large amounts of pro-biotics, the special forces of the microbial world. One in particular that’s specific to kefir alone is called Lactobacillus Kefir, it helps defend against harmful bacteria like salmonella and E. Coli. This bacterial strain, along with the various others, work *symbiotically* to modulate the immune system and inhibit many predatory bacteria growth.
 
 Kefir also contains another powerful compound found only in this pro-biotic drink, an insoluble polysaccharide called kefiran, shown to be antimicrobial and help to fight against candida. Kefiran has also shown the ability to lower cholesterol and blood pressure.
 
-#### *Builds Bone Strength*
+***Builds Bone Strength***
 
 Kefir made from whole fat dairy has high levels of calcium and holds bio-active compounds that improve nutrient absorption. With all of the most important nutrients including phosphorus, calcium, magnesium, vitamin D and vitamin K2, which are vital in improving bone health and density.
 
-#### *Fights Cancer*
+***Fights Cancer***
 
 The bio-active compounds of kefir such as polysaccharides and bio-active peptides have great potential for inhibition of proliferation and induction of apoptosis in tumor cells. Kefiran is also used as an antioxidant and anti-tumor agent. Many studies revealed that kefir acts on different cancers such as colorectal cancer, malignant T lymphocytes, breast cancer and lung carcinoma. 
 
 Kefir benefits in the fight against cancer are due to its large anti-carcinogenic role inside the body, slowing the growth of early tumors.
 
-#### *Supports Digestion and Combats IBS*
+***Supports Digestion and Combats IBS***
 
 Kefir milk helps restore balance and fight against gastrointestinal diseases like irritable bowel syndrome, Crohn’s and ulcers. Drinking kefir, naturally loaded pro-biotics, also helps the gut recover after taking antibiotics. The pro-biotic compounds help restore the lost flora that fight against pathogens and aids against the disruptive diarrhea and other gastrointestinal side effects caused by these types of medications.
 
-#### *Improves Allergies*
+***Improves Allergies***
 
 Various forms of allergies and asthma are all linked to inflammatory issues on the body.
 
 The live microorganisms present in kefir help promote the immune system to naturally suppress allergic reactions and aid in changing the body’s response to the systemic outbreak points for allergies. Some scientists believe these allergic reactions are the result of a lack of good bacteria in the gut. Taking pro-biotics improves allergic symptoms and quality of life.
 
-#### *Heals Skin*
+***Heals Skin***
 
 When the gut is out of whack, it can send signals to skin cells that disrupt its natural balance and cause all sorts of problems like acne, psoriasis, rashes and eczema. Kefir is a natural anti-oxidant and helps bring good bacteria back to the forefront bringing homeostasis (stable equilibrium) to the bodies largest organ, the skin. Kefir also benefits the skin as burn and rash treatment.
 
 Kefiran, aside from aiding in the immune system, helps improve the quality of skin wound healing and protective for connective tissue.
 
-#### *Improves Lactose Intolerance Symptoms*
+***Improves Lactose Intolerance Symptoms***
 
 Kefir has a larger range of bacterial strains and nutrients, some only specific to kefir that help break lactose down into lactic acid, reducing overall content, improving lactose digestion and tolerance.
 
@@ -120,12 +120,13 @@ Like all home ferments kefir milk does not have a standardized nutrition content
 **Beneficial bacteria and yeasts may include the following:**
 Kluyveromyces marxianus/Candida kefyr, Lactococcus lactis subsp. lactis, Lactococcus lactis subsp. cremoris, Streptococcus thermophilus, Lactobacillus delbrueckii subsp. bulgaricus, Lactobacillus casei, Kazachstania unispora, Lactobacillus acidophilus, Bifidobacterium lactis, Leuconostoc mesenteroides subsp. and Saccaromyces unisporus.
 
-#### *Its easy to ascertain that kefir is one of the best therapeutic natural ingredients on the planet.*
+***Its easy to ascertain that kefir is one of the best therapeutic natural ingredients on the planet.***
+
 **Even with the range in values, kefir produces superior nutrition and easily outranks any store-bought variety.**
 
 **Kefir is easy to prepare and can be cultured to personal taste. Fermenting for a shorter period produces a less sour Kefir. Longer fermentation produces more sourness, also accomplished by using larger amounts of Kefir Grains.**
 
-### *Culturing Traditional Milk Kefir*
+#### *Culturing Traditional Milk Kefir*
 
 **Ingredients & Utensils for 2 cups of Milk Kefir**
 
