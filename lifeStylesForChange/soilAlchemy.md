@@ -20,7 +20,8 @@ A series of guided invitations, natural cycles, bring one into the present momen
 
 Building up, maintaining and conserving the fertility of different soil types around the world in the face of diverse climatic conditions is the biggest challenge to agriculture today. The key to soil fertility lies mostly in the humus content of soils.
 
-#### *Ancestral Healing; Cultivating cultures that heal cultivates compassion for mother earth, an act of humility.*
+#### *Ancestral Healing; Cultivating cultures that heal cultivates compassion for mother earth, an act of humility.* Connecting to Mother Earth through her art, the soil.
+
 Its easy to destroy something, the challenge is to create something meaningful. To bring something back to the Village that people can live from.
 
 ***Humility:*** The state of being Humble; Middle English, from Anglo-French, from Latin humilis low, humble, ***from humus earth;*** akin to Greek chthōn ***earth,*** chamai on ***the ground.***
