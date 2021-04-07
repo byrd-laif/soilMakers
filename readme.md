@@ -11,11 +11,11 @@
 
 ### [Life*Styles* For Change ~ Becoming a part of the circle of life.](./lifeStylesForChange)
 
-**Vivarium Salon Culture; Bringing Life to Style. *Art,* as the vehicle of working through feelings of living in a damaged world, cultivating cultures that symbiotically connect, healing soil to soul.**
+**Vivarium Salon Culture; Bringing Life To Style. *Art,* as the vehicle for working through feelings of living in a damaged world, cultivating cultures that symbiotically connect, healing soil to soul.**
 
 [Real time on Matrix; Join the conversation in the interactive **Vivarium Salon**](https://matrix.to/#/!LSpVaMCiYQehpJONFF:matrix.org?via=matrix.org&via=t2bot.io&via=stux.chat)
 
-### *Salon Circle;* A renewed culture of Artful Conversation, honoring personal intention within group process to create egalitarian forums.
+### *Salon Circle;* A renewed culture of *Artful Conversation,* honoring personal intention within group process to create egalitarian forums.
 
 **At a time of ecological and economic precarity, *salon style* "wisdom/council circle", offer space for sharing feelings, rethinking and remaking symbiotic relations with one-self, one-another and Mother Earth.**
 
@@ -41,11 +41,12 @@
 
 **This is about honesty and responsibility. Honesty; admitting to what is. Responsibility; not blaming anybody else.**
 
-# *Soil Sisters ~ Eco-logical Movement And Enterprise*
+# *Soil Sisters ~ Eco-Logical Movement And Enterprise*
+*Directly addressing the bio-logical effects of climate change.*
 
 ## Cultivating a *Bio-logical Economy* creates the market for an *Ecologically Sustainable* future.
 
-### *A mutually beneficial; 'symbiotic legacy venture' with Mother Earth. An ecosystem that operates to deliver positive bio-logical impact and by that symbiotically profit through seeding the soil, the Womb of Mother Earth. Directly addressing the biological effects of climate change.*
+### *A mutually beneficial; 'symbiotic legacy venture' with Mother Earth. An Eco system that operates to deliver a positive bio-logical impact, symbiotically profiting through seeding the soil, the Womb of Mother Earth.*
 
 #### *Cultivating The Mother Tree;* An archaic revival of Wo-Mans Gaian connection through honoring the feminine. Soil Sisters cultivate an ally; bonding with Mother Earth as *'The Live And Dynamic Co-evolutionary Partner'* in the shaping of the set, setting and the process.
 
@@ -71,7 +72,7 @@ Being responsible stewards of the Earth means taking to heart the current planet
 
 #### An opportunity for the creation of something new and beautiful.
 
-***Putting nature on the balance sheet. Bio-Logical Eco System Services; Transforming an Environ-mental withdraw to an Environ-mental Deposit for the future. Mobilizing bio-resources (organic refuse) and converting them into bio-gold, Earth Care Commodities and Services.***
+***Putting nature on the balance sheet. Bio-Logical Eco System Services; Transforming an Environ-mental withdraw to an Environ-mental Deposit for the future. Mobilizing bio-resources (organic refuse) and converting them into bio-gold, Bio-Logical Earth Care Commodities and Services.***
 
 Today’s young generation are being handed the biggest challenge of all; *'Cultivating Biodiversity'* the symbiotic living *'Fabric of Life'* of this planet.
 
