@@ -10,11 +10,11 @@ date: 2018-08-13
 **Humans and Humus are Symbiotic Body and Soil Microbial Gardens. Life is not possible without Rich Fertile Soil.**
 *All components of an ecosystem are dependent on healthy soil for the system to function optimally.*
 
-***Soil Alchemy*** is the ongoing exploration of what happens when people connect head, heart, and body in the crucible of the soil. The ancient alchemists combined substances and used the influence of their own minds to study the transmutation of matter and of spirit. Observe when the discursive mind becomes quieter and the intelligence of the heart comes to the foreground, feeling through nature an ancient *ecologically symbiotic consciousness* reemerges. Work in symbiotic partnership with the more-than-human world and make incredible discoveries.
+***Soil Alchemy*** is the ongoing exploration of what happens when people connect head, heart, and body in the crucible of the soil. The ancient alchemists combined substances and used the influence of their own minds to study the transmutation of matter and of spirit. Working in symbiotic partnership within Mother Earth too cultivate incredible discoveries. Observing the discursive mind become quieter as the intelligence of the heart comes to the foreground, feeling through nature an ancient *ecologically symbiotic consciousness* reemerges.
 
-### Bokashi is *Soil Therapy;* the practice of spending time *cultivating fertile soil* for the purpose of enhancing whole health, *Earth Care,* wellness, and happiness. A practice of *symbiotic connection* with the natural world and with each other; forgiveness, healing soil to soul.
+### Bokashi is *Soil Therapy;* the practice of spending time *cultivating fertile soil* for the purpose of enhancing whole health, bio-logical *Earth Care,* wellness, and happiness. A practice of *symbiotic connection* within the natural world and with each other; forgiveness, healing soil to soul.
 
-A series of guided invitations, natural cycles, bring one into the present moment, opening the doors of symbiotic communication with the soil, waters, and landscapes explored. Encounter not just the soil, but the many ways nature mirrors humans, encountering oneself, Soil to Soul Food.
+A series of guided invitations, natural cycles, bring one into the present moment, opening the doors of symbiotic communication within the soil, waters, and landscapes explored. Encounter not just the soil, but the many ways nature mirrors humans, encountering oneself, Soil to Soul Food.
 
 **Soil life is fragile,** an estimated one third of global soils are degraded. Moreover, each year an estimated 24 billion tonnes of fertile soil are lost due to erosion alone.
 
@@ -70,7 +70,7 @@ Bokashi conserves water in the ground, nutrients are less prone to leaching and 
 
 ***Urban soil cultivation practices can have a significant impact on urban ecosystem.***
 
-Bokashi, the ecologically responsible option for all food remnants, perfect for those living in apartments/condos and those looking to use their food remnants as a nutrient rich pro-biotic soil amendment in their garden, plant pots or the surrounding environment (ecosystem) as a gift of thanks, fertile pro-biotic soil for Mother Earth. No modern garden is required, be creative, whats around ...
+Bokashi, the ecologically responsible option for all food remnants, perfect for those living in apartments/condos and those looking to use their food remnants as a nutrient rich pro-biotic soil amendment in their garden, plant pots or the surrounding local environment (ecosystem) as a gift of thanks, fertile pro-biotic soil for Mother Earth. No modern garden is required, be creative, whats around ...
 
 A healthy microbiome of the physical body is like a healthy microbiome of the soil, when cared for correctly creates space for more healthy lifeforms to exist. The flora and fauna, healthy bacteria and yeast of the body and soil, actually can, do and have gone extinct! Especially in the gut, and the soil, from a life time of unhealthy eating they just become eliminated. Fermentation is the way to bring that balance back, body and soil all life is 'built' the same.
 

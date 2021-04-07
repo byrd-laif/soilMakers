@@ -15,15 +15,15 @@ date: 2018-08-13
 ![Enzyme Spa](./enzymeImages/enzymeWoodHempBrush.JPG)
 
 ### *Water Alchemy - Recycling organic materials through living organisms naturally purifies water.*
-***Water Alchemy*** is the ongoing exploration of what happens when people connect head, heart, and body in the crucible of the water. The ancient alchemists combined substances and used the influence of their own minds to study the transmutation of matter and of spirit. Observe when the discursive mind becomes quieter and the intelligence of the heart comes to the foreground, feeling through nature an ancient *ecologically symbiotic consciousness* reemerges. Work in symbiotic partnership with the more-than-human world and make incredible discoveries.
+***Water Alchemy*** is the ongoing exploration of what happens when people connect head, heart, and body in the crucible of the water. The ancient alchemists combined substances and used the influence of their own minds to study the transmutation of matter and of spirit. Working in symbiotic partnership within Mother Earth too cultivate incredible discoveries. Observing the discursive mind become quieter as the intelligence of the heart comes to the foreground, feeling through nature an ancient *ecologically symbiotic consciousness* reemerges.
 
-#### Pro-biotic Eco-enzyme is *Water Therapy;* the practice of spending time *cultivating living healing water* for the purpose of enhancing whole health, *Earth Care,* wellness, and happiness. A practice of *symbiotic connection* with the natural world and with each other; forgiveness, *healing water to soul.*
+#### Pro-biotic Eco-enzyme is *Water Therapy;* the practice of spending time *cultivating living healing water* for the purpose of enhancing whole health, bio-logical *Earth Care,* wellness, and happiness. A practice of *symbiotic connection* within the natural world and with each other; forgiveness, *healing water to soul.*
 
-***Bio-Logical Freedom; free to swim in the rivers of Mother Earth without fear of reprisal.***
+***Bio-Logical Freedom; feeling free to swim in the rivers of Mother Earth without fear of reprisal.***
 
-Wo-Men connect through water, the universal solvent. Water speaks, it takes the knowledge of the leaf from the mountains to the sea, and the rain takes it up from the sea back to the mountains.
+People connect through water, the universal solvent. Water speaks, it takes the knowledge of the leaf from the mountains to the sea, and the rain takes it up from the sea back to the mountains.
 
-***Water-*** being a biological need, freely having access to it, ***playing in it; liberates essential subconscious processes, especially in children.*** There is a spontaneous confirmation of the pattern, born directly out of people's feelings.
+***Water- is a bio-logical need,*** freely having access to it, ***playing in it; liberates essential subconscious processes, especially in children.*** There is a spontaneous confirmation of the pattern, born directly out of people's feelings.
 
 No scientific experiments are capable of generating a phenomenon of this extraordinary level of agreement.
 
@@ -45,7 +45,7 @@ Wo-Men don't have to abandon their 'modern' lives but they do have to protect th
 
 The microbes eat the sugars, digesting them and excrete metabolites. A detoxification and transfer of anti-nutrients into nutrients occurs, with nutrient enhancement and the creation of micro-nutrients. An abundance of LAB lactic acid bacteria, yeasts, and molds that produce enzymes, break down and alter the original foods. 
 
-Following fermentation, the natural anti-bacterial properties of fruit peels are further enhanced as organic substances are decomposed, yielding secondary metabolites known as bio-active compounds or phytochemicals. The process creates new amino acids, organic acids, and antioxidants that didn’t originally exist in the raw material, naturally optimized to provide the most nutrition.
+As fermentation progresses, the natural anti-bacterial properties of fruit peels are further enhanced as organic substances are decomposed, yielding secondary metabolites known as bio-active compounds or phytochemicals. The process creates new amino acids, organic acids, and antioxidants that didn’t originally exist in the raw material, naturally optimized to provide the most nutrition.
 
 *Like wine, sediment is normal and can be left in or allowed to settle for ease of separation.*
 
@@ -74,20 +74,20 @@ There are many targeted uses for these metabolites. LAB are applied in food prod
 
 **Polluted bodies of water are toxic hot-spots for greenhouse gas emissions.** 
 
-**The fact is that rivers are being polluted by human activities, especially in urban areas, which is also causing higher greenhouse gas emissions. More than half of the world's population lives closer than 3km to a freshwater body, many are river networks.**
+**The fact is that rivers are being polluted by human activities, especially in urban areas. More than half of the world's population lives closer than 3km to a freshwater body, many are river networks.**
 
-**Mother Earths Rivers Are Breathing, fresh water lakes, rivers, streams ... breath, however they are now so toxic they are exhaling all that humanity has given them, toxic water is toxic air and rain. This is the current toxic trend, a rape and pillage lifestyle of using Mother Earth.**
+**Mother Earths Rivers Are Breathing, fresh water lakes, rivers, streams ... breath, however they are now so toxic they are exhaling all that humanity has given them, toxic water is toxic air and rain. This is the current toxic trend, a rape and pillage lifestyle of using Mother Earth, giving nothing meaningful in return.**
 
 Increased urbanization has introduced a staggeringly large volume of contaminants to rivers, more than 80% of municipal wastewater is still directly discharged into the environment. Most of the pollutants come from untreated wastewater, agricultural runoffs, and increased sediment accumulation.
 
 ***River restoration begins with reducing pollution.***
 
-By no surprise, improving water quality makes a significant difference.
-
 **Waterborne infections account for 80% of all infectious diseases.**
 There is a serious global environmental resource problem of water, soil and energy that are now coming to bear down on *Life As People Know It:* food production, malnutrition, the incidence of diseases, ... . ***By 2025, half the world population will be living in water-stressed areas.***(WHO) People are literally killing the micro-biome with chemicals that alter this grand vast unknowable microbial balance of Mother Earth.
 
 **Water, the “universal solvent,”** is a major constituent of the soil and exerts a strong influence on soil biota because many of the biota are adapted to life in a saturated atmosphere.
+
+By no surprise, improving water quality makes a significant difference.
 
 **Pro-biotic Eco-enzyme is a viable solution to some very big problems. Re-use of wastewater, to recover water, nutrients, or energy, is becoming an important strategy.**
 
@@ -105,13 +105,13 @@ There is a serious global environmental resource problem of water, soil and ener
 
 **Pro-Biotic Eco-Enzyme are therapeutic *soul food* for the micro-biome, Soil to Soul.**
 
-Fermentation naturally produces Lactic Acid Bacteria (LAB), one of the most well studied bacterial groups known from ancient times. ***Lactic acid - this molecule occurs in almost every living organism and it plays an essential role in the anaerobic energy metabolism of billions of life forms.*** These valuable micro-organisms are used in numerous areas, especially food industry and medicine. LAB produce a wide range of compounds for food upgrading. Moreover, LAB can find special applications like generation of bio-energy not affecting the surrounding environment.
+Fermentation naturally produces Lactic Acid Bacteria (LAB), one of the most well studied bacterial groups known from ancient times. ***Lactic acid - this molecule occurs in almost every living organism and it plays an essential role in the anaerobic energy metabolism of billions of life forms.*** These valuable micro-organisms are used in numerous areas, especially food industry and medicine. LAB can also produce a wide range of compounds for special applications like generation of bio-energy not affecting the surrounding environment.
 
 **Re-Act To The Environ-Mental Realities**
 
-**Lifestyles For Change. Eco-Enzyme is an ecologically responsible solution,** perfect for those living in urban or rural environments, as a way to use their fresh fruit and vegetable remnants as a **nutrient rich pro-biotic water and soil amendment.** Use in the garden, plant pots or the environment as a gift of thanks, pro-biotic water for Mother Earth. No traditional 'garden' is required. Be creative, whats around ...
+**Lifestyles For Change, bringing life to style. Eco-Enzyme is an ecologically responsible solution,** perfect for those living in urban or rural environments, as a way to use their fresh fruit and vegetable remnants as a **nutrient rich pro-biotic water and soil amendment.** Use in the garden, plant pots or the local environment as a gift of thanks, pro-biotic water for Mother Earth. No traditional 'garden' is required. Be creative, whats around ...
 
-**Fermenting fresh organic kitchen matter can reduce 70% of the total waste production and reduce the bad gases produced during organic decomposition, while saving the environment by creating a beneficial, symbiotic substance to combat the negative use of toxic chemicals and pollutants.**
+**Fermenting fresh organic kitchen matter can reduce 70% of the total waste production and reduce the bad gases produced during organic decomposition, all while saving the environment by creating a beneficial, symbiotic substance to combat the negative use of toxic chemicals and pollutants.**
 
 ![bottle glass](./enzymeImages/proBioticEcoEnzymeGlass.jpg)
 
