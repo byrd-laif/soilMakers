@@ -18,9 +18,11 @@ date: 2021-03-09
 
 ***A ritual; a participatory event done with purpose to achieve something real in ones life. To feel is to sense the mystery of life through nature, too allow change to occur while working in it.***
 
-***Investigating the nature of the physical body, through the earth body, allowing the style of movement to evolve out of the personal creative expression. The style of life; the integration of movement and feeling connected through Mother Earth.***
+***Investigating the nature of the physical body, through the earth body, allowing the style of movement to evolve out of the personal creative expression.***
 
-***Intelligence is not to see that nature is alive, its to recognize when its seen. The felt experience of being in organism; standing as a mirror before nature as its object. Woman is natures destination; being endowed within by the spirit of selfless service, as such She can speak for Mother Earth. Being indigenous of this land means caring for its next generations use.***
+***The style of life; the integration of movement and feeling connected through Mother Earth.***
+
+**Intelligence is not to see that nature is alive, its to recognize when its seen. The felt experience of being in organism; standing as a mirror before nature as its object. *Woman is natures destination; being endowed within by the spirit of selfless service, as such She can speak for Mother Earth.* Being subject of this land means caring for its next generations use.**
 
 **This will document the alchemical journey of *Soul Food,* from its soil source, cultivation, harvest, preservation/preparation to culinary delight, and its multi dimensional re-Cultivated return to source, soil.**
 
@@ -28,7 +30,7 @@ date: 2021-03-09
 
 #### *The Return; a journey through the alchemy of soil.*
 
-**A movable feast; plant knowledge distilled and assimilated through the physical body, re-cultivated into living soil, and returned to the womb of Mother Earth *in-kind.* Sustenance; life supporting and sustaining. Returned as something meaningful.**
+**A movable feast; plant knowledge distilled and assimilated through the physical body, re-cultivated into living soil and returned to the womb of Mother Earth *in-kind.* Sustenance; life supporting and sustaining. Returned as something meaningful.**
 
 ***Empowering direct experience; contact with the divine made manifest.***
 
