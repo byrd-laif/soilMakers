@@ -11,7 +11,7 @@
 
 ### [Life*Styles* For Change ~ Becoming a part of the circle of life.](./lifeStylesForChange)
 
-**Vivarium Salon Culture; Bringing Life To Style. *Art,* as the vehicle for working through feelings of living in a damaged world, cultivating cultures that symbiotically connect, healing soil to soul.**
+**Vivarium Salon Culture; Bringing Life To Style. *Art,* as the vehicle for working through feelings of living in a damaged world, cultivating cultures that symbiotically connect, healing soil to soul.** Art is, in fact, an expression. And an expression is a necessity.
 
 [Real time on Matrix; Join the conversation in the interactive **Vivarium Salon**](https://matrix.to/#/!LSpVaMCiYQehpJONFF:matrix.org?via=matrix.org&via=t2bot.io&via=stux.chat)
 

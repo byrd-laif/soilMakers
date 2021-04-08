@@ -47,7 +47,7 @@ A living design built upon the inherent intuitive 'biophilic' response to natura
 
 New ways of thinking, seeing and feeling; relating to the Natural World can be expanded, experienced. Causing a total shift of posture, perceptions, beliefs, and thought processes. 
 
-***Transforming ones relationship with the Natural World.***
+***Transforming ones relationship with the Natural World.*** Making a habit to feel where one is within nature, too understand how they are moving together As One. The 'water', ..., is too polluted ... not just for 'human' consumption.
 
 ![Peek](./vivariumGeorgeTownGallery/vivariumLivingRoom/vivariumGTLivingroomPeekweb.jpg)
 
@@ -55,7 +55,7 @@ New ways of thinking, seeing and feeling; relating to the Natural World can be e
 
 **Just as the ancients danced to call upon the spirits in nature, Wo-Man too, can dance to find the spirits within oneself that have long been buried and forgotten.**
 
-#### Discover what kind of meaning to give it ...
+***Discover what kind of meaning to give it ...***
 
 **Life is in motion, every day movement is a dance, what one sees, smells, hears, how one brings their consciousness to the experience, to a tree, ..., a bird in the garden, and then brings it into the body, that becomes the dance; the felt experience of the shared breath made visible.**
 
@@ -71,13 +71,13 @@ New ways of thinking, seeing and feeling; relating to the Natural World can be e
 
 **Recapturing the integration between life and art/style, ... living the creativity is the most important thing one has. Dance the essence of things.** *The denial, the courage to confront, the release ... too flow again ...*
 
-Urban environments are not nurturing environments in and of themselves, but with care, can be curated and cultivated into being so. Breaking the role of 'consumer culture,' of 'modern culture,' hanging up the 'cultural costume' and designing a lifeStyle of ones own, connected through too nature. 
+Urban environments are not nurturing environments in and of themselves, but with care, can be curated and cultivated into being so. Breaking the role of 'consumer culture,' of 'modern culture,' hanging up the 'cultural costume' and designing a living lifeStyle of ones own, connected through too nature. 
 
 ![Authentic Living](./vivariumGeorgeTownGallery/vivariumLivingRoom/livingRoomCandidCafeWeb.jpg)
 
 ***Cultivating intimacy within nature.***
 
-***Honoring the uniqueness of the self,*** breaking free of boundaries, having reverence for ones own body. Avoiding pre-stylization of movement in life, taking off the 'cultural amour', allowing direct experience to evoke feelings. 
+***Honoring the uniqueness of the self,*** breaking free of boundaries, having reverence for ones own body within nature. Avoiding pre-stylization of movement in life, taking off the 'cultural amour', allowing direct experience to evoke feelings. 
 
 Going beyond, using the feelings to expand into the 'living' style of ones life through the kinesthetic sense.
 
