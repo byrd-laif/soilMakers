@@ -25,7 +25,7 @@ It is when ones feelings are perfectly in touch with the reality of the forces i
 
 ![*Patio garden bird.*](./vivariumGeorgeTownGallery/vivariumPatio/vivariumGTPatioBirdweb.JPG)
 
-#### *Naturally taping into the abundant emotions of joy, grace, awe, wholeness, passion and compassion that are experienced from recognizing beauty in nature. An archaic revival of Wo-Mans symbiotic microbial Gaian connection, honoring the feminine through feeling, connecting soil to soul.*
+#### *Naturally taping into the abundant emotions of joy, grace, awe, wholeness, passion and compassion that are experienced from recognizing beauty in nature. Bio-logically re-connecting; an archaic revival of Wo-Mans symbiotic microbial Gaian connection, honoring the feminine through feeling, connecting soil to soul.*
 
 ![moringa tree bloom](./vivariumGeorgeTownGallery/vivariumGarden/vivariumMoringaFlowers02Web.JPG)
 

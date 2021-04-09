@@ -33,7 +33,7 @@ Wo-Men don't have to abandon their 'modern' lives but they do have to protect th
 
 ![Enzyme Spa Glass Brew](./enzymeImages/enzymeGlassBrew.jpg)
 
-***Symbiotically nourishing, fortifying and gentle. Self-care that goes far beyond the self, re-connecting. Remarkably enough the Physical Body and Mother Earth find natural healing benefits from this one easy process.***
+***Symbiotically nourishing, fortifying and gentle. Self-care that goes far beyond the self, bio-logically re-connecting. Remarkably enough the Physical Body and Mother Earth find natural healing benefits from this one easy process.***
 
 *Yes, Nature is that simple, effective and synergistic.*
 

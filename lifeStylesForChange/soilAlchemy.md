@@ -14,7 +14,7 @@ date: 2018-08-13
 
 ### Bokashi is *Soil Therapy;* the practice of spending time *cultivating fertile soil* for the purpose of enhancing whole health, bio-logical *Earth Care,* wellness, and happiness. A practice of *symbiotic connection* within the natural world and with each other; forgiveness, healing soil to soul.
 
-A series of guided invitations, natural cycles, bring one into the present moment, opening the doors of symbiotic communication within the soil, waters, and landscapes explored. Encounter not just the soil, but the many ways nature mirrors humans, encountering oneself, Soil to Soul Food.
+A series of guided invitations, natural cycles, bring one into the present moment, opening the doors of symbiotic communication within the soil, waters, and landscapes explored. Biologically re-connecting, encounter not just the soil, but the many ways nature mirrors humans, encountering oneself, Soil to Soul Food.
 
 **Soil life is fragile,** an estimated one third of global soils are degraded. Moreover, each year an estimated 24 billion tonnes of fertile soil are lost due to erosion alone.
 
