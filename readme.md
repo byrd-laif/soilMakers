@@ -9,8 +9,6 @@
 ## *Vivarium Salon (Circle/Programs) ~ place of life*
 *Global Communities For Local Impact. Cross-pollinate and connect, sharing diverse feelings about the ecological future.*
 
-### [Life*Styles* For Change ~ Becoming a part of the circle of life.](./lifeStylesForChange)
-
 **Vivarium Salon Culture; Bringing Life To Style. *Art,* as the vehicle for working through feelings of living in a damaged world, cultivating cultures that symbiotically connect, healing soil to soul.** Art is, in fact, an expression. And an expression is a necessity.
 
 [Real time on Matrix; Join the conversation in the interactive **Vivarium Salon**](https://matrix.to/#/!LSpVaMCiYQehpJONFF:matrix.org?via=matrix.org&via=t2bot.io&via=stux.chat)
@@ -26,6 +24,8 @@
 ***Harvesting Knowledge** to design a more desirable, fulfilling, life supporting; Ecologically Modern and Realistic Lifestyle.*
 
 *An integrated set of processes that allow the often hidden insight of human expertise to be captured and converted into specific actionable know-how that can be transferred to others.*
+
+[**Life*Styles* For Change ~ Becoming a part of the circle of life.**](./lifeStylesForChange)
 
 #### *The Ecology Is The Economy.*
 
