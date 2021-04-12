@@ -62,7 +62,7 @@
 
 The cultivation of a more attuned and responsive awareness of Wo-Mans ecological interconnections, recognizing feelings which are in touch with reality. Feelings provide a powerful way of finding out which lifestyle patterns are balanced and which are not. Ones dream and the dream of the planet As One.
 
-***The fundamental human birthright; Connection with things that make living possible.*** Being attracted to all that is alive and vital, the human tendency to relate with life and natural processes - *Is The Expression Of A Bio-Logical Need.*
+***The fundamental human birthright; Connecting with thing that make living possible.*** Being attracted to all that is alive and vital, the human tendency to relate with life and natural processes - ***Is The Expression Of A Bio-Logical Need.***
 
 #### *Quality Of Life*
 

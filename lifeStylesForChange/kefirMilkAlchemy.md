@@ -39,6 +39,7 @@ For centuries, it’s been used in European and Asian folk medicine due to the w
 *Recolonize a domesticated digestive track with ancient native cultures that heal.*
 
 #### A Symbiotic Gaian Connection; Coevolution.
+*Connecting with thing that make living possible.*
 
 **Kefir is a living demonstration of the integration processes by which symbiotic cells evolving from bacteria still occur.**
 
