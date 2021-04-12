@@ -97,7 +97,7 @@ The live microorganisms present in kefir help promote the immune system to natur
 
 ***Heals Skin***
 
-When the gut is out of whack, it can send signals to skin cells that disrupt its natural balance and cause all sorts of problems like acne, psoriasis, rashes and eczema. Kefir is a natural anti-oxidant and helps bring good bacteria back to the forefront bringing homeostasis (stable equilibrium) to the bodies largest organ, the skin. Kefir also benefits the skin as burn and rash treatment.
+When the gut is out of whack, it can send signals to skin cells that disrupt its natural balance and cause all sorts of problems like acne, psoriasis, rashes and eczema. Kefir is a natural anti-oxidant and helps bring good bacteria back to the forefront bringing homeostasis (stable equilibrium) to the bodies largest organ, the skin. Kefir also benefits the skin as burn and rash treatment.https://spotcheck.clinic/treatments/vitamin-b3-skin-cancer
 
 Kefiran, aside from aiding in the immune system, helps improve the quality of skin wound healing and protective for connective tissue.
 
