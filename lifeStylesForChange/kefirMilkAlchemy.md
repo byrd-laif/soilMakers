@@ -111,7 +111,7 @@ Like all home ferments kefir milk does not have a standardized nutrition content
 
 *The quality of milk used in the process, preparation method and the presenting microorganisms in the kefir grains determine the quantity and the type of vitamin and mineral compositions.* 
 
-**- Vitamins:** carotene, vitamins A, K, B 1, ­B 2, ­B 5, B 6, C, B 12 and folic acid.
+**- Vitamins:** carotene, vitamins A, K, B 1, ­B 2, B 3, ­B 5, B 6, C, B 12 and folic acid.
 
 **- Minerals:** Mg, Ca, P, Zn, Cu, Mn, Fe, Co and Mo.
 
@@ -172,7 +172,7 @@ Use plastic, bamboo, cane, or high quality stainless steel strainers for straini
 
 Designate a spot away from direct sunlight for Kefir fermentation. Do not fill the fermenting jar more than 3/4, leave room for expansion otherwise the milk can overflow after some hours of fermentation. If the jar is sealed tight, a slightly carbonated Kefir can result. 
 
-Kefir grains increase in overall volume, numbers of, and by weight as the grains are self-perpetuating when continually cultured in fresh milk. Because of this, a point comes where a portion of kefir grains have to be removed from the batch, in order to prevent overcrowding of kefir grains, and to maintain a reasonable constant grain-to-milk ratio. Preventing overcrowding of grains to avoid over fermentation and to produce a consistent kefir on an ongoing basis. Traditionally, excess or spare kefir grains were either eaten, dehydrated and stored as a back-up source, shared among family members, or traded among the tribes-folk of Caucasus, in exchange for other basic essentials. Dehydrated kefir grains can be ground into a pro-biotic condiment by blending them with other dry herbs and spices.
+Kefir grains increase in overall volume, numbers of, and by weight as the grains are self-perpetuating when continually cultured in fresh milk. Because of this, a point comes where a portion of kefir grains have to be removed from the batch, in order to prevent overcrowding of kefir grains, and to maintain a reasonable constant grain-to-milk ratio. Preventing overcrowding of grains to avoid over fermentation and to produce a consistent kefir on an ongoing basis. Traditionally, excess or spare kefir grains were either eaten, dehydrated and stored as a back-up source or powdered for a supplement, shared among family members, or traded among the tribes-folk of Caucasus in exchange for other basic essentials. Dehydrated kefir grains can be ground into a pro-biotic condiment by blending them with other dry herbs and spices.
 
 Aerobic, a ferment with oxygen is usually done with a cloth lid. Anaerobic, without oxygen is done with a closed lid or airlock. Airlock is ideal but not necessary, kefir can be fermented closed or with a cloth cover. 
 

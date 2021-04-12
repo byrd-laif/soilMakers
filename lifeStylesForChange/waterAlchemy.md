@@ -226,22 +226,24 @@ One can create a separate catch-all bin for everything else like veggie scraps, 
 
 #### *Using Eco-Enzyme*
 
-**Favored usage and dilution ratios with water:**
-Eco-Enzymes can be used safely at full strength, undiluted, on the most sensitive skin.
+Eco-Enzymes can be used safely at full strength, undiluted, on the most sensitive skin. Ratios provided are a personal preference, experiment to discover what works best, allow intuition to be the guide. Keeping things modular helps to retain creativity.
 
-- Hair and body wash - 1:10
-- Mouthwash/Toothpaste - 1:10 or undiluted
+**Enzyme to Water dilution ratios:**
+
+- Hair and body wash - 1:1
+- Mouthwash/Toothpaste - 1:1 or undiluted
 - Warts and fungal infections - undiluted
 - Wound healing, diaper rash wash - 1:10 or undiluted
 - Dish washing - 1:500
-- Fruit and vegetable wash (submerge for 5 min) to remove chemicals and pesticides - 1:200
+- House hold surface cleaning - 3:100
 - Laundry detergent, natural fabric softener - 1:500
 - Evaporative cooler - air freshener - 1:500
 - Insect replant and fertilizer for the garden - 1:500
+- Fruit and vegetable wash (submerge for 5 min) to remove chemicals and pesticides - 3:100 (30ml enzyme to 1 liter water)
 
 ![enzyme with soap](./enzymeImages/enzymeFinish.jpg)
 
-***Adding 50ml of liquid store bought detergent/shampoo to 1000ml of Eco-Enzyme makes a great concentrated de-greaser/cleaner/shampoo. Drastically reducing consumption and mitigating harmful effects. Perfect for dish washing, laundry, shampoo and body wash.***
+***Adding 30ml to 50ml of liquid store bought detergent/shampoo to 1000ml of Eco-Enzyme makes a great concentrated de-greaser/cleaner/shampoo. Drastically reducing consumption and mitigating harmful effects. Perfect for dish washing, laundry, shampoo and body wash.***
 
 ... The list goes on.
 
