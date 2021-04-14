@@ -119,7 +119,7 @@ Fermentation naturally produces Lactic Acid Bacteria (LAB), one of the most well
 
 ***Naturally; Anti-Bacterial, Anti-Fungal, Anti-Viral and a Natural Antiseptic.***
 
-**Stable**- If the ferment is full of its necessary nutrients, it can survive even at pH value below 3.5, this ferment usually produces a beautiful safe and stable pH range of 4.5-5. The fermentation can remain active even at temperatures as high as 100C. 
+**Stable**- If the ferment is full of its necessary nutrients, it can survive even at pH value below 3.5, this ferment usually produces a beautiful safe and stable pH range of 3 to 4.5. The fermentation can remain active even at temperatures as high as 100C.
 
 **Safe**- Naturally teaming with antimicrobial goodness, these bacteria inhibit the growth of pathogens naturally eliminating the need for preservatives. Ferments are toxic free and perfect for the most sensitive at any age.
 

@@ -7,7 +7,7 @@ date: 2019-02-04
 
 **Fermentation is a natural phenomena that our Neolithic ancestors observed and learned how to cultivate.**
 
-## *Lacto-Fermentation Is A Natural Symbiotic Method Of Food Preparation and Preservation.* 
+## *Lacto-Fermentation Is A Natural Symbiotic Method Of Food Preparation and Preservation.*
 
 > “To ferment your own food is to lodge an eloquent protest of the senses against the homogenization of flavors and food experiences now rolling like a great, undifferentiated lawn across the globe. It is also a declaration of independence from a group of fraudsters that would much prefer we were all passive consumers of its commodities, rather than creators of unique products expressive of ourselves and the places where we live.” ~ MICHAEL POLLAN, from the Foreword (The Art of Fermentation)
 
@@ -19,7 +19,7 @@ Fermented foods were reportedly first consumed by humans around 7,000-8,000 year
 
 **Fermentation is a porthole to the most intimate relationships between Wo-Man, microbe and Mother Earth. A tangible way of interacting with the larger web of life, a way to cultivate and reclaim a relationship with Nature, Gaia.**
 
-**An archaic revival, food preservation with Gaia, food that almost makes itself. Transforming simple raw vegetables like cabbage into *functional food medicine* that does not require a Modern Kitchen nor Fire (electricity).**
+**An archaic revival, food preservation with Gaia, food that almost makes itself. Biological Enrichment; Transforming simple raw vegetables like cabbage into *functional food medicine* that does not require a Modern Kitchen nor Fire (electricity).**
 
 #### Cultivate cultures that heal.
  
