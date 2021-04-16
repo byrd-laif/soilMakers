@@ -13,7 +13,7 @@
 
 [Real time on Matrix; Join the conversation in the interactive **Vivarium Salon**](https://matrix.to/#/!LSpVaMCiYQehpJONFF:matrix.org?via=matrix.org&via=t2bot.io&via=stux.chat)
 
-### *Salon Circle;* A renewed culture of *Artful Conversation,* honoring personal intention within group process to create egalitarian forums.
+### *Salon Circle;* A renewed culture of *Artful Conversation,* honoring someone's intention within group process to create egalitarian forums.
 
 **At a time of ecological and economic precarity, *salon style* "wisdom/council circle", offer space for sharing feelings, rethinking and remaking symbiotic relations with one-self, one-another and Mother Earth.**
 
@@ -23,9 +23,9 @@
 
 #### Accepting personal responsibility; truthful living. 
 
-Love and labor are inseparable. *Love calls forth ones deepest bravery.*
+Love and labor are inseparable. *Love calls forth someone's deepest bravery.*
 
-***Harvesting Knowledge** to design a more desirable, fulfilling, life supporting; Ecologically Modern and Realistic Lifestyle.*
+***Knowledge Harvesting,** designing a more desirable, fulfilling, life supporting; Ecologically Modern and Realistic Lifestyle.*
 
 *An integrated set of processes that allow the often hidden insight of human expertise to be captured and converted into specific actionable know-how that can be transferred to someone.*
 
