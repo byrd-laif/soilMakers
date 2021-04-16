@@ -19,11 +19,15 @@
 
 ### *Salon Programs;* Designed to be Fun, Creative, Interactive and Resourceful.
 
-**To awaken possibility and creative insight, refine the taste, and increase the knowledge of the participants through guided conversation organized around cultures and ideas reflective of the era in which they live.**
+**To awaken possibility and creative insight, refine the taste, and increase the knowledge of the participants through guided conversation organized around cultures and ideas reflective of the era in which someone lives.**
+
+#### Accepting personal responsibility; truthful living. 
+
+Love and labor are inseparable. *Love calls forth ones deepest bravery.*
 
 ***Harvesting Knowledge** to design a more desirable, fulfilling, life supporting; Ecologically Modern and Realistic Lifestyle.*
 
-*An integrated set of processes that allow the often hidden insight of human expertise to be captured and converted into specific actionable know-how that can be transferred to others.*
+*An integrated set of processes that allow the often hidden insight of human expertise to be captured and converted into specific actionable know-how that can be transferred to someone.*
 
 [**Life*Styles* For Change ~ Becoming a part of the circle of life.**](./lifeStylesForChange)
 
@@ -39,7 +43,7 @@
 
 *It's time to start comparing consumption and lifestyle, and checking this against nature's ability to provide for this consumption. Humans have destroyed and continue to destroy the habitats of species on a daily basis. It's time to own up to the realities of what that translates to for the generations to come, aesthetically and otherwise. It's time to be *Ecologically Realistic* and get back to the *heart* of what *life* is all about.* 
 
-**This is about honesty and responsibility. Honesty; admitting to what is. Responsibility; not blaming anybody else.**
+**This is about honesty and responsibility. Honesty; admitting to what is. Responsibility; not blaming someone else.**
 
 # *Soil Sisters ~ Eco-Logical Movement And Enterprise*
 *Directly addressing the bio-logical effects of climate change.*
@@ -54,7 +58,9 @@
 
 ***Power as responsibility rather than domination.*** A radical sift from the 'dominator' Bio-Logical Warfare; built on guilt, fear and force. To an 'Eco-logical Partnership', *Bio-Logical Freedom; feeling free to swim in the rivers of Mother Earth without fear of reprisal.*
 
-**Partnership systems support mutually respectful and caring relations.** Reconciliation; forgiveness, free to turn and question: Where does Wo-Man go from here?
+*Partnership systems support mutually respectful and caring relations.* 
+
+***Reconciliation; forgiveness, free to turn and question: Where does someone go from here?***
 
 #### *Environ-Mental Health*
 
@@ -76,9 +82,9 @@ Being responsible stewards of the Earth means taking to heart the current planet
 
 Today’s young generation are being handed the biggest challenge of all; *'Cultivating Biodiversity'* the symbiotic living *'Fabric of Life'* of this planet.
 
-Not addressing immediate needs is an insult to the young. People with passion, purpose and practical skills make the world a better place.
+Not addressing immediate needs is an insult to the young. Someone with passion, purpose and practical skills make the world a better place.
 
-**It's time to call home. To act and that act to transfer through Mother Earth, soil to soul cultivate cultures that heal.**
+**Someone is calling home; Someone is acting, and that act is transferring through too Mother Earth, soil to soul cultivating cultures that are healing.** Someone knows what to do, and is doing it.
 
 #### Explore
 
