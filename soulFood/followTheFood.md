@@ -107,6 +107,8 @@ The contradicting quotation is not truly contradicting as it does not contradict
 
 Alchemy can only truly be understood by gaining an understanding of how and why nature operates ***as it does.***
 
+**What is remarkable about the practices of the alchemist, is the willingness to let nature work without knowing exactly how nature works.**
+
 **Nature** - the ultimate non absolute ... where
 
 **beliefs** - can be manipulated by imagination and
