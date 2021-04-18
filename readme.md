@@ -54,7 +54,7 @@ Love and labor are inseparable. *Love calls forth someone's deepest bravery.*
 
 #### *Cultivating The Mother Tree;* An archaic revival of Wo-Mans Gaian connection through honoring the feminine. Soil Sisters cultivate an ally; bonding with Mother Earth as *'The Live And Dynamic Co-evolutionary Partner'* in the shaping of the set, setting and the process.
 
-***Creating co-Evolutionary Leaders;*** Revolutionary Eco-logical Actions that are transferable through to nature. ***Bio-Logical Earth Care*** provides the environment for an enlightened, sustainable future.
+***Creating co-Evolutionary Leaders;*** Revolutionary Eco-logical Actions that are transferable through to nature. ***Bio-Logical Earth Care Systems*** provide the environment for an enlightening, sustainable future.
 
 ***Power as responsibility rather than domination.*** A radical sift from the 'dominator' Bio-Logical Warfare; built on guilt, fear and force. To an 'Eco-logical Partnership', *Bio-Logical Freedom; feeling free to swim in the rivers of Mother Earth without fear of reprisal.*
 
@@ -78,7 +78,7 @@ Being responsible stewards of the Earth means taking to heart the current planet
 
 #### An opportunity for the creation of something new and beautiful.
 
-***Putting nature on the balance sheet. Bio-Logical Eco System Services; Transforming an Environ-mental withdraw to an Environ-mental Deposit for the future. Mobilizing bio-resources (organic refuse) and converting them into bio-gold, Bio-Logical Earth Care Commodities and Services.***
+***Putting nature on the balance sheet. Bio-Logical Earth Care System Services; Transforming an Environ-mental withdraw to an Environ-mental Deposit for the future. Mobilizing bio-resources (organic refuse) and converting them into bio-gold, Bio-Logical Earth Care Services & Commodities.***
 
 Today’s young generation are being handed the biggest challenge of all; *'Cultivating Biodiversity'* the symbiotic living *'Fabric of Life'* of this planet.
 
