@@ -38,7 +38,7 @@ A symbiotic microbial messenger; from humus, through human, to humus. Returned t
 
 **What ever the physical mind feeds upon is what the *Earth Body* calls to *Wo-Man*, *Soil too Soul* they receive.**
 
-**As such this journey will begin in a field,** the soils cultivated by the Nam Khan Eco Lodge and Farm, chosen for the close proximity and open access. The Nam Khan River is a major tributary of the river Mekong, with which it joins at Luang Prabang. A journey 6.5km up river to harvest soil knowledge at the source, and document cultivation from seed to harvest.
+**As such this journey will begin in a field,** the soils cultivated by the Nam Khan River, chosen for the close proximity and open access. The Nam Khan River is a major tributary of the river Mekong, with which it joins at Luang Prabang. A journey 6.5km up river to harvest soil knowledge at source, and document cultivation from seed to harvest.
 
 The alchemical journey will then continue into the personal home kitchen, with recipes of soul food for the physical body. Moving through the physical body, bio-matter enters into a cyclical fermentation process, whereupon the spirit is released. 
 
