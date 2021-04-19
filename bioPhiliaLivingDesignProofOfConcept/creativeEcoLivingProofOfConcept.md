@@ -4,8 +4,8 @@ date: 2021-02-28
 ---
 
 # Bio*Philia* Living Design ~ Learning to live in the light of Nature.
-*An archaic revival; Working toward a shared and living language, learning how to discover patterns which are deep, and capable of generating life.*
-(*Proof of concept: Oct 2016 - Jan 2020*)
+*An archaic revival, the sharing of a living language, learning how to discover patterns which are deep, and capable of generating life.*
+*Proof of concept: Oct 2016 - Jan 2020 (guest reviews available upon request)*
 
 **The cultivation of a symbiotic habitat, that honors the individual as a *biological organism* in the *built environment*, within the *biophysical environment.***
 
@@ -278,7 +278,7 @@ This space was mostly shared with the host or co-host, all where quite strict ab
 
 #### Explore
 
-**Guest Reviews Upon Request**
+***Guest Reviews Available Upon Request***
 
 Many special events took place at the Vivarium in many different forms, Salon Style Programs and Salon Circle Gatherings among them. A few occasions where artfully captured by a talented videographer and photographer, [Hakima.](https://www.lensculture.com/hakima-hamdi)
 
