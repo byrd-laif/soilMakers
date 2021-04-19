@@ -56,9 +56,12 @@ Love and labor are inseparable. *Love calls forth someone's deepest bravery.*
 
 ***Creating co-Evolutionary Leaders;*** Revolutionary Eco-logical Actions that are transferable through to nature. ***Bio-Logical Earth Care Systems*** provide the environment for an enlightening, sustainable future.
 
-#### An opportunity for the creation of something new and beautiful.
+*An opportunity for the creation of something new and beautiful.*
 
-***Putting nature on the balance sheet. Bio-Logical Earth Care System Services; Transforming an Environ-mental withdraw to an Environ-mental Deposit for the future. Mobilizing bio-resources (organic refuse) and converting them into bio-gold, Bio-Logical Earth Care Services & Commodities.***
+Being responsible stewards of the Earth means taking to heart the current planetary healing crisis. Having accepted this circumstance *responsibility* then means *ability,* to have a *creative response* to the situation as it is *now.* The *seeds of opportunity* and awareness, to take the moment and transform it into a better situation.
+
+#### Putting nature on the balance sheet.
+***Bio-Logical Earth Care System Services; Transforming an Environ-mental withdraw to an Environ-mental Deposit for the future. Mobilizing bio-resources (organic refuse) and converting them into bio-gold, Bio-Logical Earth Care Services & Commodities.***
 
 ***Power as responsibility rather than domination.*** A radical sift from the 'dominator' Bio-Logical Warfare; built on guilt, fear and force. To an 'Eco-logical Partnership', *Bio-Logical Freedom; feeling free to swim in the rivers of Mother Earth without fear of reprisal.*
 
@@ -70,7 +73,7 @@ Love and labor are inseparable. *Love calls forth someone's deepest bravery.*
 
 *The ethics of ecology;* Learning to live in the light of Nature.
 
-The cultivation of a more attuned and responsive awareness of Wo-Mans ecological interconnections, recognizing feelings which are in touch with reality. Feelings provide a powerful way of finding out which lifestyle patterns are balanced and which are not. Ones dream and the dream of the planet As One.
+The cultivation of a more attuned and responsive awareness of Wo-Mans ecological interconnections, recognizing feelings which are in touch with reality. Feelings provide a powerful way of finding out which lifestyle patterns are balanced and which are not. Someone's dream and the dream of the planet As One.
 
 ***The fundamental human birthright; Connecting with thing that make living possible.*** Being attracted to all that is alive and vital, the human tendency to relate with life and natural processes - ***Is The Expression Of A Bio-Logical Need.***
 
@@ -78,21 +81,17 @@ The cultivation of a more attuned and responsive awareness of Wo-Mans ecological
 
 Loss of biodiversity and ecosystems are catastrophic, impacts are symbiotic and happen within the physical body through too *Mother Earth,* far into future generations.
 
-Being responsible stewards of the Earth means taking to heart the current planetary healing crisis. Having accepted this circumstance *responsibility* then means *ability,* to have a *creative response* to the situation as it is *now.* The *seeds of opportunity* and awareness, to take the moment and transform it into a better situation.
-
-Today’s young generation are being handed the biggest challenge of all; ***'Cultivating Biodiversity'*** the symbiotic living *'Fabric of Life'* of this planet.
+Today’s young generation are being handed the biggest challenge of all; ***'Cultivating Biodiversity'*** the symbiotic living ***'Fabric of Life'*** of this planet.
 
 Not addressing immediate needs is an insult to the young. Someone with passion, purpose and practical skills make the world a better place.
 
-**Someone is calling home; Someone is acting, and that act is transferring through too Mother Earth, soil to soul cultivating cultures that are healing.** Knowing what to do, and doing it.
+**Someone is calling home; Someone is acting, and that act is transferring through to Mother Earth, soil to soul cultivating cultures that are healing.** Knowing what to do, and doing it.
 
 #### Explore
 
 [**Follow the Food; The Alchemy of soul food, from soil to plate to soil.**](./soulFood/followTheFood.md)
 
 [**BioPhilia Living Design - *Proof of Concept* Urban Sustainable Eco-Living**](./bioPhiliaLivingDesignProofOfConcept/creativeEcoLivingProofOfConcept.md)
-
-[**Proof of Concept Guest Reviews**](./bioPhiliaLivingDesignProofOfConcept/proofOfConceptReviews.md)
 
 #### [Programs/Resources](./lifeStylesForChange)
 

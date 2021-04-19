@@ -11,7 +11,7 @@ date: 2021-02-28
 
 ## *Becoming a part of the circle of life.* The *symbiotic relationships* and feelings generated between *Wo-Man and Mother Earth* (environment) are highlighted, not human and 'things'.
 
-***Harvesting Knowledge:*** In order to discover patterns which are alive one must always start with observation. Cataloging felt experiences, sources in the natural environment, of positive biological, physical and emotional states that humans experience then, recreating them in the built and cultivated environments to enhance emotional, mental, physical and biological health.
+***Harvesting Knowledge:*** In order to discover patterns which are alive someone must always start with observation. Cataloging felt experiences, sources in the natural environment, of positive biological, physical and emotional states that humans experience then, recreating them in the built and cultivated environments to enhance emotional, mental, physical and biological health.
 
 Civilized living; life-giving and life-sustaining with a high degree of refinement and comfort. Adaptable to all practical needs of life within an attractive built environment.
 
@@ -19,9 +19,9 @@ Civilized living; life-giving and life-sustaining with a high degree of refineme
 
 ***Curated to allow enjoyment of nature as freely as possible.***
 
-Wo-Men have an inherit need to connect to nature and other biotic forms due to their *Evolutionary Dependence* on it for *Survival* and *Personal Fulfillment.* This is the shared human birthright; the biological need to connect with things that make living possible.
+Everyone has an inherit need to connect to nature and other biotic forms due to their *Evolutionary Dependence* on it for *Survival* and *Personal Fulfillment.* This is the shared human birthright; the biological need to connect with things that make living possible.
 
-It is when ones feelings are perfectly in touch with the reality of the forces in their environment, that one can begin to see the patterns which are capable of generating life.
+It is when ones feelings are perfectly in touch with the reality of the forces in their environment, that someone can begin to see the patterns which are capable of generating life.
 
 ![*Patio garden bird.*](./vivariumGeorgeTownGallery/vivariumPatio/vivariumGTPatioBirdweb.JPG)
 
@@ -31,7 +31,7 @@ It is when ones feelings are perfectly in touch with the reality of the forces i
 
 ***Cross Pollinate; being the gardener, an open hand, bringing seed to soil, the womb of Mother Earth, the beginnings of life, love and endings. Each bloom in the doing of this most holy act.***
 
-Using the symbiotic relationships with *'Mother Earth'* as a path of discovery into the unique characteristics of intentional independent habitats, that not only can influence a spontaneous therapeutic act but can also be used by the designer to open; they are dynamic, adaptable and can be experienced, generate feelings, offering a safe space and the possibility for trying out inventive solutions and transformation.
+Using the symbiotic relationships with *'Mother Earth'* as a path of discovery into the unique characteristics of intentional independent habitats, that not only can influence a spontaneous therapeutic act but can also be used by the designer to open; they are dynamic, adaptable and can be experienced, *generate feelings*, offering a *safe space* and the possibility for trying out inventive solutions and transformation.
 
 #### *Psychobiology, where mind meets matter. The interaction between bio-logical systems and behavior.*
 
@@ -39,7 +39,7 @@ Using the symbiotic relationships with *'Mother Earth'* as a path of discovery i
 
 ***People are deeply nourished by the process of creating wholeness.***
 
-***Healing environments*** allow one to draw emotional support from their settings through the Symbiotic Energy, the living energy of the space. One then *feels free* to move around and interact unselfconsciously, *to combine ones life with the life of the living* systems and elements within the built space. Achieved by bringing in a number of high quality visual and intuitive interactions among the bio-logical ecosystems and elements of a built space and its users.
+***Healing environments*** allow someone to draw emotional support from their settings through the Symbiotic Energy, the living energy of the space. One then *feels free* to move around and interact unselfconsciously, *to combine ones life with the life of the living* systems and elements within the built space. Achieved by bringing in a number of high quality visual and intuitive interactions among the bio-logical ecosystems and elements of a built space and its users.
 
 ![Open Space living room, stone floor](./vivariumGeorgeTownGallery/vivariumLivingRoom/vivariumGTLivingroomRelaxWeb.JPG)
 
@@ -57,19 +57,19 @@ New ways of thinking, seeing and feeling; relating to the Natural World can be e
 
 ***Discover what kind of meaning to give it ...***
 
-**Life is in motion, every day movement is a dance, what one sees, smells, hears, how one brings their consciousness to the experience, to a tree, ..., a bird in the garden, and then brings it into the body, that becomes the dance; the felt experience of the shared breath made visible.**
+**Life is in motion, every day movement is a dance, what someone sees, smells, hears, how one brings their consciousness to the experience, to a tree, ..., a bird in the garden, and then brings it into the body, that becomes the dance; the felt experience of the shared breath made visible.**
 
-*For it is impossible to form anything which has the character of nature by adding preformed parts.*
+*For it is impossible to form anything which has the character of its true nature by adding preformed parts.*
 
-**A ritual is a movement that has a purpose, to achieve something real in ones life. Dancing within life, creates a sense of reverence for the process.**
+**A ritual is a movement that has a purpose, to achieve something real in someones life. Dancing within life, creates a sense of reverence for the process.**
 
-*... starting over ... nothing lasts ... What one can have control over is how one copes with what happens, being adaptable to change. ...*
+*... starting over ... nothing lasts ... What someone can have control over is how one copes with what happens, being adaptable to change. ...*
 
 **Art is a way** ...  finding a common way to move forward through to nature ... finding the commonalities.
 
 ***Cure is a medical intervention, healing is becoming whole.***
 
-**Recapturing the integration between life and art/style, ... living the creativity is the most important thing one has. Dance the essence of things.** *The denial, the courage to confront, the release ... too flow again ...*
+**Recapturing the integration between Life and Style, art ... living the creativity is the most important thing someone has. Dance the essence of things.** *The denial, the courage to confront, the release ... too flow again ...*
 
 Urban environments are not nurturing environments in and of themselves, but with care, can be curated and cultivated into being so. Breaking the role of 'consumer culture,' of 'modern culture,' hanging up the 'cultural costume' and designing a living lifeStyle of ones own, connected through too nature. 
 
@@ -83,8 +83,7 @@ Going beyond, using the feelings to expand into the 'living' style of ones life 
 
 **Love;** to feel how things are, allowing the physical body too recognize itself as part of nature.
 
-***It's time to call home.***
-***To act and that act to transfer through nature.***
+***Calling home; Actions that transfer through nature.***
 
 ![Home](./vivariumGeorgeTownGallery/vivariumLivingRoom/vivariumLiving015Web.JPG)
 
@@ -101,9 +100,9 @@ Going beyond, using the feelings to expand into the 'living' style of ones life 
 
 #### *The Aim; to Harmonize the Natural World Within the Modern World.*
 
-To do it one need only let it happen in the mind.
+To do it someone need only let it happen in the mind.
 
-**Quality of Life**- *Mind, Body, Earth; Anima Mundi (world soul) Symbiotic Ecological Connections. Creating live and dynamic, open independent spaces that feel as they have existed long before ones arrival and will remain long after their depart.*
+**Quality of Life**- *Mind, Body, Earth; Anima Mundi (world soul) Symbiotic Ecological Connections. Creating live and dynamic, open independent spaces that feel as they have existed long before someones arrival and will remain long after their depart.*
 
 ![An Enchanted Sensibility To Create Change](./vivariumGeorgeTownGallery/VivariumDouble/moringaRoomCandid01Web.jpg)
 
@@ -113,13 +112,13 @@ To do it one need only let it happen in the mind.
 
 The mind is a medium within which the creative spark that jumps between the pattern and the world can happen. The individual, oneself is only the medium for this creative spark, not its originator.
 
-**Co-evolutionary ecosystems:** Re-establishing and encouraging healthy symbiotic connections with nature (Mother Earth) through sensory experiences; physical and biological interactions, movement, and hands-on meaningful activities. Allowing the brain, body and earth body to establish new, more productive patterns.
+**Co-evolutionary ecosystems:** Re-establishing and encouraging healthy symbiotic connections within nature (Mother Earth) through sensory experiences; physical and biological interactions, movement, and hands-on meaningful activities. Allowing the brain, body and earth body to establish new, more productive patterns.
 
 The individual is only the medium in which the patterns come to life, and of their own accord give birth to something new.
 
 ![Harvest](./vivariumGeorgeTownGallery/vivariumHarvest/vivariumLivingHarvest01Web.JPG)
 
-Inventing a new universe to live in, a universe of possibility. A place where people are continually discovering how they create their reality, and how they can change it.
+Inventing a new universe to live in, a universe of possibility. A place where someone is continually discovering how they create their reality, and how they can change it.
 
 #### Location
 
@@ -145,7 +144,7 @@ In October 2016 occupancy was privately secured for one of the 3rd floor corner 
 
 ![Dunn House Exterior](./vivariumGeorgeTownGallery/vivariumMis/vivariumPatioOutside01.jpg) 
 
-The unique design of the boutique residence offers each corner condo, three outside walls with large opening garden windows. Due to this design the Vivarium enjoyed a wonderful open feel and fantastic cross breeze.
+The unique design of the boutique residence offers each corner condo, three outside walls, all with large opening garden windows. Due to this design the Vivarium enjoyed a wonderful open feel, natural light from three sides and fantastic cross breeze.
 
 ![Vivarium Flow](./vivariumGeorgeTownGallery/vivariumLivingRoom/vivariumFlow.JPG)
 
@@ -153,7 +152,7 @@ A conscious decision to experience the smell, sound and feel of an A/C free envi
 
 ![relax living](./vivariumGeorgeTownGallery/vivariumLivingRoom/vivariumLiving01Web.JPG)
 
-Intentional privacy screening was installed allowing guests to keep bedroom doors open; too take advantage and contribute to the natural flow of fresh air. 
+*Intentional privacy screening* was installed allowing guests to keep bedroom doors open; too take advantage and contribute to the *natural flow of fresh air.* 
 
 ![Eco Window Covers](./vivariumGeorgeTownGallery/vivariumWindowHanging/vivariumGTWindowCoversDinning.jpg)
 
@@ -161,7 +160,7 @@ Intentional privacy screening was installed allowing guests to keep bedroom door
 
 ![Work](./vivariumGeorgeTownGallery/vivariumPatio/patioWorkVivarium.jpg)
 
-**The Private Medicinal Food Garden;** boasted over ***27 large 5 gallon (or larger) containers*** located outside all bedroom windows, as well as ***22+ clay pots*** on the balcony. Nearly all plants being edible, medicinal or functional.
+**The Private Medicinal Food Garden;** boasted over ***27 large 5 gallon (or larger) containers*** located outside all bedroom windows, as well as ***22+ clay pots*** on the balcony. ***Nearly all plants being edible, medicinal or functional.***
 
 ![passion flower](./vivariumGeorgeTownGallery/vivariumGarden/patioPassion.jpg)
 
@@ -169,17 +168,17 @@ Besides an assortment of herbs, aloe plants, and experimental seedlings like Dur
 
 ![hanging patio garden](./vivariumGeorgeTownGallery/vivariumPatio/kokedama03.jpg)
 
-It became difficult to catalog the ever changing garden. Growing a diverse garden is magical, cultivating pleasure, making it easy to enjoy the discovery process towards an Eco-responsible lifestyle. ***The gardens of the Vivarium, once established, provided (and often exceeded) all nutritional requirements for the host and co-host.*** (More details on plant selection and care will follow in a separate post.)
+It became difficult to catalog the ever changing garden. Growing a diverse garden is magical, cultivating pleasure, making it easy for someone to enjoy the discovery process towards an Eco-responsible lifestyle. ***The gardens of the Vivarium, once established, provided (and often exceeded) all nutritional requirements for the host and co-host.*** (More details on plant selection and care will follow in a separate post.)
 
 ![Kokedama](./vivariumGeorgeTownGallery/vivariumWindowHanging/vivariumKokedama01Web.jpg)
 
-***Gardens made for eating, smelling and touching flowers.***
+***Curated Gardens made for eating, smelling and touching flowers.***
 
 All rooms having several opening windows with large concrete window boxes provided ample space for gardens, easy access and beautiful ambience. The windows being covered in jute became gardens themselves and where home to over ***40+ bamboo hanging planters and Kokedama*** (苔玉, in English, literally "moss ball") a ball of soil, covered with moss, held by being wrapped in coconut cord on which ferns and other medicinal plants grew.
 
 ![Eco Deco](./vivariumGeorgeTownGallery/VivariumMasterBed/vivariumGTEcoDecoMaster01Web.JPG)
 
-Guests where offered garden care responsibilities and to participate in any activities that may have been happening at the time. These activities ranged from harvesting and processing moringa leaf and other medicinal plants, too biological earth care activities; in house organic refuse management, pro-biotic fruit enzyme and soil building production. Guests where also encouraged to use the in-house [Eco friendly body, home and earth care products.](../lifeStylesForChange/waterAlchemy.md) Bathrooms had bidet water hose installed and small cotton towels were provided in place of toilet paper.
+Guests where offered garden care responsibilities and to participate in any activities that may have been happening at the time. These activities ranged from harvesting and processing moringa leaf and other medicinal plants, too ***bio-logical earth care*** activities; in house organic refuse management, pro-biotic fruit enzyme and soil building production. Guests where also encouraged to use the in-house [Eco friendly body, home and earth care products.](../lifeStylesForChange/waterAlchemy.md) Bathrooms had bidet water hose installed and small cotton towels were provided in place of toilet paper.
 
 ![Master Bedroom](./vivariumGeorgeTownGallery/VivariumMasterBed/vivariumMasterBed01Web.JPG)
 
@@ -219,7 +218,7 @@ Living room was an open shared space, with beautiful cooling white marble floors
 
 ![Luxury is nature.](./vivariumGeorgeTownGallery/VivariumMasterBed/vivariumGTEcoDecoMasterWeb.JPG)
 
-**Queen master bedroom** featured a 4pc ensuite, queen size bed, custom made Polynesian style wood platform and dedicated evaporative cooler. Spacious, even with luggage and two guests in the room one could still easily enjoy yoga. 
+**Queen master bedroom** featured a 4pc ensuite, queen size bed, custom made Polynesian style wood platform and dedicated evaporative cooler. Spacious, even with luggage and two guests in the room someone could still easily enjoy yoga. 
 
 ![Master Bed](./vivariumGeorgeTownGallery/VivariumMasterBed/vivariumMasterBed.JPG)
 
@@ -279,7 +278,7 @@ This space was mostly shared with the host or co-host, all where quite strict ab
 
 #### Explore
 
-[**Guest Reviews**](./proofOfConceptReviews.md)
+**Guest Reviews Upon Request**
 
 Many special events took place at the Vivarium in many different forms, Salon Style Programs and Salon Circle Gatherings among them. A few occasions where artfully captured by a talented videographer and photographer, [Hakima.](https://www.lensculture.com/hakima-hamdi)
 
