@@ -9,7 +9,7 @@ date: 2021-02-28
 
 **The cultivation of a symbiotic habitat, that honors the individual as a *biological organism* in the *built environment*, within the *biophysical environment.***
 
-## *Becoming a part of the circle of life.* The *symbiotic relationships* and feelings generated between *Wo-Man and Mother Earth* (environment) are highlighted, not human and 'things'.
+## *Bio-Logical Earth Care, Living Soil To Soul. Becoming a part of the circle of life.* The *symbiotic relationships* and feelings generated between *Wo-Man and Mother Earth* (environment) are highlighted, not human and 'things'.
 
 ***Harvesting Knowledge:*** In order to discover patterns which are alive someone must always start with observation. Cataloging felt experiences, sources in the natural environment, of positive biological, physical and emotional states that humans experience then, recreating them in the built and cultivated environments to enhance emotional, mental, physical and biological health.
 
