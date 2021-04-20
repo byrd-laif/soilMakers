@@ -5,11 +5,14 @@ date: 2021-02-28
 
 # Bio*Philia* Living Design ~ Learning to live in the light of Nature.
 *An archaic revival, the sharing of a living language, learning how to discover patterns which are deep, and capable of generating life.*
+
 *Proof of concept: Oct 2016 - Jan 2020 (guest reviews available upon request)*
+
+## *Bio-Logical Earth Care, Living Soil To Soul.*
 
 **The cultivation of a symbiotic habitat, that honors the individual as a *biological organism* in the *built environment*, within the *biophysical environment.***
 
-## *Bio-Logical Earth Care, Living Soil To Soul. Becoming a part of the circle of life.* The *symbiotic relationships* and feelings generated between *Wo-Man and Mother Earth* (environment) are highlighted, not human and 'things'.
+### Becoming a part of the circle of life. The *symbiotic relationships* and feelings generated between *Wo-Man and Mother Earth* (environment) are highlighted, not human and 'things'.
 
 ***Harvesting Knowledge:*** In order to discover patterns which are alive someone must always start with observation. Cataloging felt experiences, sources in the natural environment, of positive biological, physical and emotional states that humans experience then, recreating them in the built and cultivated environments to enhance emotional, mental, physical and biological health.
 
