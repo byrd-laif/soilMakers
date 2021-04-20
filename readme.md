@@ -15,11 +15,11 @@
 
 [Real time on Matrix; Join the conversation in the interactive **Vivarium Salon**](https://matrix.to/#/!LSpVaMCiYQehpJONFF:matrix.org?via=matrix.org&via=t2bot.io&via=stux.chat)
 
-#### *Salon Circle;* A renewed culture of *Artful Conversation,* honoring someone's intention within a group process, were each idea is valued for itself, creating appreciated forums.
+### *Salon Circle;* A renewed culture of *Artful Conversation,* honoring someone's intention within a group process, were each idea is valued for itself, creating appreciated forums.
 
 At a time of ecological and economic precarity, *salon style* "wisdom/council circle", offer space for sharing feelings, rethinking and remaking symbiotic relations within the body of one-self, one-another and Mother Earth.
 
-#### *Salon Programs;* Designed to be Fun, Creative, Interactive and Resourceful.
+### *Salon Programs;* Designed to be Fun, Creative, Interactive and Resourceful.
 
 To awaken possibility and creative insight, refine the taste, and increase the knowledge of the participants through guided conversation organized around cultures and ideas reflective of the era in which someone lives.
 
