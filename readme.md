@@ -4,7 +4,7 @@
 
 ## *Bio-Logical Earth Care, Living Soil To Soul.*
 
-*An archaic revival, the sharing of a living language, learning how to discover patterns which are deep, and capable of generating life.*
+*An archaic revival, the sharing of a living language, learning how to discover patterns which are deep, and capable of generating life.* Giving someone the courage to change what must be altered, empathy to accept what cannot be helped, and the insight too know one from the other.
 
 [Live Blog On Matrix - Soil Seekers](https://matrix.to/#/!EwezVvVjpxKVCMIuRM:matrix.org?via=matrix.org&via=kde.org&via=converser.eu)
 
@@ -29,13 +29,13 @@ Love and labor are inseparable. *Love calls forth someone's deepest bravery.*
 
 ***Knowledge Harvesting,** designing a more desirable, fulfilling, life supporting; Ecologically Modern and Realistic Lifestyle.*
 
-*An integrated set of processes that allow the often hidden insight of human expertise to be captured and converted into specific actionable know-how that can be transferred to someone.*
+***Tools for understanding.** An integrated set of processes that allow the often hidden insight of human expertise to be captured and converted into specific actionable know-how that can be transferred to someone.*
 
 [**Life*Styles* For Change ~ Becoming a part of the circle of life.**](./lifeStylesForChange)
 
 #### *The Ecology Is The Economy.*
 
-***Conservation as a consequence of lifestyle/production.***
+***Producing something real. Conservation as a consequence of lifestyle/production.***
 
 **Projecting ones lifestyle into a future possibility, living the creative process, and designing a living that feeds the Soul and honors the Soil, that pays the Bills.**
 
@@ -81,13 +81,15 @@ The cultivation of a more attuned and responsive awareness of Wo-Mans ecological
 
 #### *Quality Of Life*
 
+It's ones alone, that's why it takes everyone. Doing the right thing.
+
 Loss of biodiversity and ecosystems are catastrophic, impacts are symbiotic and happen within the physical body through too *Mother Earth,* far into future generations.
 
 Today’s young generation are being handed the biggest challenge of all; ***'Cultivating Biodiversity'*** the symbiotic living ***'Fabric of Life'*** of this planet.
 
 Not addressing immediate needs is an insult to the young. Someone with passion, purpose and practical skills make the world a better place.
 
-**Someone is calling home; Someone is acting, and that act is transferring through to Mother Earth, soil to soul cultivating cultures that are healing.** Knowing what to do, and doing it.
+**Someone is calling home. Taking the steps; teaching what one needs to learn. Acting, and that act is transferring through to Mother Earth, soil to soul cultivating cultures that are healing.** Knowing what to do, and doing it.
 
 #### Explore
 
