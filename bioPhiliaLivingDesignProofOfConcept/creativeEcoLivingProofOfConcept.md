@@ -9,6 +9,7 @@ date: 2021-02-28
 *Proof of concept: Oct 2016 - Jan 2020 (guest reviews available upon request)*
 
 ## *Bio-Logical Body And Earth Care, Living Soil To Soul.*
+She does not ask herself what the world needs. She asks herself what makes her come alive, and then begins doing it; what the world needs is people who have come alive.
 
 **The cultivation of a symbiotic habitat, that honors the individual as a *biological organism* in the *built environment*, within the *biophysical environment.***
 
