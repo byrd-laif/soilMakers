@@ -1,6 +1,6 @@
 # *Soil Seekers ~ Cultivating Ecological Literacy*
 
-**A Living Legacy - Ecology As Art;* curating symbiotic relationships between Wo-Man, organisms and their environments.**
+**A Living Legacy - Ecology As Art; curating symbiotic relationships between Wo-Man, organisms and their environments.**
 
 ## *Bio-Logical Earth Care, Living Soil To Soul.*
 
