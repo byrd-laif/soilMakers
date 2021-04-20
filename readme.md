@@ -2,7 +2,7 @@
 
 **A Living Legacy - Ecology As Art; curating symbiotic relationships between Wo-Man, organisms and their environments.**
 
-## *Bio-Logical Earth Care, Living Soil To Soul.*
+## *Bio-Logical Body And Earth Care, Living Soil To Soul.*
 
 *An archaic revival, the sharing of a living language, learning how to discover patterns which are deep, and capable of generating life.* Giving someone the courage to change what must be altered, empathy to accept what cannot be helped, and the insight too know one from the other.
 

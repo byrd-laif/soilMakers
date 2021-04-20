@@ -14,7 +14,7 @@ date: 2021-03-09
 
 ![Growing Green](./soilToSoulFoodImages/frogPot.jpg)
 
-***Bio-Logical Earth Care, living soil to soul. Meaningful work; An Act that transfers through to nature, the microbial soil, symbiotically healing Wo-Man too the Womb of Mother Earth.***
+***Bio-logical body and earth care, living soil to soul. Meaningful work; An Act that transfers through to nature, the microbial soil, symbiotically healing Wo-Man too the Womb of Mother Earth.***
 
 ***A ritual; a participatory event done with purpose to achieve something real in ones life. To feel is to sense the mystery of life through nature, too allow change to occur while working in it.***
 

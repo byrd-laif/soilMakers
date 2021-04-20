@@ -8,7 +8,7 @@ date: 2021-02-28
 
 *Proof of concept: Oct 2016 - Jan 2020 (guest reviews available upon request)*
 
-## *Bio-Logical Earth Care, Living Soil To Soul.*
+## *Bio-Logical Body And Earth Care, Living Soil To Soul.*
 
 **The cultivation of a symbiotic habitat, that honors the individual as a *biological organism* in the *built environment*, within the *biophysical environment.***
 
