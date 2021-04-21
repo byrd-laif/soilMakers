@@ -4,14 +4,14 @@
 
 ## *Bio-Logical Body And Earth Care, Living Soil To Soul.*
 
-*An archaic revival, the sharing of a living language, learning how to discover patterns which are deep, and capable of generating life.* Giving someone the courage to change what must be altered, empathy to accept what cannot be helped, and the insight too know one from the other.
+*An archaic revival, the sharing of a living language, learning how to discover patterns which are deep, and capable of generating life.* Giving someone courage; for changing what must be altered, empathy for accepting what cannot be helped, and the insight for knowing one from another.
 
 [Live Blog On Matrix - Soil Seekers](https://matrix.to/#/!EwezVvVjpxKVCMIuRM:matrix.org?via=matrix.org&via=kde.org&via=converser.eu)
 
 ### *Vivarium Salon (Circle/Programs) ~ place of life*
-*Global Communities For Local Impact. Cross-pollinate and connect, sharing diverse feelings about the ecological future.*
+*Global Communities For Local Impacts. Cross-pollinate and connect, sharing diverse feelings about the ecological future.*
 
-**Vivarium Salon Culture; Bringing Life To Style. *Art,* as the vehicle for working through feelings of living in a damaged world, cultivating cultures that symbiotically connect, healing soil to soul.** Art is an expression, and an expression is a necessity.
+**Vivarium Salon Culture; Bringing Life To Style. *Art,* as the vehicle for working through feelings of living in a damaged world, cultivating cultures that symbiotically connect, healing soil to soul.**
 
 [Real time on Matrix; Join the conversation in the interactive **Vivarium Salon**](https://matrix.to/#/!LSpVaMCiYQehpJONFF:matrix.org?via=matrix.org&via=t2bot.io&via=stux.chat)
 
@@ -87,7 +87,7 @@ Loss of biodiversity and ecosystems are catastrophic, impacts are symbiotic and 
 
 Today’s young generation are being handed the biggest challenge of all; ***'Cultivating Biodiversity'*** the symbiotic living ***'Fabric of Life'*** of this planet.
 
-Not addressing immediate needs is an insult to the young. Someone with passion, purpose and practical skills make the world a better place.
+Not addressing immediate needs is an insult to the young. Individuals with passion, purpose and practical skills make the world a better place.
 
 **Someone is calling home. Taking the steps; teaching what one needs to learn. Acting, and that act is transferring through to Mother Earth, soil to soul cultivating cultures that are healing.** Knowing what to do, and doing it.
 
