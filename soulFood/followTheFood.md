@@ -20,7 +20,7 @@ date: 2021-03-09
 
 ***Investigating the nature of the physical body, through the earth body, allowing the style of movement to evolve out of the personal creative expression.***
 
-***The style of life; the integration of movement and feeling connected through Mother Earth.***
+***The Styling Of Life; the integration of movement and feeling connected through Mother Earth.***
 
 **Intelligence is not to see that nature is alive, its to recognize when its seen. The felt experience of being in organism; standing as a mirror before nature as its object. *Woman is natures destination; being endowed within by the spirit of selfless service, as such She can speak for Mother Earth.* Being subject of this land means caring for its next generations use.**
 
