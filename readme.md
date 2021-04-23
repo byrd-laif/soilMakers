@@ -4,7 +4,7 @@
 
 ## *Bio-Logical Body And Earth Care, Living Soil To Soul.*
 
-*An archaic revival, the sharing of a living language, learning how to discover patterns which are deep, and capable of generating life.* Giving someone courage; for changing what must be altered, empathy for accepting what cannot be helped, and the insight for knowing one from another.
+*An archaic revival, the sharing of a living language, learning how to discover patterns which are deep, and capable of generating life.* Giving someone courage; for changing what must be altered, empathy for accepting what cannot be helped, and the insight for knowing one from the other.
 
 [Live Blog On Matrix - Soil Seekers](https://matrix.to/#/!EwezVvVjpxKVCMIuRM:matrix.org?via=matrix.org&via=kde.org&via=converser.eu)
 
@@ -21,15 +21,19 @@ At a time of ecological and economic precarity, *salon style* "wisdom/council ci
 
 ### *Salon Programs;* Designed to be Fun, Creative, Interactive and Resourceful.
 
-To awaken possibility and creative insight, refine the taste, and increase the knowledge of the participants through guided conversation organized around cultures and ideas reflective of the era in which someone lives.
+To awaken possibility and creative insight, refine the taste, and increase the knowledge of the participants through guided conversation organized around cultures and ideas reflective of the era in which one lives.
 
 #### Accepting personal responsibility; truthful living. 
 
-Love and labor are inseparable. *Love calls forth someone's deepest bravery.*
+*Love and labor are inseparable, calling forth deep bravery from within.*
 
-***Knowledge Harvesting,** designing a more desirable, fulfilling, life supporting; Ecologically Modern and Realistic Lifestyle.*
+**Harvesting Knowledge.**
 
-***Tools for understanding.** An integrated set of processes that allow the often hidden insight of human expertise to be captured and converted into specific actionable know-how that can be transferred to someone.*
+*Designing a more desirable, fulfilling, life supporting; Ecologically Modern and Realistic Lifestyle.*
+
+**Tools For Understanding.**
+
+*An integrated set of processes that allow the often hidden insight of human expertise to be captured and converted into specific actionable know-how that can be transferred to someone.*
 
 [**Life*Styles* For Change ~ Becoming a part of the circle of life.**](./lifeStylesForChange)
 
