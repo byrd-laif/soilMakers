@@ -18,7 +18,7 @@ date: 2021-03-09
 
 ***A ritual; a participatory event done with purpose to achieve something real in ones life. To feel is to sense the mystery of life through nature, too allow change to occur while working in it.***
 
-***Investigating the nature of the physical body, through the earth body, allowing the style of movement to evolve out of the personal creative expression.***
+***Investigating the nature of the physical body, biologically connecting within the earth body, allowing the style of movement to evolve out of the personal creative expression.***
 
 ***The Styling Of Life; the integration of movement and feeling connected through Mother Earth.***
 
@@ -109,7 +109,7 @@ Alchemy can only truly be understood by gaining an understanding of how and why 
 
 **What is remarkable about the practices of the alchemist, is the willingness to let nature work without knowing exactly how nature works.**
 
-**Nature** - the ultimate non absolute ... where
+**Nature** - the ultimate non absolute ... where ...
 
 **beliefs** - can be manipulated by imagination and
 

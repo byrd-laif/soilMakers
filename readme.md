@@ -4,7 +4,11 @@
 
 ## *Bio-Logical Body And Earth Care, Living Soil To Soul.*
 
-*An archaic revival, the sharing of a living language, learning how to discover patterns which are deep, and capable of generating life.* Giving someone courage; for changing what must be altered, empathy for accepting what cannot be helped, and the insight for knowing one from the other.
+***Acting as curator, one who has the care of something.***
+
+*An Archaic Revival; the sharing of a living language, learning how to discover deep patterns, which are capable of generating life.*
+
+Giving someone courage; for changing what must be altered, empathy for accepting what cannot be helped, and the insight for knowing one from the other.
 
 [Live Blog On Matrix - Soil Seekers](https://matrix.to/#/!EwezVvVjpxKVCMIuRM:matrix.org?via=matrix.org&via=kde.org&via=converser.eu)
 
@@ -21,15 +25,15 @@ At a time of ecological and economic precarity, *salon style* "wisdom/council ci
 
 ### *Salon Programs;* Designed to be Fun, Creative, Interactive and Resourceful.
 
-To awaken possibility and creative insight, refine the taste, and increase the knowledge of the participants through guided conversation organized around cultures and ideas reflective of the era in which one lives.
+To awaken possibility and creative insight, refine the taste, and increase the knowledge of the participants through guided conversation organized around living cultures and ideas reflective of the era in which one lives.
 
-#### Accepting personal responsibility; truthful living. 
+#### Accepting personal responsibility; truthful living.
 
-*Love and labor are inseparable, calling forth deep bravery from within.*
+Designing for re-connectedness in contrast to designing for sustainability. *Love and labor are inseparable, calling forth deep bravery from within.*
 
 **Harvesting Knowledge.**
 
-*Designing a more desirable, fulfilling, life supporting; Ecologically Modern and Realistic Lifestyle.*
+*Cultivating a more desirable, fulfilling, life supporting; Ecologically Modern and Realistic Lifestyle.*
 
 **Tools For Understanding.**
 
@@ -39,9 +43,9 @@ To awaken possibility and creative insight, refine the taste, and increase the k
 
 #### *The Ecology Is The Economy.*
 
-***Producing something real. Conservation as a consequence of lifestyle/production.***
+***Producing Something Real.*** ~ **Conservation as a consequence of lifestyle/production.**
 
-**Projecting ones lifestyle into a future possibility, living the creative process, and designing a living that feeds the Soul and honors the Soil, that pays the Bills.**
+**Projecting ones lifestyle into a future possibility, connected with things that make living possible. Living the creative process of a lifestyle that feeds the Soul and honors the Soil, that pays the Bills.**
 
 **Examining ecologic behaviors.**
 
@@ -64,12 +68,15 @@ To awaken possibility and creative insight, refine the taste, and increase the k
 
 *An opportunity for the creation of something new and beautiful.*
 
-Being responsible stewards of the Earth means taking to heart the current planetary healing crisis. Having accepted this circumstance *responsibility* then means *ability,* to have a *creative response* to the situation as it is *now.* The *seeds of opportunity* and awareness, to take the moment and transform it into a better situation.
+Being responsible stewards of the Earth means taking to heart the current planetary healing crisis. Having accepted this circumstance *responsibility* then means *ability,* to have a *creative response* to the situation as it is *now.* 
+
+The *seeds of opportunity* and awareness, to take the moment and transform it into a better situation.
 
 #### Putting nature on the balance sheet.
-***Bio-Logical Earth Care System Services; Transforming an Environ-mental withdraw to an Environ-mental Deposit for the future. Mobilizing bio-resources (organic refuse) and converting them into bio-gold, Bio-Logical Earth Care Services & Commodities.***
 
-***Power as responsibility rather than domination.*** A radical sift from the 'dominator' Bio-Logical Warfare; built on guilt, fear and force. To an 'Eco-logical Partnership', *Bio-Logical Freedom; feeling free to swim in the rivers of Mother Earth without fear of reprisal.*
+***Bio-Logical Earth Care System Services; Transforming an Environ-mental withdraw to an Environ-mental Deposit for the future. Mobilizing bio-resources (organic refuse) and converting this into bio-gold, Bio-Logical Earth Care Services & Commodities.***
+
+***Power as responsibility rather than domination.*** A radical sift from 'dominator' Bio-Logical Warfare; built on guilt, fear and force. To an 'Eco-logical Partnership', *Bio-Logical Freedom; feeling free to swim in the rivers of Mother Earth without fear of reprisal.*
 
 *Partnership systems support mutually respectful and caring relations.* 
 
@@ -79,13 +86,13 @@ Being responsible stewards of the Earth means taking to heart the current planet
 
 *The ethics of ecology;* Learning to live in the light of Nature.
 
-The cultivation of a more attuned and responsive awareness of Wo-Mans ecological interconnections, recognizing feelings which are in touch with reality. Feelings provide a powerful way of finding out which lifestyle patterns are balanced and which are not. Someone's dream and the dream of the planet As One.
+The cultivation of a more attuned and responsive awareness of Wo-Mans ecological interconnections, recognizing feelings which are in touch with reality. Feelings provide a powerful way of finding out which lifestyle patterns are balanced and which are not.
 
-***The fundamental human birthright; Connecting with thing that make living possible.*** Being attracted to all that is alive and vital, the human tendency to relate with life and natural processes - ***Is The Expression Of A Bio-Logical Need.***
+***The fundamental human birthright; freely connecting with thing that make living possible.*** Being attracted to all that is alive and vital, the human tendency to relate with life and natural processes - ***Is The Expression Of A Bio-Logical Need.***
 
 #### *Quality Of Life*
 
-It's ones alone, that's why it takes everyone. Doing the right thing.
+It's ones alone, that's why it takes a common unity, a partnership of people doing the right thing.
 
 Loss of biodiversity and ecosystems are catastrophic, impacts are symbiotic and happen within the physical body through too *Mother Earth,* far into future generations.
 
@@ -93,7 +100,7 @@ Today’s young generation are being handed the biggest challenge of all; ***'Cu
 
 Not addressing immediate needs is an insult to the young. Individuals with passion, purpose and practical skills make the world a better place.
 
-**Someone is calling home. Taking the steps; teaching what one needs to learn. Acting, and that act is transferring through to Mother Earth, soil to soul cultivating cultures that are healing.** Knowing what to do, and doing it.
+**It's time to call home. To Act and for those acts to transfer through to Mother Earth, soil to soul cultivating cultures that are healing.** Knowing what to do, and doing it. Taking the steps, teaching what one needs to learn.
 
 #### Explore
 

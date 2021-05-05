@@ -10,9 +10,9 @@ date: 2018-08-13
 **Humans and Humus are Symbiotic Body and Soil Microbial Gardens. Life is not possible without Rich Fertile Soil.**
 *All components of an ecosystem are dependent on healthy soil for the system to function optimally.*
 
-***Soil Alchemy*** is the ongoing exploration of what happens when people connect head, heart, and body in the crucible of the soil. The ancient alchemists combined substances and used the influence of their own minds to study the transmutation of matter and of spirit. Connecting with thing that make living possible. Working in symbiotic partnership within Mother Earth too cultivate incredible discoveries. Observing the discursive mind become quieter as the intelligence of the heart comes to the foreground, feeling through nature an ancient *ecologically symbiotic consciousness* reemerges.
+***Soil Alchemy*** is the ongoing exploration of what happens when people connect head, heart, and body in the crucible of the soil. The ancient alchemists combined substances and used the influence of their own minds to study the transmutation of matter and of spirit. Working in symbiotic partnership within Mother Earth too cultivate incredible discoveries. Observing the discursive mind become quieter as the intelligence of the heart comes to the foreground, feeling through nature an ancient *ecologically symbiotic consciousness* reemerges.
 
-### Bokashi is *Soil Therapy;* the practice of spending time *cultivating fertile soil* for the purpose of enhancing whole health, *Bio-Logical Earth Care,* wellness, and happiness. A practice of *symbiotic connection* within the natural world and with each other; forgiveness, healing soil to soul.
+### Bokashi is *Soil Therapy;* forgiveness, healing soil to soul. Connecting with thing that make living possible, the practice of spending time *cultivating fertile soil* for the purpose of enhancing whole health; *Bio-logical Body And Earth Care,* wellness, and happiness. A practice of *symbiotic connection* within the natural world and with each other.
 
 A series of guided invitations, natural cycles, bring one into the present moment, opening the doors of symbiotic communication within the soil, waters, and landscapes explored. Biologically re-connecting, encounter not just the soil, but the many ways nature mirrors humans, encountering oneself, Soil to Soul Food.
 
@@ -26,7 +26,7 @@ Its easy to destroy something, the challenge is to create something meaningful. 
 
 ***Humility:*** The state of being Humble; Middle English, from Anglo-French, from Latin humilis low, humble, ***from humus earth;*** akin to Greek chthōn ***earth,*** chamai on ***the ground.***
 
-#### Soil Return - bokashi pro-biotic soil offers *humus soul food* to the field. Soil is the ultimate store of energy, it holds history in its molecules, vital energy that flows forever, transporting light energies.
+#### Soil Return - 30% of soil is fungal mass, bokashi pro-biotic soil offers *humus soul food* to the field. Soil is the ultimate store of energy, it holds history in its molecules, vital energy that flows forever, transporting light energies.
 
 **Humus is organic matter reduced until it can break down no further. In this state of evolution its appearance is unified. Commonly known as topsoil, humus is essential for all life. It creates fertile terrain for new growth, strengthens immunity and offers nutrients needed for soil organisms to regenerate.**
 
@@ -197,18 +197,18 @@ The liquid or Bokashi Tea that collects during the process must be removed on a 
 
 Bokashi tea has millions of microbes, an incredibly beneficial soil enhancer that can be used too accelerate decomposition in compost piles by pouring directly into the compost. The beneficial bacteria help to speed up the composting process, adding bokashi tea is a great way too add moisture to the compost pile, if needed. Use fresh bokashi tea for best results.
 
-Watering the garden... Bokashi tea is strong and must be diluted with water at a 100:1 ratio, 100 parts water to 1 part bokashi tea, approximately 2 teaspoons of tea for every liter of water.
+***Watering the garden: Bokashi tea is strong and must be diluted with water at a 100:1 ratio.*** 100 parts water to 1 part bokashi tea, approximately 2 teaspoons of tea for every liter of water.
 
 If the bokashi tea can not be used straight away, simply poor it down the drain. It is completely natural and will not pollute. The bokashi bacteria  help to unblock clogged drains and are beneficial to the water. Bokashi tea contributes to cleaning up waterways as the good bacteria compete with the bad bacteria.
 
 ![Checking on the bokashi tea.](./bokashiImages/bokashiWorkingBinsOpenTea_web.JPG)
 Checking on the bokashi tea. Bokashi bin is open to use lid as a trivet to catch any liquid as the bottom bin is emptied.
 
-Pour the concentrated Bokashi tea directly into kitchen and bathroom drains, toilets and septic systems. It will help prevent algae build-up and control odor.
+The concentrated Bokashi tea can also be deposited directly into kitchen and bathroom drains, toilets and septic systems. It will help prevent algae build-up and control odor.
 
 #### *Resources*
 
-**Private Bokashi Soil Building Lessons Available.**
+**Private Bokashi Soil Building Consultation Available.**
 
 [**Bokashi Soil Building Instructional Video Link YouTube**](https://youtu.be/6fonPhtzfSc)
 
