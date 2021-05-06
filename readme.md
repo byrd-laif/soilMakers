@@ -29,9 +29,11 @@ To awaken possibility and creative insight, refine the taste, and increase the k
 
 #### Accepting personal responsibility; truthful living.
 
-Designing for re-connectedness in contrast to designing for sustainability. *Love and labor are inseparable, calling forth deep bravery from within.*
+*Love and labor are inseparable, calling forth deep bravery from within.*
 
 **Harvesting Knowledge.**
+
+Designing for re-connectedness in contrast to designing for sustainability.
 
 *Cultivating a more desirable, fulfilling, life supporting; Ecologically Modern and Realistic Lifestyle.*
 
@@ -43,9 +45,9 @@ Designing for re-connectedness in contrast to designing for sustainability. *Lov
 
 #### *The Ecology Is The Economy.*
 
-***Producing Something Real.*** ~ **Conservation as a consequence of lifestyle/production.**
+**Conservation as a consequence of lifestyle/production.**
 
-**Projecting ones lifestyle into a future possibility, connected with things that make living possible. Living the creative process of a lifestyle that feeds the Soul and honors the Soil, that pays the Bills.**
+***Producing Something Real.*** Projecting ones lifestyle into a future possibility, connected with things that make living possible. Living the creative process of a lifestyle that feeds the Soul and honors the Soil, that pays the Bills.
 
 **Examining ecologic behaviors.**
 
@@ -60,7 +62,7 @@ Designing for re-connectedness in contrast to designing for sustainability. *Lov
 
 ## Cultivating a *Bio-logical Economy* creates the market for an *Ecologically Sustainable* future.
 
-### *A mutually beneficial; 'symbiotic legacy venture' with Mother Earth. An Eco system that operates to deliver a positive bio-logical impact, symbiotically profiting through seeding the soil, the Womb of Mother Earth.*
+### *A mutually beneficial; 'symbiotic legacy venture' with Mother Earth. An Eco system that operates to deliver a positive bio-logical impact; symbiotically profiting through seeding the soil, the Womb of Mother Earth.*
 
 #### *Cultivating The Mother Tree;* An archaic revival of Wo-Mans Gaian connection through honoring the feminine. Soil Sisters cultivate an ally; bonding with Mother Earth as *'The Live And Dynamic Co-evolutionary Partner'* in the shaping of the set, setting and the process.
 
@@ -92,7 +94,7 @@ The cultivation of a more attuned and responsive awareness of Wo-Mans ecological
 
 #### *Quality Of Life*
 
-It's ones alone, that's why it takes a common unity, a partnership of people doing the right thing.
+It's ones alone, that's why it takes a common unity, a partnership of people doing the right things.
 
 Loss of biodiversity and ecosystems are catastrophic, impacts are symbiotic and happen within the physical body through too *Mother Earth,* far into future generations.
 
