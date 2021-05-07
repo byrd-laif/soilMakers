@@ -123,6 +123,6 @@ Not addressing immediate needs is an insult to the young. Individuals with passi
 - [The Alchemy Of Food Preservation - Cultivating Pro-biotic Functional Foods](./lifeStylesForChange/lactoFermentbBasicMethod.md)
 
 #### Connect ~ Ask a question or book an event ...
-[Contact Direct on Matrix](https://matrix.to/#/!ibYXXCkubbZiWtkmhX:matrix.org?via=matrix.org)
+[Contact Direct on Matrix @bird:matrix.org or connect in the Vivarium Salon](https://matrix.to/#/!LSpVaMCiYQehpJONFF:matrix.org)
 
 ![Bokashi Program](./eventGallery/bokashiProgram_web.jpg)
