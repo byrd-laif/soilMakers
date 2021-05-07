@@ -215,6 +215,6 @@ The concentrated Bokashi tea can also be deposited directly into kitchen and bat
 [**Day in the life of an apartment garden**](https://youtu.be/O5F19PW9HsQ)
 
 #### Connect ~ Ask a question or book an event ...
-[Contact Direct on Matrix](https://matrix.to/#/!ibYXXCkubbZiWtkmhX:matrix.org?via=matrix.org)
+Contact directly on Matrix @bird:matrix.org or [Connect in the Vivarium Salon](https://matrix.to/#/!LSpVaMCiYQehpJONFF:matrix.org)
 
 ![bokashi workshop](../eventGallery/anna6.jpg)

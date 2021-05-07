@@ -106,4 +106,5 @@ This flora inhibits the growth of diarrhea related bacteria such as Shigella, Sa
 
 Fermented foods are highly nutritious. Fermentation improves bio-availability of minerals present in food. As they go through their cycle of succession, microbial cultures create B-vitamins including folic acid, niacin, thiamin, and biotin. Lactobacilli creates omega 3 fatty acids, essential for cell membrane and immune system function. Lacto-fermentation can also remove toxins from food. 
 
-
+#### Connect ~ Ask a question or book an event ...
+Contact directly on Matrix @bird:matrix.org or [Connect in the Vivarium Salon](https://matrix.to/#/!LSpVaMCiYQehpJONFF:matrix.org)
