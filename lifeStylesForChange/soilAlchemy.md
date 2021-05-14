@@ -210,7 +210,7 @@ The concentrated Bokashi tea can also be deposited directly into kitchen and bat
 
 **Private Bokashi Soil Building Consultation Available.**
 
-[**Bokashi Soil Building Instructional Video Link YouTube**](https://youtu.be/6fonPhtzfSc)
+[**Bokashi Soil Building Instructional Video Link Vimeo**](https://vimeo.com/549116720)
 
 [**Day in the life of an apartment garden**](https://youtu.be/O5F19PW9HsQ)
 
