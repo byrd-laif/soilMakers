@@ -181,7 +181,7 @@ Aerobic, a ferment with oxygen is usually done with a cloth lid. Anaerobic, with
 
 **Private Kefir milk/cheese making lessons available.**
 
-[*Enjoy this short artistic video as an example of the fun to be had.*](https://youtu.be/K2hxoO9hcVY)
+[*Enjoy this short artistic video as an example of the fun to be had.*](https://vimeo.com/549196359)
 
 #### Connect ~ Ask a question or book an event ...
 Contact directly on Matrix @bird:matrix.org or [Connect in the Vivarium Salon](https://matrix.to/#/!LSpVaMCiYQehpJONFF:matrix.org)

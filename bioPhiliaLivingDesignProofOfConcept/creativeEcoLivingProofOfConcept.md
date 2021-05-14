@@ -288,11 +288,11 @@ Many special events took place at the Vivarium in many different forms, Salon St
 
 [***Vivarium Salon Circle*** ~ Singing bowl gathering video compilation](https://youtu.be/7zCHFSwraeY)
 
-[Private Tibetan singing bowl session at the ***Vivarium Salon ~ place of life***](https://youtu.be/ypoLV3G9vRU)
+[Private Tibetan singing bowl session at the ***Vivarium Salon ~ place of life***](https://vimeo.com/549198724)
 
-[**Day in the life of an apartment garden**](https://youtu.be/O5F19PW9HsQ)
+[**Day in the life of an apartment garden**](https://vimeo.com/549190610)
 
-[**Bokashi Soil Building Instructional Video Link YouTube**](https://youtu.be/6fonPhtzfSc)
+[**Bokashi Soil Building Instructional Video Link Viemo**](https://vimeo.com/549116720)
 
 #### Connect ~ Ask a question or book an event ...
 [Contact Direct on Matrix](https://matrix.to/#/!ibYXXCkubbZiWtkmhX:matrix.org?via=matrix.org)
