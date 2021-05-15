@@ -212,11 +212,12 @@ The concentrated Bokashi tea can also be deposited directly into kitchen and bat
 
 [**Bokashi Soil Building Instructional**](https://vimeo.com/549116720)
 
-[**Day in the life of an apartment garden**](https://vimeo.com/549190610)
+[**Day in the life of the Vivarium apartment garden**](https://vimeo.com/549190610)
 
 #### Connect ~ Ask a question or book an event ... 
-**Private Bokashi Soil Building Consultation Available.**
 
-Contact directly on Matrix @bird:matrix.org or [Connect in the Vivarium Salon](https://matrix.to/#/!LSpVaMCiYQehpJONFF:matrix.org)
+*Private Bokashi Soil Building Consultation Available.*
+
+Contact Anna directly on Matrix @bird:matrix.org or [Connect in the Vivarium Salon](https://matrix.to/#/!LSpVaMCiYQehpJONFF:matrix.org)
 
 ![bokashi workshop](../eventGallery/anna6.jpg)

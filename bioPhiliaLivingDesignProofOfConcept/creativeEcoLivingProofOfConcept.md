@@ -1,17 +1,20 @@
 ---
-title: Bio-philia Living Design - Proof of concept Urban Creative Eco-living.
+title: Vivarium ~ place of life - Proof of concept Urban Creative Eco-living.
 date: 2021-02-28
 ---
 
-# Bio*Philia* Living Design ~ Learning to live in the light of Nature.
-*An archaic revival, the sharing of a living language, learning how to discover patterns which are deep, and capable of generating life.*
+# Bio*Philia* Living: Designing For Connection
+***Bio-logical Body And Earth Care; Learning to live in the light of Nature.***
+
+***An archaic revival, the sharing of a living language, learning how to discover patterns which are deep, and capable of generating life.***
 
 *Proof of concept: Oct 2016 - Jan 2020 (guest reviews available upon request)*
 
 ## *Bio-Logical Body And Earth Care, Living Soil To Soul.*
+
 She does not ask herself what the world needs. She asks herself what makes her come alive, and then begins doing it; what the world needs is people who have come alive.
 
-**The cultivation of a symbiotic habitat, that honors the individual as a *biological organism* in the *built environment*, within the *biophysical environment.***
+**The cultivation of a mutually symbiotic habitat, that honors the individual as a *biological organism* in the *built environment*, within the *biophysical environment.***
 
 ### Becoming a part of the circle of life. The *symbiotic relationships* and feelings generated between *Wo-Man and Mother Earth* (environment) are highlighted, not human and 'things'.
 
@@ -21,7 +24,7 @@ Civilized living; life-giving and life-sustaining with a high degree of refineme
 
 ![Floor chairs on platform and patio.](./vivariumGeorgeTownGallery/vivariumLivingRoom/vivariumLiving02Web.JPG)
 
-***Curated to allow enjoyment of nature as freely as possible.***
+***Curated to allow the enjoyment of connecting with nature as freely as possible.***
 
 Everyone has an inherit need to connect to nature and other biotic forms due to their *Evolutionary Dependence* on it for *Survival* and *Personal Fulfillment.* This is the shared human birthright; the biological need to connect with things that make living possible.
 
@@ -35,7 +38,7 @@ It is when ones feelings are perfectly in touch with the reality of the forces i
 
 ***Cross Pollinate; being the gardener, an open hand, bringing seed to soil, the womb of Mother Earth, the beginnings of life, love and endings. Each bloom in the doing of this most holy act.***
 
-Using the symbiotic relationships with *'Mother Earth'* as a path of discovery into the unique characteristics of intentional independent habitats, that not only can influence a spontaneous therapeutic act but can also be used by the designer to open; they are dynamic, adaptable and can be experienced, *generate feelings*, offering a *safe space* and the possibility for trying out inventive solutions and transformation.
+Using the biological relationships with *'Mother Earth'* as a path of discovery into the unique characteristics of intentional independent habitats, that not only can influence a spontaneous therapeutic act but can also be used by the designer to open; they are dynamic, adaptable and can be experienced, *generate feelings*, offering a *safe space* and the possibility for trying out inventive solutions and transformation.
 
 #### *Psychobiology, where mind meets matter. The interaction between bio-logical systems and behavior.*
 
@@ -43,7 +46,7 @@ Using the symbiotic relationships with *'Mother Earth'* as a path of discovery i
 
 ***People are deeply nourished by the process of creating wholeness.***
 
-***Healing environments*** allow someone to draw emotional support from their settings through the Symbiotic Energy, the living energy of the space. One then *feels free* to move around and interact unselfconsciously, *to combine ones life with the life of the living* systems and elements within the built space. Achieved by bringing in a number of high quality visual and intuitive interactions among the bio-logical ecosystems and elements of a built space and its users.
+***Healing environments*** allow someone to draw emotional support from their settings through the Symbiotic Energy, the living energy of the space. One then *feels free* to move around and interact unselfconsciously, to connect and *combine ones life with the life of the living* systems and elements within the built space. Achieved by bringing in a number of high quality visual and intuitive interactions among the bio-logical ecosystems and elements of a built space and its users.
 
 ![Open Space living room, stone floor](./vivariumGeorgeTownGallery/vivariumLivingRoom/vivariumGTLivingroomRelaxWeb.JPG)
 
@@ -55,7 +58,7 @@ New ways of thinking, seeing and feeling; relating to the Natural World can be e
 
 ![Peek](./vivariumGeorgeTownGallery/vivariumLivingRoom/vivariumGTLivingroomPeekweb.jpg)
 
-#### *Authentic Living Design; creating symbiotic living environments that support, restore and regenerate both the physical body and the environment (earth body) have positive effects on the health of a population as a whole, not just the individual within the living design.*
+#### *Authentic Living Design; creating connected living environments that support, restore and regenerate both the physical body and the environment (earth body) have positive effects on the health of a population as a whole, not just the individual within the living design.*
 
 **Just as the ancients danced to call upon the spirits in nature, Wo-Man too, can dance to find the spirits within oneself that have long been buried and forgotten.**
 
@@ -63,7 +66,7 @@ New ways of thinking, seeing and feeling; relating to the Natural World can be e
 
 **Life is in motion, every day movement is a dance, what someone sees, smells, hears, how one brings their consciousness to the experience, to a tree, ..., a bird in the garden, and then brings it into the body, that becomes the dance; the felt experience of the shared breath made visible.**
 
-*For it is impossible to form anything which has the character of its true nature by adding preformed parts.*
+*Preserving the character of somethings true nature is achieved through connection.*
 
 **A ritual is a movement that has a purpose, to achieve something real in someones life. Dancing within life, creates a sense of reverence for the process.**
 
@@ -75,7 +78,7 @@ New ways of thinking, seeing and feeling; relating to the Natural World can be e
 
 **Recapturing the integration between Life and Style, art ... living the creativity is the most important thing someone has. Dance the essence of things.** *The denial, the courage to confront, the release ... too flow again ...*
 
-Urban environments are not nurturing environments in and of themselves, but with care, can be curated and cultivated into being so. Breaking the role of 'consumer culture,' of 'modern culture,' hanging up the 'cultural costume' and designing a living lifeStyle of ones own, connected through too nature. 
+Urban environments are not nurturing environments in and of themselves, but with care, can be curated and cultivated into being so. Breaking the role of 'consumer culture,' of 'modern culture,' hanging up the 'cultural costume' and designing a living lifeStyle of ones own, symbiotically connected through too nature. 
 
 ![Authentic Living](./vivariumGeorgeTownGallery/vivariumLivingRoom/livingRoomCandidCafeWeb.jpg)
 
@@ -87,16 +90,17 @@ Going beyond, using the feelings to expand into the 'living' style of ones life 
 
 **Love;** to feel how things are, allowing the physical body too recognize itself as part of nature.
 
-***Calling home; Actions that transfer through nature.***
+***Calling home; Actions that biologically transfer through nature.***
 
 ![Home](./vivariumGeorgeTownGallery/vivariumLivingRoom/vivariumLiving015Web.JPG)
 
-***Welcome to the***
+***Contact made manifest.***
+
 #### *Vivarium ~ place of life*
 
-*An interactive space curated to explore, learn, reflect, ... on how Wo-Man interact, impact and live in their personal environments; homes, work, travel, ..., spaces.*
+*An interactive space curated to connect; explore, learn, reflect, ... on how people interact, impact and live within personal environments; homes, work, travel, ..., spaces.*
 
-**Vivarium**- (Latin, literally for "place of life"; plural: vivaria or vivariums) is an area, usually enclosed, for keeping and raising animals (in this case Wo-Man and biological ecosystems) or plants for observation or research. Often, a portion of the ecosystem for a particular species is simulated on a smaller scale, with controls for environmental conditions.
+**Vivarium**- (Latin, literally for "place of life"; plural: vivaria or vivariums) is an area, usually enclosed, for keeping and raising animals or (in this case People and biological ecosystems) plants for observation or research. Often, a portion of the ecosystem for a particular species is simulated on a smaller scale, with controls for environmental conditions.
 
 **The way out is a personal responsibility, the way out is in the soil. When the soil is healed the soul follows.**
 
@@ -106,7 +110,7 @@ Going beyond, using the feelings to expand into the 'living' style of ones life 
 
 To do it someone need only let it happen in the mind.
 
-**Quality of Life**- *Mind, Body, Earth; Anima Mundi (world soul) Symbiotic Ecological Connections. Creating live and dynamic, open independent spaces that feel as they have existed long before someones arrival and will remain long after their depart.*
+**Quality of Life**- *Mind, Body, Earth; Anima Mundi (world soul) Mutually Symbiotic Ecological Connections. Creating live and dynamic, open independent spaces that feel as they have existed long before someones arrival and will remain long after their depart.*
 
 ![An Enchanted Sensibility To Create Change](./vivariumGeorgeTownGallery/VivariumDouble/moringaRoomCandid01Web.jpg)
 
@@ -182,7 +186,7 @@ All rooms having several opening windows with large concrete window boxes provid
 
 ![Eco Deco](./vivariumGeorgeTownGallery/VivariumMasterBed/vivariumGTEcoDecoMaster01Web.JPG)
 
-Guests where offered garden care responsibilities and to participate in any activities that may have been happening at the time. These activities ranged from harvesting and processing moringa leaf and other medicinal plants, too ***bio-logical earth care*** activities; in house organic refuse management, pro-biotic fruit enzyme and soil building production. Guests where also encouraged to use the in-house [Eco friendly body, home and earth care products.](../lifeStylesForChange/waterAlchemy.md) Bathrooms had bidet water hose installed and small cotton towels were provided in place of toilet paper.
+Guests where offered garden care responsibilities and to participate in any activities that may have been happening at the time. These activities ranged from harvesting and processing moringa leaf and other medicinal plants, too ***bio-logical body and earth care*** activities; in house organic refuse management, pro-biotic fruit enzyme and soil building production. Guests where also encouraged to use the in-house [Eco friendly body, home and earth care products.](../lifeStylesForChange/waterAlchemy.md) Bathrooms had bidet water hose installed and small cotton towels were provided in place of toilet paper.
 
 ![Master Bedroom](./vivariumGeorgeTownGallery/VivariumMasterBed/vivariumMasterBed01Web.JPG)
 
@@ -295,7 +299,7 @@ Many special events took place at the Vivarium in many different forms, Salon St
 [**Bokashi Soil Building Instructional Video Link Viemo**](https://vimeo.com/549116720)
 
 #### Connect ~ Ask a question or book an event ...
-[Contact Direct on Matrix](https://matrix.to/#/!ibYXXCkubbZiWtkmhX:matrix.org?via=matrix.org)
+[Contact Anna Direct on Matrix](https://matrix.to/#/!ibYXXCkubbZiWtkmhX:matrix.org?via=matrix.org)
 
 ![Vivarium Garden](./vivariumGeorgeTownGallery/vivariumGarden/dunnGardenBasil.jpg)
 

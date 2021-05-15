@@ -102,7 +102,7 @@ Today’s young generation are being handed the biggest challenge of all; ***'Cu
 
 Not addressing immediate needs is an insult to the young. Individuals with passion, purpose and practical skills make the world a better place.
 
-**It's time to call home. To Act and for those acts to transfer through to Mother Earth, soil to soul cultivating cultures that are healing.** Knowing what to do, and doing it. Taking the steps, teaching what one needs to learn.
+**It's time to call home. To Act and for those acts to connect and transfer through too Mother Earth, soil to soul cultivating cultures that are healing.** Knowing what to do, and doing it. Taking the steps, teaching what one needs to learn.
 
 #### Explore
 
@@ -110,7 +110,9 @@ Not addressing immediate needs is an insult to the young. Individuals with passi
 
 [**BioPhilia Living Design - *Proof of Concept* Urban Sustainable Eco-Living**](./bioPhiliaLivingDesignProofOfConcept/creativeEcoLivingProofOfConcept.md)
 
-#### [Programs/Resources](./lifeStylesForChange)
+[**Anna ~ Soil Seekers on Vimeo**](https://vimeo.com/soilseekers)
+
+#### [Salon Programs/Resources](./lifeStylesForChange)
 
 - [Soil Alchemy - The Soil Rehabilitation Miracle Of Bokashi](./lifeStylesForChange/soilAlchemy.md)
 
@@ -122,9 +124,7 @@ Not addressing immediate needs is an insult to the young. Individuals with passi
 
 - [Soil Seekers / Vivarium Salon Circle Elements, Etiquette and Governance](./lifeStylesForChange/vivariumSalonCircleElements.md)
 
-[**Soil Seekers on Vimeo**](https://vimeo.com/soilseekers)
-
 #### Connect ~ Ask a question or book an event ...
-Contact directly on Matrix @bird:matrix.org or [Connect in the Vivarium Salon](https://matrix.to/#/!LSpVaMCiYQehpJONFF:matrix.org)
+Contact Anna directly on Matrix @bird:matrix.org or [Connect in the Vivarium Salon](https://matrix.to/#/!LSpVaMCiYQehpJONFF:matrix.org)
 
 ![Bokashi Program](./eventGallery/bokashiProgram_web.jpg)
