@@ -19,13 +19,13 @@ Giving someone courage; for changing what must be altered, empathy for accepting
 
 [Real time on Matrix; Join the conversation in the interactive **Vivarium Salon**](https://matrix.to/#/!LSpVaMCiYQehpJONFF:matrix.org?via=matrix.org&via=t2bot.io&via=stux.chat)
 
-### *Salon Circle;* A renewed culture of *Artful Conversation,* honoring someone's intention within a group process, were each idea is valued for itself, creating appreciated forums.
+### *Salon Circle:* A renewed culture of *Artful Conversation;* honoring someone's intention within a group process, were each idea is valued for itself, creating appreciated forums.
 
-At a time of ecological and economic precarity, *salon style* "wisdom/council circle", offer space for sharing feelings, rethinking and remaking symbiotic relations within the body of one-self, one-another and Mother Earth.
+At a time of ecological and economic precarity, *salon style* "wisdom/council circle" offer space for connecting; sharing ideas and feelings, rethinking and remaking mutually symbiotic relations within the body of one-self, one-another and Mother Earth.
 
 ### *Salon Programs;* Designed to be Fun, Creative, Interactive and Resourceful.
 
-To awaken possibility and creative insight, refine the taste, and increase the knowledge of the participants through guided conversation organized around living cultures and ideas reflective of the era in which one lives.
+To awaken possibility and creative insight, refine the taste, and increase the knowledge of the participants, through guided meaningful conversation, organized around living cultures and ideas reflective of the era in which one lives.
 
 #### Accepting personal responsibility; truthful living.
 
@@ -47,7 +47,7 @@ Designing for re-connectedness in contrast to designing for sustainability.
 
 **Conservation as a consequence of lifestyle/production.**
 
-***Producing Something Real.*** Projecting ones lifestyle into a future possibility, connected with things that make living possible. Living the creative process of a lifestyle that feeds the Soul and honors the Soil, that pays the Bills.
+***Producing Something Real.*** Projecting ones lifestyle into a future possibility, connected with things that make living possible. Living the creative process of a lifestyle that feeds the Soul and honors the Soil, that pays all the 'bills'.
 
 **Examining ecologic behaviors.**
 
@@ -66,7 +66,7 @@ Designing for re-connectedness in contrast to designing for sustainability.
 
 #### *Cultivating The Mother Tree;* An archaic revival of Wo-Mans Gaian connection through honoring the feminine. Soil Sisters cultivate an ally; bonding with Mother Earth as *'The Live And Dynamic Co-evolutionary Partner'* in the shaping of the set, setting and the process.
 
-***Creating co-Evolutionary Leaders;*** Revolutionary Eco-logical Actions that are transferable through to nature. ***Bio-Logical Earth Care Systems*** provide the environment for an enlightening, sustainable future.
+***Creating co-Evolutionary Leaders;*** Revolutionary Eco-logical Actions that connect and are transferable through to nature. ***Bio-Logical Body and Earth Care Systems*** provide the environment for an enlightened, sustainable future.
 
 *An opportunity for the creation of something new and beautiful.*
 
@@ -76,7 +76,7 @@ The *seeds of opportunity* and awareness, to take the moment and transform it in
 
 #### Putting nature on the balance sheet.
 
-***Bio-Logical Earth Care System Services; Transforming an Environ-mental withdraw to an Environ-mental Deposit for the future. Mobilizing bio-resources (organic refuse) and converting this into bio-gold, Bio-Logical Earth Care Services & Commodities.***
+***Bio-Logical Body and Earth Care System Services; Transforming an Environ-mental withdraw to an Environ-mental Deposit for the future. Mobilizing bio-resources (organic refuse) and converting this into bio-gold, Bio-Logical Body and Earth Care Services & Commodities.***
 
 ***Power as responsibility rather than domination.*** A radical sift from 'dominator' Bio-Logical Warfare; built on guilt, fear and force. To an 'Eco-logical Partnership', *Bio-Logical Freedom; feeling free to swim in the rivers of Mother Earth without fear of reprisal.*
 
