@@ -4,9 +4,9 @@
 
 ## *Bio-Logical Body And Earth Care, Living Soil To Soul.*
 
-***Acting as curator, one who has the care of something.***
-
 *An Archaic Revival; the sharing of a living language, learning how to discover deep patterns, which are capable of generating life.*
+
+***Acting as curator, someone who has the care of something.***
 
 Giving someone courage; for changing what must be altered, empathy for accepting what cannot be helped, and the insight for knowing one from the other.
 
