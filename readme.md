@@ -58,7 +58,7 @@ Designing for re-connectedness in contrast to designing for sustainability.
 **This is about honesty and responsibility. Honesty; admitting to what is. Responsibility; not blaming someone else.**
 
 # *Soil Sisters ~ Eco-Logical Movement And Enterprise*
-*Directly addressing the bio-logical effects of climate change.*
+*Directly addressing the bio-logical effects of climate change through lifestyle.*
 
 ## Cultivating a *Bio-logical Economy* creates the market for an *Ecologically Sustainable* future.
 
