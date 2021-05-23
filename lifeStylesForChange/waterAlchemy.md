@@ -15,7 +15,7 @@ date: 2018-08-13
 ![Enzyme Spa](./enzymeImages/enzymeWoodHempBrush.JPG)
 
 ### *Water Alchemy - Recycling organic materials through living organisms naturally purifies water.*
-***Water Alchemy*** is the ongoing exploration of what happens when people connect head, heart, and body in the crucible of the water. The ancient alchemists combined substances and used the influence of their own minds to study the transmutation of matter and of spirit. Working in symbiotic partnership within Mother Earth too cultivate incredible discoveries. Observing the discursive mind become quieter as the intelligence of the heart comes to the foreground, feeling through nature an ancient *ecologically symbiotic consciousness* reemerges.
+***Water Alchemy*** is the ongoing exploration of what happens when someone connects head, heart, and body in the crucible of the water. The ancient alchemists combined substances and used the influence of their own minds to study the transmutation of matter and of spirit. Working in symbiotic partnership within Mother Earth too cultivate incredible discoveries. Observing the discursive mind become quieter as the intelligence of the heart comes to the foreground, feeling through nature an ancient *ecologically symbiotic consciousness* reemerges.
 
 #### Pro-biotic Eco-enzyme is *Water Therapy;* forgiveness, healing water to soul. Connecting with things that make living possible, the practice of spending time *cultivating living healing water* for the purpose of enhancing whole health, *Bio-logical Body And Earth Care,* wellness, and happiness. A practice of *symbiotic connection* within the natural world and with each other.
 
