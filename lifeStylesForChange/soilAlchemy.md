@@ -58,7 +58,7 @@ Bokashi conserves water in the ground, nutrients are less prone to leaching and 
 
 **Bokashi is therapeutic, providing essential nutrients to rebuild soil organic matter content, and re-establish microbial populations. Benefits directly associated with improved organic matter content are: enhanced water infiltration and moisture-holding, aggregation, aeration, nutrient supply for plant growth, and microbial activity.**
 
-***Bokashi Is A Solution To Some Very Big Problems.***
+***Bokashi Is A Solution To Some Very Big Problems; Regenerative Urba-culture, healing from the inside out.***
 
 **Responsible management of organic kitchen remnants can reduce 70% of the total waste production and reduce the bad gases produced during organic decomposition, all while revitalizing the environment by creating bio-active humus soil and pro-biotic liquid fertilizer to combat the negative use of toxic chemicals and pollutants.**
 
@@ -191,7 +191,7 @@ Apartment bokashi setup, adding kitchen remnants.
 ![Bokashi soil building system in action.](./bokashiImages/bokashiSoilBuildingSystem_web.jpg)
 Bokashi soil building system in action.
 
-#### *Bokashi Tea*
+#### *Bokashi Probiotic Tea* the ultimate gold standard in organic liquid fertilizer.
 
 The liquid or Bokashi Tea that collects during the process must be removed on a regular basis. Bokashi tea contains nutrients from the fermented food remnants, alive with micro-organisms, a rich pro-biotic natural fertilizer.
 
