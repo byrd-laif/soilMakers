@@ -52,7 +52,7 @@ Fermentation naturally produces Lactic Acid Bacteria (LAB), one of the most well
 
 ***One handful of healthy soil contains more micro-organisms than there are people living on earth.***
 
-Bokashi conserves water in the ground, nutrients are less prone to leaching and run-off because the organic nutrients literally are the soil after Bokashi fermentation is complete. Humus soils are not as water soluble and less prone to leaching away with watering and run-off after rains.
+Bokashi conserves water in the ground, humus soils are not as water soluble, nutrients are less prone to leaching and run-off because the organic nutrients literally are the soil after Bokashi fermentation is complete.
 
 #### *Benefits of Bokashi*
 
