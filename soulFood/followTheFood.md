@@ -117,7 +117,7 @@ Alchemy can only truly be understood by gaining an understanding of how and why 
 
 **Nature is a great Book, an open book to be read by putting nature through processes which reveal not only its inner mechanics, but the inner mechanics of the artifex, the person working upon the material.**
 
-*Experience alchemy ~ the secret tradition of the redemption of spirit from matter.*
+*Experience Alchemy ~ The Healing Spirit Of Nature; the secret tradition of the redemption of spirit from matter.*
 
 Shall She Continue ...
 

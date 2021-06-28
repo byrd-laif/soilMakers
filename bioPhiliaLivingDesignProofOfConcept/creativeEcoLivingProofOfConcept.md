@@ -3,16 +3,15 @@ title: Vivarium ~ place of life - Proof of concept Urban Creative Eco-living.
 date: 2021-02-28
 ---
 
-# Bio*Philia* Living: Designing For Connection
-***Bio-logical Body And Earth Care; Learning to live in the light of Nature.***
+# Bio*Philia* Living: Designing For Connection; The Healing Spirit Of Nature.
 
-***An archaic revival, the sharing of a living language, learning how to discover patterns which are deep, and capable of generating life.***
+***An archaic revival; the sharing of a living language, learning how to discover patterns which are deep and capable of generating life.***
 
 *Proof of concept: Oct 2016 - Jan 2020 (guest reviews available upon request)*
 
-## *Bio-Logical Body And Earth Care, Living Soil To Soul.*
+## *Bio-Logical Body And Earth Care. Learning to live in the light of Nature, Soil To Soul.*
 
-She does not ask herself what the world needs. She asks herself what makes her come alive, and then begins doing it; what the world needs is people who have come alive.
+She does not ask herself what the world needs. She asks herself what makes her come alive, and then begins doing it; what the world needs is authenticity, someone who has come alive.
 
 **The cultivation of a mutually symbiotic habitat, that honors the individual as a *biological organism* in the *built environment*, within the *biophysical environment.***
 
