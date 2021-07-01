@@ -8,7 +8,7 @@
 
 ***Acting as curator, someone who has the care of something.***
 
-Giving someone courage; for changing what must be altered, empathy for accepting what cannot be helped, and the insight for knowing one from the other.
+Giving someone courage; for changing what must be altered, empathy for accepting what cannot be helped, and the insight for knowing one from the other. *Love and labor are inseparable, calling forth deep bravery from within.*
 
 [Live Blog On Matrix - Soil Seekers](https://matrix.to/#/!EwezVvVjpxKVCMIuRM:matrix.org?via=matrix.org&via=kde.org&via=converser.eu)
 
@@ -21,6 +21,7 @@ Giving someone courage; for changing what must be altered, empathy for accepting
 
 ### *Salon Circle:* A renewed culture of *Artful Conversation;* honoring someone's intention within a group process, were each idea is valued for itself, creating appreciated forums.
 
+**Harvesting Knowledge.**
 At a time of ecological and economic precarity, *salon style* "wisdom/council circle" offer space for connecting; sharing ideas and feelings, rethinking and remaking mutually symbiotic relations within the body of one-self, one-another and Mother Earth.
 
 ### *Salon Programs;* Designed to be Fun, Creative, Interactive and Resourceful.
@@ -28,18 +29,10 @@ At a time of ecological and economic precarity, *salon style* "wisdom/council ci
 To awaken possibility and creative insight, refine the taste, and increase the knowledge of the participants, through guided meaningful conversation, organized around living cultures and ideas reflective of the era in which one lives.
 
 #### Accepting personal responsibility; truthful living.
-
-*Love and labor are inseparable, calling forth deep bravery from within.*
-
-**Harvesting Knowledge.**
-
-Designing for re-connectedness in contrast to designing for sustainability.
-
-*Cultivating a more desirable, fulfilling, life supporting; Ecologically Modern and Realistic Lifestyle.*
+Authenticity - Designing for re-connectedness in contrast to designing for sustainability.
 
 **Tools For Understanding.**
-
-*An integrated set of processes that allow the often hidden insight of human expertise to be captured and converted into specific actionable know-how that can be transferred to someone.*
+*An integrated set of processes that allow the often hidden insight of human expertise to be captured and converted into specific actionable know-how that can be transferred to someone. Cultivating a more desirable, fulfilling, life supporting; Ecologically Modern and Realistic Lifestyle.*
 
 [**Life*Styles* For Change ~ Becoming a part of the circle of life.**](./lifeStylesForChange)
 
