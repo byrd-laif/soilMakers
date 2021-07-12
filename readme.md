@@ -6,7 +6,7 @@
 
 *An Archaic Revival; the sharing of a living language, learning how to discover patterns which are deep and capable of generating life.*
 
-***Acting as curator, someone who has the care of something.***
+***Acting As Curator; someone who has the care of something.***
 
 Giving someone courage; for changing what must be altered, empathy for accepting what cannot be helped, and the insight for knowing one from the other. *Love and labor are inseparable, calling forth deep bravery from within.*
 
@@ -34,13 +34,20 @@ Authenticity - Designing for re-connectedness in contrast to designing for susta
 **Tools For Understanding.**
 *An integrated set of processes that allow the often hidden insight of human expertise to be captured and converted into specific actionable know-how that can be transferred to someone. Cultivating a more desirable, fulfilling, life supporting; Ecologically Modern and Realistic Lifestyle.*
 
+#### The fundamental human birthright; *freely connecting with thing that make living possible.*
+Being attracted to all that is alive and vital, the human tendency to relate with life and natural processes - ***Is The Expression Of A Bio-Logical Need.***
+
+*Partnership systems support mutually respectful and caring relations.* 
+
+***Reconciliation; forgiveness, free to turn and question: Where does someone go from here?***
+
 [**Life*Styles* For Change ~ Becoming a part of the circle of life.**](./lifeStylesForChange)
 
 #### *The Ecology Is The Economy.*
 
 **Conservation as a consequence of lifestyle/production.**
 
-***Producing Something Real.*** Projecting ones lifestyle into a future possibility, connected with things that make living possible. Living the creative process of a lifestyle that feeds the Soul and honors the Soil, that pays all the 'bills'.
+***Producing Something Real.*** Projecting ones lifestyle into a future possibility, connected with things that make living possible. Living the creative process, cultivating a lifestyle that feeds the Soul and honors the Soil- that pays all the 'bills'.
 
 **Examining ecologic behaviors.**
 
@@ -55,11 +62,11 @@ Authenticity - Designing for re-connectedness in contrast to designing for susta
 
 ## Cultivating a *Bio-logical Economy* creates the market for an *Ecologically Sustainable* future.
 
+***Creating co-Evolutionary Leaders;*** Revolutionary Eco-logical Actions that connect and are transferable through to nature. ***Bio-Logical Body and Earth Care Systems*** provide the environment for an enlightened, sustainable future.
+
 ### *A mutually beneficial; 'symbiotic legacy venture' with Mother Earth. An Eco system that operates to deliver a positive bio-logical impact; symbiotically profiting through seeding the soil, the Womb of Mother Earth.*
 
 #### *Cultivating The Mother Tree;* An archaic revival of Wo-Mans Gaian connection through honoring the feminine. Soil Sisters cultivate an ally; bonding with Mother Earth as *'The Live And Dynamic Co-evolutionary Partner'* in the shaping of the set, setting and the process.
-
-***Creating co-Evolutionary Leaders;*** Revolutionary Eco-logical Actions that connect and are transferable through to nature. ***Bio-Logical Body and Earth Care Systems*** provide the environment for an enlightened, sustainable future.
 
 *An opportunity for the creation of something new and beautiful.*
 
@@ -71,19 +78,13 @@ The *seeds of opportunity* and awareness, to take the moment and transform it in
 
 ***Bio-Logical Body and Earth Care System Services; Transforming an Environ-mental withdraw to an Environ-mental Deposit for the future. Mobilizing bio-resources (organic refuse) and converting this into bio-gold, Bio-Logical Body and Earth Care Services & Commodities.***
 
-***Power as responsibility rather than domination.*** A radical sift from 'dominator' Bio-Logical Warfare; built on guilt, fear and force. To an 'Eco-logical Partnership', *Bio-Logical Freedom; feeling free to swim in the rivers of Mother Earth without fear of reprisal.*
-
-*Partnership systems support mutually respectful and caring relations.* 
-
-***Reconciliation; forgiveness, free to turn and question: Where does someone go from here?***
+***Power as responsibility rather than domination.*** A radical sift from Bio-Logical Warfare; built on guilt, fear and force to an 'Eco-logical Partnership'. ***Bio-Logical Freedom**; feeling free to swim in the rivers of Mother Earth without fear of reprisal.*
 
 #### *Environ-Mental Health*
 
 *The ethics of ecology;* Learning to live in the light of Nature.
 
 The cultivation of a more attuned and responsive awareness of Wo-Mans ecological interconnections, recognizing feelings which are in touch with reality. Feelings provide a powerful way of finding out which lifestyle patterns are balanced and which are not.
-
-***The fundamental human birthright; freely connecting with thing that make living possible.*** Being attracted to all that is alive and vital, the human tendency to relate with life and natural processes - ***Is The Expression Of A Bio-Logical Need.***
 
 #### *Quality Of Life*
 
