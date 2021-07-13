@@ -10,6 +10,9 @@ date: 2018-08-13
 **Humans and Humus are Symbiotic Body and Soil Microbial Gardens. Life is not possible without Rich Fertile Soil.**
 *All components of an ecosystem are dependent on healthy soil for the system to function optimally.*
 
+Ninety percent of cells contained in the human body are microbes. Microbes produce hormones that regulate growth, stress
+response, and immunity in plants and animals.
+
 ***Soil Alchemy*** is the ongoing exploration of what happens when someone connects head, heart, and body in the crucible of the soil. The ancient alchemists combined substances and used the influence of their own minds to study the transmutation of matter and of spirit. Working in symbiotic partnership within Mother Earth too cultivate incredible discoveries. Observing the discursive mind become quieter as the intelligence of the heart comes to the foreground, feeling through nature an ancient *ecologically symbiotic consciousness* reemerges.
 
 ### Bokashi is *Soil Therapy;* forgiveness, healing soil to soul. Connecting with things that make living possible, the practice of spending time *cultivating fertile soil* for the purpose of enhancing whole health; *Bio-logical Body And Earth Care,* wellness, and happiness. A practice of *symbiotic connection* within the natural world and with each other.
@@ -18,15 +21,15 @@ A series of guided invitations, natural cycles, bring one into the present momen
 
 **Soil life is fragile,** an estimated one third of global soils are degraded. Moreover, each year an estimated 24 billion tonnes of fertile soil are lost due to erosion alone.
 
-Building up, maintaining and conserving the fertility of different soil types around the world in the face of diverse climatic conditions is the biggest challenge to agriculture today. The key to soil fertility lies mostly in the humus content of soils.
+Building up, maintaining and conserving the fertility of different soil types around the world in the face of diverse climatic conditions is the biggest challenge of agriculture today. The key to soil fertility lies mostly in the humus content of soils.
 
-#### *Ancestral Healing; Cultivating cultures that heal cultivates compassion for mother earth, an act of humility.* Connecting to Mother Earth through her art, the soil.
+#### *Ancestral Healing; Cultivating cultures that heal cultivates compassion for mother earth, an act of humility.* Connecting to Mother Earth through her art, soil alchemy. Soil is the ultimate store of energy, it holds history in its molecules, vital energy that flows forever, transporting light energies.
 
-Its easy to destroy something, the challenge is to create something meaningful. To bring something back to the Village that people can live from.
+Its easy to destroy something, the challenge is to create something meaningful. To bring something back to the Village that someone can live from.
 
 ***Humility:*** The state of being Humble; Middle English, from Anglo-French, from Latin humilis low, humble, ***from humus earth;*** akin to Greek chthōn ***earth,*** chamai on ***the ground.***
 
-#### Soil Return - 30% of soil is fungal mass, bokashi pro-biotic soil offers *humus soul food* to the field. Soil is the ultimate store of energy, it holds history in its molecules, vital energy that flows forever, transporting light energies.
+#### Soil Return - 30% of soil is fungal mass, bokashi pro-biotic soil offers *humus soul food* to the field. Microbes and other soil organisms are capable of producing all the nutrients plants need.
 
 **Humus is organic matter reduced until it can break down no further. In this state of evolution its appearance is unified. Commonly known as topsoil, humus is essential for all life. It creates fertile terrain for new growth, strengthens immunity and offers nutrients needed for soil organisms to regenerate.**
 

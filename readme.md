@@ -24,7 +24,7 @@ Giving someone courage; for changing what must be altered, empathy for accepting
 **Harvesting Knowledge.**
 At a time of ecological and economic precarity, *salon style* "wisdom/council circle" offer space for connecting; sharing ideas and feelings, rethinking and remaking mutually symbiotic relations within the body of one-self, one-another and Mother Earth.
 
-### *Salon Programs;* Designed to be Fun, Creative, Interactive and Resourceful.
+### *Salon Programs:* Designed to be Fun, Creative, Interactive and Resourceful.
 
 To awaken possibility and creative insight, refine the taste, and increase the knowledge of the participants, through guided meaningful conversation, organized around living cultures and ideas reflective of the era in which one lives.
 
