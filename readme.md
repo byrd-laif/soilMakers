@@ -1,12 +1,12 @@
-# *Soil Seekers ~ Cultivating Ecological Literacy*
+# *Soil Makers ~ Cultivating Ecological Literacy*
 
 **A Living Legacy - Ecology As Art; curating symbiotic relationships between Wo-Man, organisms and their environments.**
 
 ## *Bio-Logical Body And Earth Care, Healing Soil To Soul.*
 
-*An Archaic Revival; the sharing of a living language, learning how to discover patterns which are deep and capable of generating life.*
+***Acting As Curator; someone who has the care of something.*** Claiming ones relationship with Mother Nature, cultivating ones own legacy so future generations have a place to call Home. The new go(l)d is biomass.
 
-***Acting As Curator; someone who has the care of something.***
+*An Archaic Revival; the sharing of a living language, learning how to discover patterns which are deep and capable of generating life.*
 
 Giving someone courage; for changing what must be altered, empathy for accepting what cannot be helped, and the insight for knowing one from the other. *Love and labor are inseparable, calling forth deep bravery from within.*
 
