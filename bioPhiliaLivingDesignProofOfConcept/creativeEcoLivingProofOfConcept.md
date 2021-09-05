@@ -9,7 +9,7 @@ date: 2021-02-28
 
 *Proof of concept: Oct 2016 - Jan 2020 (guest reviews available upon request)*
 
-## *Designing Through Spirit; Using curiosity and imagination, the æsthetics of a natural law.*
+## *Designing Through Spirit; Using curiosity, intuition and imagination, the æsthetics of a natural law.*
 
 **A response to the challenge of her Life; reForming a Relationship With Mother Earth, An Act Of Surrender.**
 
