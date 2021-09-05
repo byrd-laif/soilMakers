@@ -9,7 +9,9 @@ date: 2021-02-28
 
 *Proof of concept: Oct 2016 - Jan 2020 (guest reviews available upon request)*
 
-## *Bio-Logical Body And Earth Care. Learning to live in the light of Nature, Soil To Soul.*
+## *Designing Through Spirit; Using curiosity and imagination, the æsthetics of a natural law.*
+
+**A response to the challenge of her Life; reForming a Relationship With Mother Earth, An Act Of Surrender.**
 
 She does not ask herself what the world needs. She asks herself what makes her come alive, and then begins doing it; what the world needs is authenticity, someone who has come alive.
 
@@ -17,9 +19,11 @@ She does not ask herself what the world needs. She asks herself what makes her c
 
 ### Becoming a part of the circle of life. The *symbiotic relationships* and feelings generated between *Wo-Man and Mother Earth* (environment) are highlighted, not human and 'things'.
 
-***Harvesting Knowledge:*** In order to discover patterns which are alive someone must always start with observation. Cataloging felt experiences, sources in the natural environment, of positive biological, physical and emotional states that humans experience then, recreating them in the built and cultivated environments to enhance emotional, mental, physical and biological health.
+***Harvesting Knowledge:*** Discovering patterns which are alive, through cultivating the ability of observation, curiosity and intuition. Cataloging felt experiences, sources in the natural environment, of positive biological, physical and emotional states that humans experience then, recreating them in the built and cultivated environments to enhance connection of the emotional, mental, physical and biological health.
 
-Civilized living; life-giving and life-sustaining with a high degree of refinement and comfort. Adaptable to all practical needs of life within an attractive built environment.
+#### Living Within The Circle Of Life.
+
+Meaningful living; life-giving and life-sustaining with a high degree of refinement and comfort. Adaptable to all practical needs of life within an attractive built environment.
 
 ![Floor chairs on platform and patio.](./vivariumGeorgeTownGallery/vivariumLivingRoom/vivariumLiving02Web.JPG)
 
@@ -27,7 +31,9 @@ Civilized living; life-giving and life-sustaining with a high degree of refineme
 
 Everyone has an inherit need to connect to nature and other biotic forms due to their *Evolutionary Dependence* on it for *Survival* and *Personal Fulfillment.* This is the shared human birthright; the biological need to connect with things that make living possible.
 
-It is when ones feelings are perfectly in touch with the reality of the forces in their environment, that someone can begin to see the patterns which are capable of generating life.
+It is when ones feelings are in touch with the reality of the forces in their environment, that someone can begin to see the patterns which are capable of generating life.
+
+In the process of accepting the truth the deepest passion was reveled. It was in fact a part of the soul that was healed in this process. The compassion of Mother Earth to forgive. And Give. Only when compassion is present will the heart revel the truth, for only then one is capable of facing the truth.
 
 ![*Patio garden bird.*](./vivariumGeorgeTownGallery/vivariumPatio/vivariumGTPatioBirdweb.JPG)
 
