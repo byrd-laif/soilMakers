@@ -23,7 +23,9 @@ A series of guided invitations, natural cycles, bring one into the present momen
 
 Building up, maintaining and conserving the fertility of different soil types around the world in the face of diverse climatic conditions is the biggest challenge of agriculture today. The key to soil fertility lies mostly in the humus content of soils.
 
-#### *Ancestral Healing; Cultivating cultures that heal cultivates compassion for mother earth, an act of humility.* Connecting to Mother Earth through her art, soil alchemy. Soil is the ultimate store of energy, it holds history in its molecules, vital energy that flows forever, transporting light energies.
+Cultivating Probiotic Soil that’s the color of a 70% cocoa chocolate bar, free of chemicals and teeming with beneficial bacteria, protozoa, fungi and nematodes. Without them, the soil is dead. Chemical fertilizers are like feeding the body highly processed foods, empty calories that may fill one up in the short term but leave one vulnerable to disease and other problems over time. The life of the soil is part of the life of the plants grown in it, part of the body of the person tending it and part of the body eating from it all.
+
+#### *Ancestral Healing; Cultivating cultures that heal cultivates compassion for mother earth, an act of humility.* Connecting to Mother Earth through her art, soil alchemy . Soil is the ultimate store of energy, it holds history in its molecules, vital energy that flows forever, transporting light energies.
 
 Its easy to destroy something, the challenge is to create something meaningful. To bring something back to the Village that someone can live from.
 

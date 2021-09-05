@@ -13,13 +13,13 @@ date: 2021-03-20
 
 ### *Conservation as a consequence of production.* [Pro-biotic Eco-enzyme](./waterAlchemy.md) plant based essences are high quality nourishing and gently therapeutic skin care treatments that produce results, *soul food* for the micro-biome, skin care and earth care excellence.
 
-#### *Refinement of the ancestral senses; soil to soul, connecting with things that make living possible, created by harnessing the trans-formative power of fermentation to illuminate the beauty within.
+#### *Refinement of the ancestral senses; from the physical body through to the earth body, connecting with things that make living possible, created by harnessing the trans-formative power of fermentation to illuminate the beauty within, soil to soul.
 
 ***Radical self care that biologically re-connects.** A way to heal and support the physical body that transfers through too nature, the earth body. Remarkably enough the Skin, the rivers and all that come in contact, the birds ... the earth soil, find natural healing benefits from using pro-biotic fermented essences.*
 
 ***A pro-biotic rich super food for the micro-biome of the whole body, soil to soul.***
 
-Its remarkable ability to increase the nutrient value of food has led to vast in-depth and broader studies of fermentation. Home fermenting enables one to re-discover and understand the multiple benefits of this archaic ***goddess technology.***
+Its remarkable ability to increase the nutrient value of food has led to vast in-depth and broader studies of fermentation. Home fermenting enables one to re-discover and understand the multiple benefits of this living archaic ***goddess technology.***
 
 #### *Since ancient times, Women have explored the skillful ways of beauty through nature.*
 
@@ -266,7 +266,9 @@ Shrubs can be enjoyed straight, or used as a base for vibrant cocktails, mocktai
 
 The American version of the shrub has its origins in 17th century England where vinegar was used as an alternative to citrus juices in the preservation of berries and other fruits. Fruit preserves made in this fashion were themselves known as shrubs, and this practice carried over to colonial America. By the 19th century, typical American recipes for shrubs used vinegar with berries, left to infuse anywhere from overnight up to several days; afterwards, the fruit would be strained out and the remaining liquid could be mixed with a sweetener and then reduced to make a syrup. The sweet-and-sour syrup would then be mixed with either water or soda water and served as a soft drink, or used in alcoholic cocktails. Shrubs eventually fell out of popularity with the advent of home refrigeration.
 
-Traditional Fermented shrub or tonic can be used in the same way and in place of traditional bitters.
+Traditional Fermented shrub or tonic can be used in the same way and in place of traditional bitters. Brewing in traditional way is superior to using manufactured vinegars.
+
+
  
 
 

@@ -47,7 +47,7 @@ Being attracted to all that is alive and vital, the human tendency to relate wit
 
 **Conservation as a consequence of lifestyle/production.**
 
-***Producing Something Real.*** Projecting ones lifestyle into a future possibility, connected with things that make living possible. Living the creative process, cultivating a lifestyle that feeds the Soul and honors the Soil- that pays all the 'bills'.
+***Producing Something Meaningful.*** Projecting ones lifestyle into a future possibility, connected with things that make living possible. Living the creative process; honoring the Soul through cultivating a lifestyle that feeds the Soil - that pays all the 'bills'.
 
 **Examining ecologic behaviors.**
 
@@ -82,7 +82,7 @@ The *seeds of opportunity* and awareness, to take the moment and transform it in
 
 #### *Environ-Mental Health*
 
-*The ethics of ecology;* Learning to live in the light of Nature.
+*The ethics of ecology;* Learning to Live in the light of Nature.
 
 The cultivation of a more attuned and responsive awareness of Wo-Mans ecological interconnections, recognizing feelings which are in touch with reality. Feelings provide a powerful way of finding out which lifestyle patterns are balanced and which are not.
 
