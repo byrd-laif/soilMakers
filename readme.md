@@ -2,50 +2,52 @@
 
 **A Living Legacy - Ecology As Art; curating symbiotic relationships between Wo-Man, organisms and their environments.**
 
-## *Bio-Logical Body And Earth Care, Healing Soil To Soul.*
+## *Bio-Logical Body And Earth Care; Connecting And Healing Soil To Soul.*
 
-***Acting As Curator; someone who has the care of something.*** Claiming ones relationship with Mother Nature, cultivating ones own legacy so future generations have a place to call Home. The new go(l)d is biomass.
+***Acting As Curator; someone who has the care of something.*** Claiming ones relationship with Mother Nature, cultivating ones own legacy so future generations have a place to call Home.
 
-*An Archaic Revival; the sharing of a living language, learning how to discover patterns which are deep and capable of generating life.*
+*Art,* as the vehicle for working through feelings of living in a damaged world, cultivating cultures that symbiotically connect, healing soil to soul.
 
 Giving someone courage; for changing what must be altered, empathy for accepting what cannot be helped, and the insight for knowing one from the other. *Love and labor are inseparable, calling forth deep bravery from within.*
 
+**Lifestyles For Change; Bringing Life To Style.** 
+
+*An Archaic Revival; the sharing of a living language, learning how to discover patterns which are deep and capable of generating life.*
+
+### The fundamental human birthright; *freely connecting with thing that make living possible.*
+Being attracted to all that is alive and vital, the human tendency to relate with life and natural processes - ***Is The Expression Of A Bio-Logical Need.*** 
+
+***Reconciliation; forgiveness, free to turn and question: Where does someone go from here?***
+
 [Live Blog On Matrix - Soil Seekers](https://matrix.to/#/!EwezVvVjpxKVCMIuRM:matrix.org?via=matrix.org&via=kde.org&via=converser.eu)
 
-### *Vivarium Salon (Circle/Programs) ~ place of life*
-*Global Communities For Local Impacts. Cross-pollinate and connect, sharing diverse feelings about the ecological future.*
+### *Vivarium Salon ~ place of life*
+*Global Communities For Local Impacts.*
 
-**Vivarium Salon Culture; Bringing Life To Style. *Art,* as the vehicle for working through feelings of living in a damaged world, cultivating cultures that symbiotically connect, healing soil to soul.**
+**Vivarium Salon Culture; Cross-pollinate and connect, sharing diverse feelings about the ecological future.**
+
+**At a time of ecological and economic precarity, *salon style* sharing offers space for connecting; sharing ideas and feelings, rethinking and remaking mutually symbiotic relations within the body of one-self, one-another and Mother Earth.**
 
 [Real time on Matrix; Join the conversation in the interactive **Vivarium Salon**](https://matrix.to/#/!LSpVaMCiYQehpJONFF:matrix.org?via=matrix.org&via=t2bot.io&via=stux.chat)
 
 ### *Salon Circle:* A renewed culture of *Artful Conversation;* honoring someone's intention within a group process, were each idea is valued for itself, creating appreciated forums.
 
 **Harvesting Knowledge.**
-At a time of ecological and economic precarity, *salon style* "wisdom/council circle" offer space for connecting; sharing ideas and feelings, rethinking and remaking mutually symbiotic relations within the body of one-self, one-another and Mother Earth.
+Awakening possibility and creative insight; refine the taste, and increase knowledge through guided meaningful conversation, organized around living cultures and ideas reflective of the era in which one lives.
 
 ### *Salon Programs:* Designed to be Fun, Creative, Interactive and Resourceful.
 
-To awaken possibility and creative insight, refine the taste, and increase the knowledge of the participants, through guided meaningful conversation, organized around living cultures and ideas reflective of the era in which one lives.
-
-#### Accepting personal responsibility; truthful living.
-Authenticity - Designing for re-connectedness in contrast to designing for sustainability.
-
 **Tools For Understanding.**
 *An integrated set of processes that allow the often hidden insight of human expertise to be captured and converted into specific actionable know-how that can be transferred to someone. Cultivating a more desirable, fulfilling, life supporting; Ecologically Modern and Realistic Lifestyle.*
-
-#### The fundamental human birthright; *freely connecting with thing that make living possible.*
-Being attracted to all that is alive and vital, the human tendency to relate with life and natural processes - ***Is The Expression Of A Bio-Logical Need.***
-
-*Partnership systems support mutually respectful and caring relations.* 
-
-***Reconciliation; forgiveness, free to turn and question: Where does someone go from here?***
 
 [**Life*Styles* For Change ~ Becoming a part of the circle of life.**](./lifeStylesForChange)
 
 #### *The Ecology Is The Economy.*
 
 **Conservation as a consequence of lifestyle/production.**
+
+#### Accepting personal responsibility; truthful living.
+Authenticity - Designing for re-connectedness in contrast to designing for sustainability.
 
 ***Producing Something Meaningful.*** Projecting ones lifestyle into a future possibility, connected with things that make living possible. Living the creative process; honoring the Soul through cultivating a lifestyle that feeds the Soil - that pays all the 'bills'.
 
@@ -64,7 +66,7 @@ Being attracted to all that is alive and vital, the human tendency to relate wit
 
 ***Creating co-Evolutionary Leaders;*** Revolutionary Eco-logical Actions that connect and are transferable through to nature. ***Bio-Logical Body and Earth Care Systems*** provide the environment for an enlightened, sustainable future.
 
-### *A mutually beneficial; 'symbiotic legacy venture' with Mother Earth. An Eco system that operates to deliver a positive bio-logical impact; symbiotically profiting through seeding the soil, the Womb of Mother Earth.*
+### *A mutually beneficial; 'symbiotic legacy venture' withih Mother Earth. An Eco system that operates to deliver a positive bio-logical impact; symbiotically profiting through seeding the soil, the Womb of Mother Earth.*
 
 #### *Cultivating The Mother Tree;* An archaic revival of Wo-Mans Gaian connection through honoring the feminine. Soil Sisters cultivate an ally; bonding with Mother Earth as *'The Live And Dynamic Co-evolutionary Partner'* in the shaping of the set, setting and the process.
 
@@ -79,6 +81,8 @@ The *seeds of opportunity* and awareness, to take the moment and transform it in
 ***Bio-Logical Body and Earth Care System Services; Transforming an Environ-mental withdraw to an Environ-mental Deposit for the future. Mobilizing bio-resources (organic refuse) and converting this into bio-gold, Bio-Logical Body and Earth Care Services & Commodities.***
 
 ***Power as responsibility rather than domination.*** A radical sift from Bio-Logical Warfare; built on guilt, fear and force to an 'Eco-logical Partnership'. ***Bio-Logical Freedom**; feeling free to swim in the rivers of Mother Earth without fear of reprisal.*
+
+*Partnership systems support mutually respectful and caring relations.*
 
 #### *Environ-Mental Health*
 
