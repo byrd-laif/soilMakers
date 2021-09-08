@@ -7,19 +7,20 @@ date: 2021-02-28
 
 ***An archaic revival; the sharing of a living language, learning how to discover patterns which are deep and capable of generating life.***
 
-*Proof of concept: Oct 2016 - Jan 2020 (guest reviews available upon request)*
-
 ## *Designing Through Spirit; Using curiosity, intuition and imagination, the æsthetics of a natural law.*
 
 **A response to the challenge of her Life; reForming a Relationship With Mother Earth, An Act Of Surrender.**
 
-She does not ask herself what the world needs. She asks herself what makes her come alive, and then begins doing it; what the world needs is authenticity, someone who has come alive.
+*Proof of concept: Oct 2016 - Jan 2020 (guest reviews available upon request)*
+In the process of accepting the truth the deepest passion was reveled. It was in fact a part of the soul that was healed in this process. The compassion of Mother Earth to forgive. And Give. Only when compassion is present will the heart revel the truth, for only then one is capable of facing the truth.
 
-**The cultivation of a mutually symbiotic habitat, that honors the individual as a *biological organism* in the *built environment*, within the *biophysical environment.***
+### Conservation As A Consequence Of Lifestyle. 
 
-### Becoming a part of the circle of life. The *symbiotic relationships* and feelings generated between *Wo-Man and Mother Earth* (environment) are highlighted, not human and 'things'.
+**Regenerative urban living; The cultivation of a mutually symbiotic habitat, that honors the individual as a *biological organism* in the *built environment*, within the *biophysical environment.***
 
-***Harvesting Knowledge:*** Discovering patterns which are alive, through cultivating the ability of observation, curiosity and intuition. Cataloging felt experiences, sources in the natural environment, of positive biological, physical and emotional states that humans experience then, recreating them in the built and cultivated environments to enhance connection of the emotional, mental, physical and biological health.
+#### Becoming a part of the circle of life. The *symbiotic relationships* and feelings generated between *Wo-Man and Mother Earth* (environment) are highlighted, not human and 'things'.
+
+***Harvesting Knowledge:*** Discovering patterns which are alive, through cultivating the ability of observation, curiosity, intuition and imagination. Cataloging felt experiences, sources in the natural environment, of positive biological, physical and emotional states that humans experience then, recreating them in the built and cultivated environments to enhance connection and support emotional, mental, physical and biological health.
 
 #### Living Within The Circle Of Life.
 
@@ -33,15 +34,13 @@ Everyone has an inherit need to connect to nature and other biotic forms due to 
 
 It is when ones feelings are in touch with the reality of the forces in their environment, that someone can begin to see the patterns which are capable of generating life.
 
-In the process of accepting the truth the deepest passion was reveled. It was in fact a part of the soul that was healed in this process. The compassion of Mother Earth to forgive. And Give. Only when compassion is present will the heart revel the truth, for only then one is capable of facing the truth.
-
 ![*Patio garden bird.*](./vivariumGeorgeTownGallery/vivariumPatio/vivariumGTPatioBirdweb.JPG)
 
-#### *Naturally taping into the abundant emotions of joy, grace, awe, wholeness, passion and compassion that are experienced from recognizing beauty in nature. Bio-logically re-connecting; an archaic revival of Wo-Mans symbiotic microbial Gaian connection, honoring the feminine through feeling, connecting soil to soul.*
+#### *Naturally taping into the abundant emotions of joy, grace, awe, wholeness, passion and compassion that are experienced from recognizing the beauty in nature, feeling one with nature. Bio-logically re-connecting; an archaic revival of Wo-Mans symbiotic microbial Gaian connection, honoring the feminine through feeling, connecting soil to soul.*
 
 ![moringa tree bloom](./vivariumGeorgeTownGallery/vivariumGarden/vivariumMoringaFlowers02Web.JPG)
 
-***Cross Pollinate; being the gardener, an open hand, bringing seed to soil, the womb of Mother Earth, the beginnings of life, love and endings. Each bloom in the doing of this most holy act.***
+***Soil Makers; being the gardener, an open hand, bringing seed to soil, the womb of Mother Earth, the beginnings of life, love and endings. Each bloom in the doing of this most holy act.***
 
 Using the biological relationships with *'Mother Earth'* as a path of discovery into the unique characteristics of intentional independent habitats, that not only can influence a spontaneous therapeutic act but can also be used by the designer to open; they are dynamic, adaptable and can be experienced, *generate feelings*, offering a *safe space* and the possibility for trying out inventive solutions and transformation.
 
@@ -51,7 +50,7 @@ Using the biological relationships with *'Mother Earth'* as a path of discovery 
 
 ***People are deeply nourished by the process of creating wholeness.***
 
-***Healing environments*** allow someone to draw emotional support from their settings through the Symbiotic Energy, the living energy of the space. One then *feels free* to move around and interact unselfconsciously, to connect and *combine ones life with the life of the living* systems and elements within the built space. Achieved by bringing in a number of high quality visual and intuitive interactions among the bio-logical ecosystems and elements of a built space and its users.
+***Healing environments*** allow someone to draw emotional support from their settings through the Symbiotic Energy, the living energy of the space. One then *feels free* to move around and interact unselfconsciously, to connect and *combine ones life with the life of the living* systems and elements within the built space. Achieved by bringing in a number of high quality visual and intuitive interactions among the bio-logical ecosystems and elements of a curated space and its users.
 
 ![Open Space living room, stone floor](./vivariumGeorgeTownGallery/vivariumLivingRoom/vivariumGTLivingroomRelaxWeb.JPG)
 
@@ -59,7 +58,7 @@ A living design built upon the inherent intuitive 'biophilic' response to natura
 
 New ways of thinking, seeing and feeling; relating to the Natural World can be expanded, experienced. Causing a total shift of posture, perceptions, beliefs, and thought processes. 
 
-***Transforming ones relationship with the Natural World.*** Making a habit to feel where one is within nature, too understand how they are moving together As One. The 'water', ..., is too polluted ... not just for 'human' consumption.
+***Transforming ones relationship with the Natural World.*** Making a habit to feel where one is within nature, too understand how they are moving together As One.
 
 ![Peek](./vivariumGeorgeTownGallery/vivariumLivingRoom/vivariumGTLivingroomPeekweb.jpg)
 
@@ -67,21 +66,21 @@ New ways of thinking, seeing and feeling; relating to the Natural World can be e
 
 **Just as the ancients danced to call upon the spirits in nature, Wo-Man too, can dance to find the spirits within oneself that have long been buried and forgotten.**
 
-***Discover what kind of meaning to give it ...***
+***Discovering what kind of meaning to give it ...***
 
-**Life is in motion, every day movement is a dance, what someone sees, smells, hears, how one brings their consciousness to the experience, to a tree, ..., a bird in the garden, and then brings it into the body, that becomes the dance; the felt experience of the shared breath made visible.**
+**Life is in motion, every day movement is a dance, what someone sees, smells, hears, how one brings their consciousness to the experience, to the soil, to a tree, ..., a bird in the garden, and then brings it into the body, that becomes the dance; the felt experience of the shared breath made visible.**
 
 *Preserving the character of somethings true nature is achieved through connection.*
 
-**A ritual is a movement that has a purpose, to achieve something real in someones life. Dancing within life, creates a sense of reverence for the process.**
+**A ritual is a movement that has a purpose, to achieve something real in ones life. Dancing within life, creating a sense of reverence for the process.**
 
 *... starting over ... nothing lasts ... What someone can have control over is how one copes with what happens, being adaptable to change. ...*
 
 **Art is a way** ...  finding a common way to move forward through to nature ... finding the commonalities.
 
-***Cure is a medical intervention, healing is becoming whole.***
+***Cure is a medical intervention, healing is becoming whole, soil to soul.***
 
-**Recapturing the integration between Life and Style, art ... living the creativity is the most important thing someone has. Dance the essence of things.** *The denial, the courage to confront, the release ... too flow again ...*
+**Recapturing the integration between Life and Style. The art of living, creativity is the most important dance one has. Dance the essence of things.** *The denial, the courage to confront, the release ... too flow again ...*
 
 Urban environments are not nurturing environments in and of themselves, but with care, can be curated and cultivated into being so. Breaking the role of 'consumer culture,' of 'modern culture,' hanging up the 'cultural costume' and designing a living lifeStyle of ones own, symbiotically connected through too nature. 
 
@@ -103,6 +102,7 @@ Going beyond, using the feelings to expand into the 'living' style of ones life 
 
 #### *Vivarium ~ place of life*
 
+**Conservation as a consequence of production.**
 *An interactive space curated to connect; explore, learn, reflect, ... on how people interact, impact and live within personal environments; homes, work, travel, ..., spaces.*
 
 **Vivarium**- (Latin, literally for "place of life"; plural: vivaria or vivariums) is an area, usually enclosed, for keeping and raising animals or (in this case People and biological ecosystems) plants for observation or research. Often, a portion of the ecosystem for a particular species is simulated on a smaller scale, with controls for environmental conditions.
@@ -115,7 +115,7 @@ Going beyond, using the feelings to expand into the 'living' style of ones life 
 
 To do it someone need only let it happen in the mind.
 
-**Quality of Life**- *Mind, Body, Earth; Anima Mundi (world soul) Mutually Symbiotic Ecological Connections. Creating live and dynamic, open independent spaces that feel as they have existed long before someones arrival and will remain long after their depart.*
+**Quality of Life**- *Mind, Body, Earth (soil); Anima Mundi (world soul) Mutually Symbiotic Ecological Connections. Creating live and dynamic, open independent spaces that feel as they have existed long before someones arrival and will remain long after their depart.*
 
 ![An Enchanted Sensibility To Create Change](./vivariumGeorgeTownGallery/VivariumDouble/moringaRoomCandid01Web.jpg)
 
@@ -123,15 +123,15 @@ To do it someone need only let it happen in the mind.
 
 ***The Physical Body Is The Placebo;*** the mind’s natural capacity to influence bodily functions and symptoms.
 
-The mind is a medium within which the creative spark that jumps between the pattern and the world can happen. The individual, oneself is only the medium for this creative spark, not its originator.
+The mind is a medium within which the imagination jumps between the pattern and the world can happen. The individual, oneself is only the medium for the imagination, not its originator.
 
-**Co-evolutionary ecosystems:** Re-establishing and encouraging healthy symbiotic connections within nature (Mother Earth) through sensory experiences; physical and biological interactions, movement, and hands-on meaningful activities. Allowing the brain, body and earth body to establish new, more productive patterns.
+**Co-evolutionary ecosystems:** Re-establishing and encouraging healthy symbiotic connections within nature (Mother Earth) through sensory experiences; mental, physical and biological interactions, movement, and hands-on meaningful activities. Allowing the brain, body and earth body to establish new, more productive patterns.
 
 The individual is only the medium in which the patterns come to life, and of their own accord give birth to something new.
 
 ![Harvest](./vivariumGeorgeTownGallery/vivariumHarvest/vivariumLivingHarvest01Web.JPG)
 
-Inventing a new universe to live in, a universe of possibility. A place where someone is continually discovering how they create their reality, and how they can change it.
+A place where someone is continually discovering how to create their own reality, and how to adapt, change it.
 
 #### Location
 
@@ -181,7 +181,7 @@ Besides an assortment of herbs, aloe plants, and experimental seedlings like Dur
 
 ![hanging patio garden](./vivariumGeorgeTownGallery/vivariumPatio/kokedama03.jpg)
 
-It became difficult to catalog the ever changing garden. Growing a diverse garden is magical, cultivating pleasure, making it easy for someone to enjoy the discovery process towards an Eco-responsible lifestyle. ***The gardens of the Vivarium, once established, provided (and often exceeded) all nutritional requirements for the host and co-host.*** (More details on plant selection and care will follow in a separate post.)
+The ever changing garden. Growing a diverse garden is magical, cultivating pleasure, making it easy for someone to enjoy the discovery process towards an Eco-responsible lifestyle. ***The gardens of the Vivarium, once established, provided (and often exceeded) all nutritional requirements for two people.*** (More details on plant selection and care will follow in a separate post.)
 
 ![Kokedama](./vivariumGeorgeTownGallery/vivariumWindowHanging/vivariumKokedama01Web.jpg)
 
@@ -221,7 +221,7 @@ Every stay mattered to this self funded project, contributed and kept this creat
 
 ![Patio Living](./vivariumGeorgeTownGallery/vivariumLivingRoom/vivariumGTLivingroomYogaweb.jpg)
 
-Living room was an open shared space, with beautiful cooling white marble floors, very spacious for any kind of body work. ***The furniture was locally custom built and designed to encourage healthy body movement, to relax and/or work.*** Space was ample to enjoy a tea on the patio and experience the company of visiting birds, that where always around, singing, exploring and foraging in the gardens that surrounded the unit.
+Living room was an open shared space, with beautiful cooling white marble floors, very spacious for any kind of body work. ***The furniture was locally custom built; designed to encourage healthy body movement, to relax and/or work.*** Space was ample to enjoy a tea on the patio and experience the company of visiting birds, that where always around, singing, exploring and foraging in the gardens that surrounded the unit.
 
 ![Relax in nature](./vivariumGeorgeTownGallery/vivariumPatio/vivariumPatio01Web.JPG)
 

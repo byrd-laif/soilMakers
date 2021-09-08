@@ -10,12 +10,12 @@
 
 Giving someone courage; for changing what must be altered, empathy for accepting what cannot be helped, and the insight for knowing one from the other. *Love and labor are inseparable, calling forth deep bravery from within.*
 
-**Lifestyles For Change; Bringing Life To Style.** 
+**Lifestyles For Change; Bringing Life To Style.**
 
 *An Archaic Revival; the sharing of a living language, learning how to discover patterns which are deep and capable of generating life.*
 
 ### The fundamental human birthright; *freely connecting with thing that make living possible.*
-Being attracted to all that is alive and vital, the human tendency to relate with life and natural processes - ***Is The Expression Of A Bio-Logical Need.*** 
+Being attracted to all that is alive and vital, the human tendency to relate with life and natural processes - ***Is The Expression Of A Bio-Logical Need.***
 
 ***Reconciliation; forgiveness, free to turn and question: Where does someone go from here?***
 
@@ -55,34 +55,33 @@ Authenticity - Designing for re-connectedness in contrast to designing for susta
 
 *Loss of biodiversity is directly related to the lifestyles of human beings.*
 
-*It's time to start comparing consumption and lifestyle, and checking this against nature's ability to provide for this consumption. Humans have destroyed and continue to destroy the habitats of species on a daily basis. It's time to own up to the realities of what that translates to for the generations to come, aesthetically and otherwise. It's time to be *Ecologically Realistic* and get back to the *heart* of what *life* is all about.* 
+*It's time to start comparing consumption and lifestyle, and checking this against nature's ability to provide for this consumption. Humans have destroyed and continue to destroy the habitats of species on a daily basis. It's time to own up to the realities of what that translates to for the generations to come, aesthetically and otherwise. It's time to be *Ecologically Realistic* and get back to the *heart* of what *life* is all about.*
 
 **This is about honesty and responsibility. Honesty; admitting to what is. Responsibility; not blaming someone else.**
 
-# *Soil Sisters ~ Eco-Logical Movement And Enterprise*
-*Directly addressing the bio-logical effects of climate change through lifestyle.*
+***Power as responsibility rather than domination.*** A radical sift from Bio-Logical Warfare; built on guilt, fear and force to an 'Eco-logical Partnership'. ***Bio-Logical Freedom**; feeling free to swim in the rivers of Mother Earth without fear of reprisal.*
 
-## Cultivating a *Bio-logical Economy* creates the market for an *Ecologically Sustainable* future.
+*Partnership systems support mutually respectful and caring relations.*
+
+#### Eco-Logical Movement And Enterprise
+
+Cultivating a *Bio-logical Economy* creates the market for an *Ecologically Sustainable* future.
 
 ***Creating co-Evolutionary Leaders;*** Revolutionary Eco-logical Actions that connect and are transferable through to nature. ***Bio-Logical Body and Earth Care Systems*** provide the environment for an enlightened, sustainable future.
 
-### *A mutually beneficial; 'symbiotic legacy venture' withih Mother Earth. An Eco system that operates to deliver a positive bio-logical impact; symbiotically profiting through seeding the soil, the Womb of Mother Earth.*
+#### *Cultivating The Mother Tree;* An archaic revival of Wo-Mans Gaian connection through honoring the feminine. Soil Makers; cultivating an ally, bonding with Mother Earth as *'The Live And Dynamic Co-evolutionary Partner'* in the shaping of the set, setting and the process.
 
-#### *Cultivating The Mother Tree;* An archaic revival of Wo-Mans Gaian connection through honoring the feminine. Soil Sisters cultivate an ally; bonding with Mother Earth as *'The Live And Dynamic Co-evolutionary Partner'* in the shaping of the set, setting and the process.
+*A mutually beneficial; 'symbiotic legacy venture' with Mother Earth. An Eco system that operates to deliver a positive bio-logical impact; symbiotically profiting through seeding the soil, the Womb of Mother Earth.*
 
 *An opportunity for the creation of something new and beautiful.*
 
-Being responsible stewards of the Earth means taking to heart the current planetary healing crisis. Having accepted this circumstance *responsibility* then means *ability,* to have a *creative response* to the situation as it is *now.* 
+Being responsible stewards of the Earth means taking to heart the current planetary healing crisis. Having accepted this circumstance *responsibility* then means *ability,* to have a *creative response* to the situation as it is *now.*
 
 The *seeds of opportunity* and awareness, to take the moment and transform it into a better situation.
 
 #### Putting nature on the balance sheet.
 
 ***Bio-Logical Body and Earth Care System Services; Transforming an Environ-mental withdraw to an Environ-mental Deposit for the future. Mobilizing bio-resources (organic refuse) and converting this into bio-gold, Bio-Logical Body and Earth Care Services & Commodities.***
-
-***Power as responsibility rather than domination.*** A radical sift from Bio-Logical Warfare; built on guilt, fear and force to an 'Eco-logical Partnership'. ***Bio-Logical Freedom**; feeling free to swim in the rivers of Mother Earth without fear of reprisal.*
-
-*Partnership systems support mutually respectful and caring relations.*
 
 #### *Environ-Mental Health*
 
