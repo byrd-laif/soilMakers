@@ -14,8 +14,12 @@ Giving someone courage; for changing what must be altered, empathy for accepting
 
 *An Archaic Revival; the sharing of a living language, learning how to discover patterns which are deep and capable of generating life.*
 
-### The fundamental human birthright; *freely connecting with thing that make living possible.*
-Being attracted to all that is alive and vital, the human tendency to relate with life and natural processes - ***Is The Expression Of A Bio-Logical Need.***
+### Claiming ones fundamental human birthright; *freely connecting with thing that make living possible.*
+Being attracted to all that is alive and vital, the human tendency to relate and connect with life and natural processes - ***Is The Expression Of A Bio-Logical Need.***
+
+***Power as responsibility rather than domination.*** A radical sift from Bio-Logical Warfare; built on guilt, fear and force to an 'Eco-logical Partnership'. ***Bio-Logical Freedom**; feeling free to swim in the rivers of Mother Earth without fear of reprisal.*
+
+*Partnership systems support mutually respectful and caring relations.*
 
 ***Reconciliation; forgiveness, free to turn and question: Where does someone go from here?***
 
@@ -44,10 +48,10 @@ Awakening possibility and creative insight; refine the taste, and increase knowl
 
 #### *The Ecology Is The Economy.*
 
-**Conservation as a consequence of lifestyle/production.**
+**Conservation as a consequence of lifestyle and production.**
 
 #### Accepting personal responsibility; truthful living.
-Authenticity - Designing for re-connectedness in contrast to designing for sustainability.
+***Librating Ones Authenticity*** - Designing for re-connectedness in contrast to designing for sustainability.
 
 ***Producing Something Meaningful.*** Projecting ones lifestyle into a future possibility, connected with things that make living possible. Living the creative process; honoring the Soul through cultivating a lifestyle that feeds the Soil - that pays all the 'bills'.
 
@@ -59,13 +63,9 @@ Authenticity - Designing for re-connectedness in contrast to designing for susta
 
 **This is about honesty and responsibility. Honesty; admitting to what is. Responsibility; not blaming someone else.**
 
-***Power as responsibility rather than domination.*** A radical sift from Bio-Logical Warfare; built on guilt, fear and force to an 'Eco-logical Partnership'. ***Bio-Logical Freedom**; feeling free to swim in the rivers of Mother Earth without fear of reprisal.*
-
-*Partnership systems support mutually respectful and caring relations.*
-
 #### Eco-Logical Movement And Enterprise
 
-Cultivating a *Bio-logical Economy* creates the market for an *Ecologically Sustainable* future.
+**Cultivating a *Bio-logical Economy* creates the market for an *Ecologically Sustainable* future.**
 
 ***Creating co-Evolutionary Leaders;*** Revolutionary Eco-logical Actions that connect and are transferable through to nature. ***Bio-Logical Body and Earth Care Systems*** provide the environment for an enlightened, sustainable future.
 
