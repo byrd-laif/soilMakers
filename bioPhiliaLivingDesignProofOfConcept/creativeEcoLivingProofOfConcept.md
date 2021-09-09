@@ -12,7 +12,7 @@ date: 2021-02-28
 **A response to the challenge of her Life; reForming a Relationship With Mother Earth, An Act Of Surrender.**
 
 *Proof of concept: Oct 2016 - Jan 2020 (guest reviews available upon request)*
-In the process of accepting the truth the deepest passion was reveled. It was in fact a part of the soul that was healed in this process. The compassion of Mother Earth to forgive. And Give. Only when compassion is present will the heart revel the truth, for only then one is capable of facing the truth.
+In the process of accepting the truth the deepest passion was reveled. It was in fact a part of the soul that was healed in this process. *The compassion of Mother Earth to forgive. And Give. Only when compassion is present will the heart revel the truth, for only then one is capable of facing the truth.*
 
 ### Conservation As A Consequence Of Lifestyle. 
 
