@@ -102,7 +102,7 @@ Going beyond, using the feelings to expand into the 'living' style of ones life 
 
 #### *Vivarium ~ place of life*
 
-**Conservation as a consequence of production.**
+**Conservation as a consequence of lifestyle and work.**
 *An interactive space curated to connect; explore, learn, reflect, ... on how people interact, impact and live within personal environments; homes, work, travel, ..., spaces.*
 
 **Vivarium**- (Latin, literally for "place of life"; plural: vivaria or vivariums) is an area, usually enclosed, for keeping and raising animals or (in this case People and biological ecosystems) plants for observation or research. Often, a portion of the ecosystem for a particular species is simulated on a smaller scale, with controls for environmental conditions.
@@ -185,7 +185,7 @@ The ever changing garden. Growing a diverse garden is magical, cultivating pleas
 
 ![Kokedama](./vivariumGeorgeTownGallery/vivariumWindowHanging/vivariumKokedama01Web.jpg)
 
-***Curated Gardens made for eating, smelling and touching flowers.***
+***Curated Gardens made for eating, smelling and touching.***
 
 All rooms having several opening windows with large concrete window boxes provided ample space for gardens, easy access and beautiful ambience. The windows being covered in jute became gardens themselves and where home to over ***40+ bamboo hanging planters and Kokedama*** (苔玉, in English, literally "moss ball") a ball of soil, covered with moss, held by being wrapped in coconut cord on which ferns and other medicinal plants grew.
 

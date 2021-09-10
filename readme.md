@@ -48,12 +48,12 @@ Awakening possibility and creative insight; refine the taste, and increase knowl
 
 #### *The Ecology Is The Economy.*
 
-**Conservation as a consequence of lifestyle and production.**
+**Conservation as a consequence of lifestyle and work.**
 
 #### Accepting personal responsibility; truthful living.
-***Librating Ones Authenticity*** - Designing for re-connectedness in contrast to designing for sustainability.
+***Librating Ones Authenticity***
 
-***Producing Something Meaningful.*** Projecting ones lifestyle into a future possibility, connected with things that make living possible. Living the creative process; honoring the Soul through cultivating a lifestyle that feeds the Soil - that pays all the 'bills'.
+***Producing Something Meaningful.*** Projecting one's lifestyle into a future possibility, connected with that which makes living possible. Living the creative process; honoring the Soul through cultivating a lifestyle that feeds the Soil.
 
 **Examining ecologic behaviors.**
 
