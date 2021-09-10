@@ -23,7 +23,7 @@ Being attracted to all that is alive and vital, the human tendency to relate and
 
 ***Reconciliation; forgiveness, free to turn and question: Where does someone go from here?***
 
-[Live Blog On Matrix - Soil Seekers](https://matrix.to/#/!EwezVvVjpxKVCMIuRM:matrix.org?via=matrix.org&via=kde.org&via=converser.eu)
+[Live Blog On Matrix - Soil Makers](https://matrix.to/#/!EwezVvVjpxKVCMIuRM:matrix.org?via=matrix.org&via=kde.org&via=converser.eu)
 
 ### *Vivarium Salon ~ place of life*
 *Global Communities For Local Impacts.*
@@ -103,11 +103,11 @@ Not addressing immediate needs is an insult to the young. Individuals with passi
 
 #### Explore
 
-[**Follow the Food; The Alchemy of soul food, from soil to plate to soil.**](./soulFood/followTheFood.md)
-
 [**BioPhilia Living Design - *Proof of Concept* Urban Sustainable Eco-Living**](./bioPhiliaLivingDesignProofOfConcept/creativeEcoLivingProofOfConcept.md)
 
-[**Anna ~ Soil Seekers on Vimeo**](https://vimeo.com/soilseekers)
+[**Follow the Food; The Alchemy of soul food, from soil to plate to soil.**](./soulFood/followTheFood.md)
+
+[**Anna ~ Soil Makers on Vimeo**](https://vimeo.com/soilmakers)
 
 #### [Salon Programs/Resources](./lifeStylesForChange)
 
@@ -119,7 +119,7 @@ Not addressing immediate needs is an insult to the young. Individuals with passi
 
 - [The Alchemy Of Food Preservation - Cultivating Pro-biotic Functional Foods](./lifeStylesForChange/lactoFermentbBasicMethod.md)
 
-- [Soil Seekers / Vivarium Salon Circle Elements, Etiquette and Governance](./lifeStylesForChange/vivariumSalonCircleElements.md)
+- [Soil Makers / Vivarium Salon Circle Elements, Etiquette and Governance](./lifeStylesForChange/vivariumSalonCircleElements.md)
 
 #### Connect ~ Ask a question or book an event ...
 Contact Anna directly on Matrix @bird:matrix.org or [Connect in the Vivarium Salon](https://matrix.to/#/!LSpVaMCiYQehpJONFF:matrix.org)

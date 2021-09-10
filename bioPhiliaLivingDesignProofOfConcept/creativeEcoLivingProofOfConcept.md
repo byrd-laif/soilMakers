@@ -295,7 +295,7 @@ This space was mostly shared with the host or co-host, all where quite strict ab
 
 Many special events took place at the Vivarium in many different forms, Salon Style Programs and Salon Circle Gatherings among them. A few occasions where artfully captured by a talented videographer and photographer, [Hakima.](https://www.lensculture.com/hakima-hamdi)
 
-[***Vivarium Salon Circle*** ~ Singing bowl gathering video compilation](https://youtu.be/7zCHFSwraeY)
+[***Vivarium Salon Circle*** ~ Singing bowl gathering video compilation](https://vimeo.com/553648700)
 
 [Private Tibetan singing bowl session at the ***Vivarium Salon ~ place of life***](https://vimeo.com/549198724)
 

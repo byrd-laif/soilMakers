@@ -180,13 +180,13 @@ Circle is not a dogmatic form. Each circle will develop its own unique personali
 
 ***Love and Light***
 
-[***Vivarium Salon Circle*** ~ Singing bowl gathering video compilation](https://youtu.be/7zCHFSwraeY)
+[***Vivarium Salon Circle*** ~ Singing bowl gathering video compilation](https://vimeo.com/553648700)
 
-[Private Tibetan singing bowl session at the ***Vivarium Salon ~ place of life***](https://youtu.be/ypoLV3G9vRU)
+[Private Tibetan singing bowl session at the ***Vivarium Salon ~ place of life***](https://vimeo.com/549198724)
 
 .......
 
-### *Cooperation and Harmony ~ Soil Seekers and Vivarium Salon Circle/Programs*
+### *Cooperation and Harmony ~ Soil Makers and Vivarium Salon Circle/Programs*
 
 #### *Dynamic Governance Values*
 - Effectiveness: Get things done
