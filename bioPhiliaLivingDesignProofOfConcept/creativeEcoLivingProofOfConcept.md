@@ -14,7 +14,7 @@ date: 2021-02-28
 *Proof of concept: Oct 2016 - Jan 2020 (guest reviews available upon request)*
 In the process of accepting the truth the deepest passion was reveled. It was in fact a part of the soul that was healed in this process. *The compassion of Mother Earth to forgive. And Give. Only when compassion is present will the heart revel the truth, for only then one is capable of facing the truth.*
 
-### Conservation As A Consequence Of Lifestyle. 
+### Conservation As A Consequence Of Lifestyle And Work. 
 
 **Regenerative urban living; The cultivation of a mutually symbiotic habitat, that honors the individual as a *biological organism* in the *built environment*, within the *biophysical environment.***
 
@@ -30,7 +30,7 @@ Meaningful living; life-giving and life-sustaining with a high degree of refinem
 
 ***Curated to allow the enjoyment of connecting with nature as freely as possible.***
 
-Everyone has an inherit need to connect to nature and other biotic forms due to their *Evolutionary Dependence* on it for *Survival* and *Personal Fulfillment.* This is the shared human birthright; the biological need to connect with things that make living possible.
+Everyone has an inherit need to connect to nature and other biotic forms due to their *Evolutionary Dependence* on it for *Survival* and *Personal Fulfillment.* This is the shared human birthright; the biological need to connect.
 
 It is when ones feelings are in touch with the reality of the forces in their environment, that someone can begin to see the patterns which are capable of generating life.
 
@@ -54,15 +54,15 @@ Using the biological relationships with *'Mother Earth'* as a path of discovery 
 
 ![Open Space living room, stone floor](./vivariumGeorgeTownGallery/vivariumLivingRoom/vivariumGTLivingroomRelaxWeb.JPG)
 
-A living design built upon the inherent intuitive 'biophilic' response to natural built forms, natural settings and systems. Designed to generate healthy feeling interactions by encouraging their spontaneous occurrence.
+A living design built upon the inherent intuitive 'biophilic' response to natural built forms, natural settings and systems. Designed to generate healthy interactions by encouraging their spontaneous occurrence.
 
-New ways of thinking, seeing and feeling; relating to the Natural World can be expanded, experienced. Causing a total shift of posture, perceptions, beliefs, and thought processes. 
+New ways of thinking, seeing and feeling; relating to the Natural World can be expanded, experienced through connecting. Causing a total shift of posture, perceptions, beliefs, and thought processes. 
 
 ***Transforming ones relationship with the Natural World.*** Making a habit to feel where one is within nature, too understand how they are moving together As One.
 
 ![Peek](./vivariumGeorgeTownGallery/vivariumLivingRoom/vivariumGTLivingroomPeekweb.jpg)
 
-#### *Authentic Living Design; creating connected living environments that support, restore and regenerate both the physical body and the environment (earth body) have positive effects on the health of a population as a whole, not just the individual within the living design.*
+#### *Authentic Living; creating connected living environments that support, restore and regenerate both the physical body and the environment (earth body) have positive effects on the health of a population as a whole, not just the individual within the living design.*
 
 **Just as the ancients danced to call upon the spirits in nature, Wo-Man too, can dance to find the spirits within oneself that have long been buried and forgotten.**
 

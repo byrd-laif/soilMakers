@@ -14,7 +14,7 @@ Giving someone courage; for changing what must be altered, empathy for accepting
 
 *An Archaic Revival; the sharing of a living language, learning how to discover patterns which are deep and capable of generating life.*
 
-### Claiming ones fundamental human birthright; *freely connecting with thing that make living possible.*
+### Claiming ones fundamental human birthright; *freely connecting with that which makes living possible.*
 Being attracted to all that is alive and vital, the human tendency to relate and connect with life and natural processes - ***Is The Expression Of A Bio-Logical Need.***
 
 ***Power as responsibility rather than domination.*** A radical sift from Bio-Logical Warfare; built on guilt, fear and force to an 'Eco-logical Partnership'. ***Bio-Logical Freedom**; feeling free to swim in the rivers of Mother Earth without fear of reprisal.*
