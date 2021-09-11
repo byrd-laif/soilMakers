@@ -221,7 +221,7 @@ The concentrated Bokashi tea can also be deposited directly into kitchen and bat
 
 #### Connect ~ Ask a question or book an event ... 
 
-*Private Bokashi Soil Building Consultation Available.*
+[Soil Makers On Open Collective](https://opencollective.com/soil-makers)
 
 Contact Anna directly on Matrix @bird:matrix.org or [Connect in the Vivarium Salon](https://matrix.to/#/!LSpVaMCiYQehpJONFF:matrix.org)
 

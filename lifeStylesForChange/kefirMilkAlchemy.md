@@ -184,4 +184,7 @@ Aerobic, a ferment with oxygen is usually done with a cloth lid. Anaerobic, with
 [*Kefir Experience with Anna on Vimeo .*](https://vimeo.com/549196359)
 
 #### Connect ~ Ask a question or book an event ...
+
+[Soil Makers On Open Collective](https://opencollective.com/soil-makers)
+
 Contact Anna directly on Matrix @bird:matrix.org or [Connect in the Vivarium Salon](https://matrix.to/#/!LSpVaMCiYQehpJONFF:matrix.org)

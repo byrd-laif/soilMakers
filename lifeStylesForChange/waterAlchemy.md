@@ -266,11 +266,10 @@ Q: How to insure the Eco-enzyme is well fermented?
 
 A: If the fermentation is successful, the liquid will turn yellowish to brown and will form a white layer on the surface. Otherwise, it will turn black or become moldy. If mold is black add brown sugar (same amount) and ferment for another month.
 
-#### *Resources*
-
-**Private Pro-biotic Eco-enzyme Lessons Available.**
-
 #### Connect ~ Ask a question or book an event ...
+
+[Soil Makers On Open Collective](https://opencollective.com/soil-makers)
+
 Contact directly on Matrix @bird:matrix.org or [Connect in the Vivarium Salon](https://matrix.to/#/!LSpVaMCiYQehpJONFF:matrix.org)
 
 ![enzyme workshop](../eventGallery/ecoEnzymeWorkshopGTweb.jpg)

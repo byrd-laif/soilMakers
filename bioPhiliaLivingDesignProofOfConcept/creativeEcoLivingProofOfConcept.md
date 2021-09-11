@@ -302,6 +302,9 @@ Many special events took place at the Vivarium in many different forms, Salon St
 [**Bokashi Soil Building Instructional Video Link Viemo**](https://vimeo.com/549116720)
 
 #### Connect ~ Ask a question or book an event ...
+
+[Soil Makers On Open Collective](https://opencollective.com/soil-makers)
+
 [Contact Anna Direct on Matrix](https://matrix.to/#/!ibYXXCkubbZiWtkmhX:matrix.org?via=matrix.org)
 
 ![Vivarium Garden](./vivariumGeorgeTownGallery/vivariumGarden/dunnGardenBasil.jpg)

@@ -24,6 +24,7 @@ Being attracted to all that is alive and vital, the human tendency to relate and
 ***Reconciliation; forgiveness, free to turn and question: Where does someone go from here?***
 
 [Live Blog On Matrix - Soil Makers](https://matrix.to/#/!EwezVvVjpxKVCMIuRM:matrix.org?via=matrix.org&via=kde.org&via=converser.eu)
+[Soil Makers On Open Collective](https://opencollective.com/soil-makers)
 
 ### *Vivarium Salon ~ place of life*
 *Global Communities For Local Impacts.*
