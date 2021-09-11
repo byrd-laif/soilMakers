@@ -9,7 +9,7 @@ date: 2021-02-28
 
 ## *Designing Through Spirit; Using curiosity, intuition and imagination, the æsthetics of a natural law.*
 
-**A response to the challenge of her Life; reForming a Relationship With Mother Earth, An Act Of Surrender.**
+**A response to the challenge of her Life; reForming a Relationship with Mother Earth, an Act of surrender.**
 
 *Proof of concept: Oct 2016 - Jan 2020 (guest reviews available upon request)*
 In the process of accepting the truth the deepest passion was reveled. It was in fact a part of the soul that was healed in this process. *The compassion of Mother Earth to forgive. And Give. Only when compassion is present will the heart revel the truth, for only then one is capable of facing the truth.*
@@ -20,15 +20,13 @@ In the process of accepting the truth the deepest passion was reveled. It was in
 
 #### Becoming a part of the circle of life. The *symbiotic relationships* and feelings generated between *Wo-Man and Mother Earth* (environment) are highlighted, not human and 'things'.
 
-***Harvesting Knowledge:*** Discovering patterns which are alive, through cultivating the ability of observation, curiosity, intuition and imagination. Cataloging felt experiences, sources in the natural environment, of positive biological, physical and emotional states that humans experience then, recreating them in the built and cultivated environments to enhance connection and support emotional, mental, physical and biological health.
-
-#### Living Within The Circle Of Life.
+***Harvesting Knowledge:*** Through cultivating the ability of observation, curiosity, intuition and imagination. Discovering patterns which are alive. Cataloging felt experiences, sources in the natural environment, of positive biological, physical and emotional states that humans experience. Recreating them in the built and cultivated environments to enhance connection and support emotional, mental, physical and biological health.
 
 Meaningful living; life-giving and life-sustaining with a high degree of refinement and comfort. Adaptable to all practical needs of life within an attractive built environment.
 
 ![Floor chairs on platform and patio.](./vivariumGeorgeTownGallery/vivariumLivingRoom/vivariumLiving02Web.JPG)
 
-***Curated to allow the enjoyment of connecting with nature as freely as possible.***
+***Curated to experience the enjoyment of being connected with nature.***
 
 Everyone has an inherit need to connect to nature and other biotic forms due to their *Evolutionary Dependence* on it for *Survival* and *Personal Fulfillment.* This is the shared human birthright; the biological need to connect.
 
@@ -58,7 +56,7 @@ A living design built upon the inherent intuitive 'biophilic' response to natura
 
 New ways of thinking, seeing and feeling; relating to the Natural World can be expanded, experienced through connecting. Causing a total shift of posture, perceptions, beliefs, and thought processes. 
 
-***Transforming ones relationship with the Natural World.*** Making a habit to feel where one is within nature, too understand how they are moving together As One.
+***Transforming ones relationship with the Natural World.*** Making a habit to feel where one is *within the circle of life,* too understand how they are moving together As One.
 
 ![Peek](./vivariumGeorgeTownGallery/vivariumLivingRoom/vivariumGTLivingroomPeekweb.jpg)
 
@@ -80,7 +78,7 @@ New ways of thinking, seeing and feeling; relating to the Natural World can be e
 
 ***Cure is a medical intervention, healing is becoming whole, soil to soul.***
 
-**Recapturing the integration between Life and Style. The art of living, creativity is the most important dance one has. Dance the essence of things.** *The denial, the courage to confront, the release ... too flow again ...*
+**Recapturing the integration between Life and Style. The art of living; authenticity is the most important dance one has. Dancing the essence of things.** *The denial, the courage to confront, the release ... too flow again ...*
 
 Urban environments are not nurturing environments in and of themselves, but with care, can be curated and cultivated into being so. Breaking the role of 'consumer culture,' of 'modern culture,' hanging up the 'cultural costume' and designing a living lifeStyle of ones own, symbiotically connected through too nature. 
 
