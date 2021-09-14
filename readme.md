@@ -54,7 +54,7 @@ Awakening possibility and creative insight; refine the taste, and increase knowl
 **Tools For Understanding.**
 *An integrated set of processes that allow the often hidden insight of human expertise to be captured and converted into specific actionable know-how that can be transferred to someone. Cultivating a more desirable, fulfilling, life supporting; Ecologically Modern and Realistic Lifestyle.*
 
-[**Life*Styles* For Change ~ Becoming a part of the circle of life.**](./lifeStylesForChangeIntro.md)
+[**Life*Styles* For Change ~ Becoming a part of the circle of life.**](./lifeStylesForChange/lifeStylesForChangeIntro.md)
 
 ### Eco-Logical Movement And Enterprise
 
