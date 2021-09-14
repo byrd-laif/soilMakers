@@ -5,6 +5,10 @@
 
 **Conservation as a consequence of lifestyle and work.**
 
+### Putting nature on the balance sheet.
+
+***Transforming an Environ-mental withdraw to an Environ-mental Deposit for the future. Mobilizing bio-resources (organic refuse) and converting this into bio-gold, Bio-Logical Body and Earth Care Services & Commodities.***
+
 ### *Bio-Logical Body And Earth Care; Connecting And Healing Soil To Soul.*
 
 **A Living Legacy - Ecology As Art; curating symbiotic relationships between Wo-Man, organisms and their environments.**
@@ -50,9 +54,9 @@ Awakening possibility and creative insight; refine the taste, and increase knowl
 **Tools For Understanding.**
 *An integrated set of processes that allow the often hidden insight of human expertise to be captured and converted into specific actionable know-how that can be transferred to someone. Cultivating a more desirable, fulfilling, life supporting; Ecologically Modern and Realistic Lifestyle.*
 
-[**Life*Styles* For Change ~ Becoming a part of the circle of life.**](./lifeStylesForChangeIntro)
+[**Life*Styles* For Change ~ Becoming a part of the circle of life.**](./lifeStylesForChangeIntro.md)
 
-#### Eco-Logical Movement And Enterprise
+### Eco-Logical Movement And Enterprise
 
 **Cultivating a *Bio-logical Economy* creates the market for an *Ecologically Sustainable* future.**
 
@@ -67,10 +71,6 @@ Awakening possibility and creative insight; refine the taste, and increase knowl
 Being responsible stewards of the Earth means taking to heart the current planetary healing crisis. Having accepted this circumstance *responsibility* then means *ability,* to have a *creative response* to the situation as it is *now.*
 
 The *seeds of opportunity* and awareness, to take the moment and transform it into a better situation.
-
-#### Putting nature on the balance sheet.
-
-***Bio-Logical Body and Earth Care System Services; Transforming an Environ-mental withdraw to an Environ-mental Deposit for the future. Mobilizing bio-resources (organic refuse) and converting this into bio-gold, Bio-Logical Body and Earth Care Services & Commodities.***
 
 #### *Environ-Mental Health*
 
