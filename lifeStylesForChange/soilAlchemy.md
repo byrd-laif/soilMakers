@@ -7,27 +7,18 @@ date: 2018-08-13
 
 ## *A Revival Of The Gaian Connection; a journey of symbiotic healing, Soil to Soul.*
 
-**Humans and Humus are Symbiotic Body and Soil Microbial Gardens. Life is not possible without Rich Fertile Soil.**
-*All components of an ecosystem are dependent on healthy soil for the system to function optimally.*
+**Soil Alchemy; Humans and Humus are Symbiotic Body and Soil Microbial Gardens. Life is not possible without Rich Fertile Soil.**
 
 Ninety percent of cells contained in the human body are microbes. Microbes produce hormones that regulate growth, stress
-response, and immunity in plants and animals.
+response, and immunity in plants and animals. *All components of an ecosystem are dependent on healthy soil for the system to function optimally.*
 
-***Soil Alchemy*** is the ongoing exploration of what happens when someone connects head, heart, and body in the crucible of the soil. The ancient alchemists combined substances and used the influence of their own minds to study the transmutation of matter and of spirit. Working in symbiotic partnership within Mother Earth too cultivate incredible discoveries. Observing the discursive mind become quieter as the intelligence of the heart comes to the foreground, feeling through nature an ancient *ecologically symbiotic consciousness* reemerges.
-
-### Bokashi is *Soil Therapy;* forgiveness, healing soil to soul. Connecting with things that make living possible, the practice of spending time *cultivating fertile soil* for the purpose of enhancing whole health; *Bio-logical Body And Earth Care,* wellness, and happiness. A practice of *symbiotic connection* within the natural world and with each other.
-
-A series of guided invitations, natural cycles, bring one into the present moment, opening the doors of symbiotic communication within the soil, waters, and landscapes explored. Biologically re-connecting, encounter not just the soil, but the many ways nature mirrors humans, encountering oneself, Soil to Soul Food.
+### Bokashi is *Soil Therapy;* forgiveness, healing soil to soul. Connecting with things that make living possible, the practice of spending time *cultivating fertile soil* for the purpose of enhancing whole health. *Bio-logical Body And Earth Care,* wellness, and happiness. A practice of *symbiotic connection* within the natural world and with each other.
 
 **Soil life is fragile,** an estimated one third of global soils are degraded. Moreover, each year an estimated 24 billion tonnes of fertile soil are lost due to erosion alone.
 
 Building up, maintaining and conserving the fertility of different soil types around the world in the face of diverse climatic conditions is the biggest challenge of agriculture today. The key to soil fertility lies mostly in the humus content of soils.
 
 Cultivating Probiotic Soil that’s the color of a 70% cocoa chocolate bar, free of chemicals and teeming with beneficial bacteria, protozoa, fungi and nematodes. Without them, the soil is dead. Chemical fertilizers are like feeding the body highly processed foods, empty calories that may fill one up in the short term but leave one vulnerable to disease and other problems over time. The life of the soil is part of the life of the plants grown in it, part of the body tending it, and part of the body eating from it all, soil to soul food.
-
-#### *Ancestral Healing; Cultivating cultures that heal cultivates compassion for mother earth, an act of humility.* Connecting to Mother Earth through her art, soil alchemy . Soil is the ultimate store of energy, it holds history in its molecules, vital energy that flows forever, transporting light energies.
-
-Its easy to destroy something, the challenge is to create something meaningful. To bring something back to the Village that someone can live from.
 
 ***Humility:*** The state of being Humble; Middle English, from Anglo-French, from Latin humilis low, humble, ***from humus earth;*** akin to Greek chthōn ***earth,*** chamai on ***the ground.***
 
