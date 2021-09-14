@@ -1,8 +1,13 @@
-# *Soil Makers ~ Cultivating Ecological Literacy*
+# *Soil Makers
+*Cultivating Ecological Literacy*
+
+## *The Ecology Is The Economy.*
+
+**Conservation as a consequence of lifestyle and work.**
+
+### *Bio-Logical Body And Earth Care; Connecting And Healing Soil To Soul.*
 
 **A Living Legacy - Ecology As Art; curating symbiotic relationships between Wo-Man, organisms and their environments.**
-
-## *Bio-Logical Body And Earth Care; Connecting And Healing Soil To Soul.*
 
 ***Acting As Curator; someone who has the care of something.*** Claiming ones relationship with Mother Nature, cultivating ones own legacy so future generations have a place to call Home.
 
@@ -14,7 +19,7 @@ Giving someone courage; for changing what must be altered, empathy for accepting
 
 *An Archaic Revival; the sharing of a living language, learning how to discover patterns which are deep and capable of generating life.*
 
-### Claiming ones fundamental human birthright; *freely connecting with that which makes living possible.*
+#### Claiming ones fundamental human birthright; *freely connecting with that which makes living possible.*
 Being attracted to all that is alive and vital, the human tendency to relate and connect with life and natural processes - ***Is The Expression Of A Bio-Logical Need.***
 
 ***Power as responsibility rather than domination.*** A radical sift from Bio-Logical Warfare; built on guilt, fear and force to an 'Eco-logical Partnership'. ***Bio-Logical Freedom**; feeling free to swim in the rivers of Mother Earth without fear of reprisal.*
@@ -45,24 +50,7 @@ Awakening possibility and creative insight; refine the taste, and increase knowl
 **Tools For Understanding.**
 *An integrated set of processes that allow the often hidden insight of human expertise to be captured and converted into specific actionable know-how that can be transferred to someone. Cultivating a more desirable, fulfilling, life supporting; Ecologically Modern and Realistic Lifestyle.*
 
-[**Life*Styles* For Change ~ Becoming a part of the circle of life.**](./lifeStylesForChange)
-
-#### *The Ecology Is The Economy.*
-
-**Conservation as a consequence of lifestyle and work.**
-
-#### Accepting personal responsibility; truthful living.
-***Librating Ones Authenticity***
-
-***Producing Something Meaningful.*** Projecting one's lifestyle into a future possibility, connected with that which makes living possible. Living the creative process; honoring the Soul through cultivating a lifestyle that feeds the Soil.
-
-**Examining ecologic behaviors.**
-
-*Loss of biodiversity is directly related to the lifestyles of human beings.*
-
-*It's time to start comparing consumption and lifestyle, and checking this against nature's ability to provide for this consumption. Humans have destroyed and continue to destroy the habitats of species on a daily basis. It's time to own up to the realities of what that translates to for the generations to come, aesthetically and otherwise. It's time to be *Ecologically Realistic* and get back to the *heart* of what *life* is all about.*
-
-**This is about honesty and responsibility. Honesty; admitting to what is. Responsibility; not blaming someone else.**
+[**Life*Styles* For Change ~ Becoming a part of the circle of life.**](./lifeStylesForChangeIntro)
 
 #### Eco-Logical Movement And Enterprise
 
@@ -100,7 +88,7 @@ Today’s young generation are being handed the biggest challenge of all; ***'Cu
 
 Not addressing immediate needs is an insult to the young. Individuals with passion, purpose and practical skills make the world a better place.
 
-**It's time to call home. To Act and for those acts to connect and transfer through too Mother Earth, soil to soul cultivating cultures that are healing.** Knowing what to do, and doing it. Taking the steps, teaching what one needs to learn.
+**It's time to call home. To Act and for those acts to connect and transfer through too Mother Earth, soil to soul cultivating cultures that are healing.** Actionable know-how. Knowing what to do, and doing it. Taking the steps, teaching what one needs to learn.
 
 #### Explore
 
