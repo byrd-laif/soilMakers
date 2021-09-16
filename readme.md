@@ -16,7 +16,7 @@
 #### Claiming ones fundamental human birthright; *freely connecting with that which makes living possible.*
 Being attracted to all that is alive and vital, the human tendency to relate and connect with life and natural processes - ***Is The Expression Of A Bio-Logical Need.***
 
-***Power as responsibility rather than domination.*** A radical sift from Bio-Logical Warfare; built on guilt, fear and force to an 'Eco-logical Partnership'. ***Bio-Logical Freedom**; feeling free to swim in the rivers of Mother Earth without fear of reprisal.*
+***Power as responsibility rather than domination.***A radical sift from Bio-Logical warfare; built on guilt, fear and force to an 'Eco-logical Partnership'. ***Bio-Logical Freedom**; feeling free to swim in the rivers of Mother Earth without fear of reprisal.*
 
 *Partnership systems support mutually respectful and caring relations.*
 
