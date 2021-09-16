@@ -1,13 +1,26 @@
-# *Soil Makers
-*Cultivating Ecological Literacy*
-
-## *The Ecology Is The Economy.*
+# *Soil Makers*
 
 **Conservation as a consequence of lifestyle and work.**
 
-### Putting nature on the balance sheet.
+## *The Ecology Is The Economy.*
+**Putting nature on the balance sheet.**
 
 ***Transforming an Environ-mental withdraw to an Environ-mental Deposit for the future. Mobilizing bio-resources (organic refuse) and converting this into bio-gold, Bio-Logical Body and Earth Care Services & Commodities.***
+
+### Eco-Logical Movement And Enterprise
+
+**Cultivating a *Bio-logical Economy* creates the market for an *Ecologically Sustainable* future.**
+
+***Creating co-Evolutionary Leaders;*** Revolutionary Eco-logical Actions that connect and are transferable through to nature. ***Bio-Logical Body and Earth Care Systems*** provide the environment for an enlightened, sustainable future.
+
+#### Claiming ones fundamental human birthright; *freely connecting with that which makes living possible.*
+Being attracted to all that is alive and vital, the human tendency to relate and connect with life and natural processes - ***Is The Expression Of A Bio-Logical Need.***
+
+***Power as responsibility rather than domination.*** A radical sift from Bio-Logical Warfare; built on guilt, fear and force to an 'Eco-logical Partnership'. ***Bio-Logical Freedom**; feeling free to swim in the rivers of Mother Earth without fear of reprisal.*
+
+*Partnership systems support mutually respectful and caring relations.*
+
+***Reconciliation; forgiveness, free to turn and question: Where does someone go from here?***
 
 ### *Bio-Logical Body And Earth Care; Connecting And Healing Soil To Soul.*
 
@@ -21,16 +34,7 @@ Giving someone courage; for changing what must be altered, empathy for accepting
 
 **Lifestyles For Change; Bringing Life To Style.**
 
-*An Archaic Revival; the sharing of a living language, learning how to discover patterns which are deep and capable of generating life.*
-
-#### Claiming ones fundamental human birthright; *freely connecting with that which makes living possible.*
-Being attracted to all that is alive and vital, the human tendency to relate and connect with life and natural processes - ***Is The Expression Of A Bio-Logical Need.***
-
-***Power as responsibility rather than domination.*** A radical sift from Bio-Logical Warfare; built on guilt, fear and force to an 'Eco-logical Partnership'. ***Bio-Logical Freedom**; feeling free to swim in the rivers of Mother Earth without fear of reprisal.*
-
-*Partnership systems support mutually respectful and caring relations.*
-
-***Reconciliation; forgiveness, free to turn and question: Where does someone go from here?***
+*An Archaic Revival; the sharing of a living language, learning how to discover patterns which are deep and capable of re-Generating Life.*
 
 [Live Blog On Matrix - Soil Makers](https://matrix.to/#/!EwezVvVjpxKVCMIuRM:matrix.org?via=matrix.org&via=kde.org&via=converser.eu)
 [Soil Makers On Open Collective](https://opencollective.com/soil-makers)
@@ -55,12 +59,6 @@ Awakening possibility and creative insight; refine the taste, and increase knowl
 *An integrated set of processes that allow the often hidden insight of human expertise to be captured and converted into specific actionable know-how that can be transferred to someone. Cultivating a more desirable, fulfilling, life supporting; Ecologically Modern and Realistic Lifestyle.*
 
 [**Life*Styles* For Change ~ Becoming a part of the circle of life.**](./lifeStylesForChange/lifeStylesForChangeIntro.md)
-
-### Eco-Logical Movement And Enterprise
-
-**Cultivating a *Bio-logical Economy* creates the market for an *Ecologically Sustainable* future.**
-
-***Creating co-Evolutionary Leaders;*** Revolutionary Eco-logical Actions that connect and are transferable through to nature. ***Bio-Logical Body and Earth Care Systems*** provide the environment for an enlightened, sustainable future.
 
 #### *Cultivating The Mother Tree;* An archaic revival of Wo-Mans Gaian connection through honoring the feminine. Soil Makers; cultivating an ally, bonding with Mother Earth as *'The Live And Dynamic Co-evolutionary Partner'* in the shaping of the set, setting and the process.
 
