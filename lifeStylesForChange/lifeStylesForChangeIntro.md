@@ -35,7 +35,9 @@ A series of guided invitations, natural cycles, bring one into the present momen
 
 #### *Once discovered as a fluid field of relationships, one can redefine it, as an entity; something that has a real existence, making it operational.*
 
+#### *Cultivating The Mother Tree;* An archaic revival of Wo-Mans Gaian connection through honoring the feminine. Cultivating an ally, bonding with Mother Earth as *'The Live And Dynamic Co-evolutionary Partner'* in the shaping of the set, setting and the process.
 
+*A mutually beneficial; 'symbiotic legacy venture' with Mother Earth. An Eco system that operates to deliver a positive bio-logical impact; symbiotically profiting through seeding the soil, the Womb of Mother Earth.*
 
 
 

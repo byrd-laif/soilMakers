@@ -1,11 +1,11 @@
 # *Soil Makers*
 
-**Conservation as a consequence of lifestyle and work.**
+**Conservation as consequence of lifestyle and work.**
 
 ## *The Ecology Is The Economy.*
-**Putting nature on the balance sheet.**
+**Nature is the *balance sheet.***
 
-***Transforming an Environ-mental withdraw to an Environ-mental Deposit for the future. Mobilizing bio-resources (organic refuse) and converting this into bio-gold, Bio-Logical Body and Earth Care Services & Commodities.***
+***Transforming an environmental withdraw to an environmental deposit for the future. Mobilizing bio-resources (organic refuse) and converting this into bio-gold, Bio-Logical Body and Earth Care Services & Commodities.***
 
 ### Eco-Logical Movement And Enterprise
 
@@ -16,15 +16,13 @@
 #### Claiming ones fundamental human birthright; *freely connecting with that which makes living possible.*
 Being attracted to all that is alive and vital, the human tendency to relate and connect with life and natural processes - ***Is The Expression Of A Bio-Logical Need.***
 
-***Power as responsibility rather than domination.***A radical sift from Bio-Logical warfare; built on guilt, fear and force to an 'Eco-logical Partnership'. ***Bio-Logical Freedom**; feeling free to swim in the rivers of Mother Earth without fear of reprisal.*
+***Power as responsibility rather than domination.*** A radical sift from Bio-Logical warfare; built on guilt, fear and force to an 'Eco-logical Partnership'. ***Bio-Logical Freedom**; feeling free to swim in the rivers of Mother Earth without fear of reprisal.*
 
 *Partnership systems support mutually respectful and caring relations.*
 
 ***Reconciliation; forgiveness, free to turn and question: Where does someone go from here?***
 
-### *Bio-Logical Body And Earth Care; Connecting And Healing Soil To Soul.*
-
-**A Living Legacy - Ecology As Art; curating symbiotic relationships between Wo-Man, organisms and their environments.**
+#### *Connecting And Healing Soil To Soul.*
 
 ***Acting As Curator; someone who has the care of something.*** Claiming ones relationship with Mother Nature, cultivating ones own legacy so future generations have a place to call Home.
 
@@ -60,21 +58,13 @@ Awakening possibility and creative insight; refine the taste, and increase knowl
 
 [**Life*Styles* For Change ~ Becoming a part of the circle of life.**](./lifeStylesForChange/lifeStylesForChangeIntro.md)
 
-#### *Cultivating The Mother Tree;* An archaic revival of Wo-Mans Gaian connection through honoring the feminine. Soil Makers; cultivating an ally, bonding with Mother Earth as *'The Live And Dynamic Co-evolutionary Partner'* in the shaping of the set, setting and the process.
+The *seeds of opportunity;* an awareness, taking the moment and transforming it into a better situation, something new and beautiful. Learning to live in the light of Nature.
 
-*A mutually beneficial; 'symbiotic legacy venture' with Mother Earth. An Eco system that operates to deliver a positive bio-logical impact; symbiotically profiting through seeding the soil, the Womb of Mother Earth.*
+Being responsible stewards of Mother Earth means taking to heart the current planetary healing crisis. Accepting this circumstance, *responsibility* then means *ability, an action oriented *authentic response* to the situation as it is *now.*
 
-*An opportunity for the creation of something new and beautiful.*
+#### *Environ-Mental Health
 
-Being responsible stewards of the Earth means taking to heart the current planetary healing crisis. Having accepted this circumstance *responsibility* then means *ability,* to have a *creative response* to the situation as it is *now.*
-
-The *seeds of opportunity* and awareness, to take the moment and transform it into a better situation.
-
-#### *Environ-Mental Health*
-
-*The ethics of ecology;* Learning to Live in the light of Nature.
-
-The cultivation of a more attuned and responsive awareness of Wo-Mans ecological interconnections, recognizing feelings which are in touch with reality. Feelings provide a powerful way of finding out which lifestyle patterns are balanced and which are not.
+*The aesthetics of ecology.* The cultivation of a more attuned and responsive awareness of Wo-Mans ecological interconnections, recognizing feelings which are in touch with reality. Feelings provide a powerful way of finding out which lifestyle patterns are balanced and which are not.
 
 #### *Quality Of Life*
 

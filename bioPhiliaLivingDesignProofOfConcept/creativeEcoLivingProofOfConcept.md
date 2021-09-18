@@ -5,7 +5,7 @@ date: 2021-02-28
 
 # Bio*Philia* Living: Designing For Connection; The Healing Spirit Of Nature.
 
-***An archaic revival; the sharing of a living language, learning how to discover patterns which are deep and capable of generating life.***
+***An archaic revival; the sharing of a living language, learning how to discover patterns which are deep and capable of reGenerating life.***
 
 ## *Designing Through Spirit; Using curiosity, intuition and imagination, the æsthetics of a natural law.*
 
@@ -14,9 +14,9 @@ date: 2021-02-28
 *Proof of concept: Oct 2016 - Jan 2020 (guest reviews available upon request)*
 In the process of accepting the truth the deepest passion was reveled. It was in fact a part of the soul that was healed in this process. *The compassion of Mother Earth to forgive. And Give. Only when compassion is present will the heart revel the truth, for only then one is capable of facing the truth.*
 
-### Conservation As A Consequence Of Lifestyle And Work. 
+### Conservation As Consequence Of Lifestyle And Work. 
 
-**Regenerative urban living; The cultivation of a mutually symbiotic habitat, that honors the individual as a *biological organism* in the *built environment*, within the *biophysical environment.***
+**reGenerative urban living; The cultivation of a mutually symbiotic habitat, that honors the individual as a *biological organism* in the *built environment*, within the *biophysical environment.***
 
 #### Becoming a part of the circle of life. The *symbiotic relationships* and feelings generated between *Wo-Man and Mother Earth* (environment) are highlighted, not human and 'things'.
 
@@ -28,9 +28,9 @@ Meaningful living; life-giving and life-sustaining with a high degree of refinem
 
 ***Curated to experience the enjoyment of being connected with nature.***
 
-Everyone has an inherit need to connect to nature and other biotic forms due to their *Evolutionary Dependence* on it for *Survival* and *Personal Fulfillment.* This is the shared human birthright; the biological need to connect.
+Everyone has an inherit need to connect to nature and other biotic forms due to their *Evolutionary Dependence* on it for *Survival* and *Personal Fulfillment.* The shared human birthright; the biological need to connect.
 
-It is when ones feelings are in touch with the reality of the forces in their environment, that someone can begin to see the patterns which are capable of generating life.
+It is when ones feelings are in touch with the reality of the forces in their environment, that someone can begin to see the patterns which are capable of reGenerating life.
 
 ![*Patio garden bird.*](./vivariumGeorgeTownGallery/vivariumPatio/vivariumGTPatioBirdweb.JPG)
 
@@ -38,7 +38,7 @@ It is when ones feelings are in touch with the reality of the forces in their en
 
 ![moringa tree bloom](./vivariumGeorgeTownGallery/vivariumGarden/vivariumMoringaFlowers02Web.JPG)
 
-***Soil Makers; being the gardener, an open hand, bringing seed to soil, the womb of Mother Earth, the beginnings of life, love and endings. Each bloom in the doing of this most holy act.***
+***Soil Makers; being the gardener, an open hand, bringing vitality to soil, the womb of Mother Earth, the beginnings of life, love and endings. Each bloom in the doing of this most sacred act.***
 
 Bio-logically re-connecting; an archaic revival of Wo-Mans symbiotic microbial Gaian connection, honoring the feminine through feeling, connecting soil to soul.
 
@@ -56,7 +56,7 @@ Using the biological relationships with *'Mother Earth'* as a path of discovery 
 
 A living design built upon the inherent intuitive 'biophilic' response to natural built forms, natural settings and systems. Designed to generate healthy interactions by encouraging their spontaneous occurrence.
 
-New ways of thinking, seeing and feeling; relating to the Natural World can be expanded, experienced through connecting. Causing a total shift of posture, perceptions, beliefs, and thought processes. 
+New ways of thinking, seeing, touching and feeling; relating to the Natural World can be expanded, experienced through connecting. Causing a total shift of posture, perceptions, beliefs, and thought processes. 
 
 ***Transforming ones relationship with the Natural World.*** Making a habit to feel where one is *within the circle of life,* too understand how they are moving together As One.
 
@@ -102,7 +102,6 @@ Going beyond, using the feelings to expand into the 'living' style of ones life 
 
 #### *Vivarium ~ place of life*
 
-**Conservation as a consequence of lifestyle and work.**
 *An interactive space curated to connect; explore, learn, reflect, ... on how people interact, impact and live within personal environments; homes, work, travel, ..., spaces.*
 
 **Vivarium**- (Latin, literally for "place of life"; plural: vivaria or vivariums) is an area, usually enclosed, for keeping and raising animals or (in this case People and biological ecosystems) plants for observation or research. Often, a portion of the ecosystem for a particular species is simulated on a smaller scale, with controls for environmental conditions.
