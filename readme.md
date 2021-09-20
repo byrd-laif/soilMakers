@@ -38,9 +38,9 @@ Giving someone courage; for changing what must be altered, empathy for accepting
 [Soil Makers On Open Collective](https://opencollective.com/soil-makers)
 
 ### *Vivarium Salon ~ place of life*
-*Global Communities For Local Impacts.*
+*Networking Global Communities For Local Impacts.*
 
-**Vivarium Salon Culture; Cross-pollinate and connect, sharing diverse feelings about the ecological future.**
+**Vivarium Salon Culture; Cross-pollinate and connect, sharing diverse feelings about Mother Earth and the ecological future.**
 
 **At a time of ecological and economic precarity, *salon style* sharing offers space for connecting; sharing ideas and feelings, rethinking and remaking mutually symbiotic relations within the body of one-self, one-another and Mother Earth.**
 
@@ -54,13 +54,13 @@ Awakening possibility and creative insight; refine the taste, and increase knowl
 ### *Salon Programs:* Designed to be Fun, Creative, Interactive and Resourceful.
 
 **Tools For Understanding.**
-*An integrated set of processes that allow the often hidden insight of human expertise to be captured and converted into specific actionable know-how that can be transferred to someone. Cultivating a more desirable, fulfilling, life supporting; Ecologically Modern and Realistic Lifestyle.*
+*An integrated set of processes that allow the often hidden insight of human expertise to be captured and converted into specific **Actionable Know-how** that can be transferred to someone. Cultivating a more desirable, fulfilling, life supporting; Ecologically Modern and Realistic Lifestyle.*
 
 [**Life*Styles* For Change ~ Becoming a part of the circle of life.**](./lifeStylesForChange/lifeStylesForChangeIntro.md)
 
 The *seeds of opportunity;* an awareness, taking the moment and transforming it into a better situation, something new and beautiful. Learning to live in the light of Nature.
 
-Being responsible stewards of Mother Earth means taking to heart the current planetary healing crisis. Accepting this circumstance, *responsibility* then means *ability, an action oriented *authentic response* to the situation as it is *now.*
+Being responsible stewards of *Mother Earth* means taking to heart the current *planetary healing crisis*. Soil to Soul; Humanity, finding them selves a part of the circle of existence, logically *Accepting* this circumstance, *responsibility* then means *ability*- an action oriented *authentic response* to the situation as it is *now.*
 
 #### *Environ-Mental Health
 
@@ -74,7 +74,7 @@ Loss of biodiversity and ecosystems are catastrophic, impacts are symbiotic and 
 
 Today’s young generation are being handed the biggest challenge of all; ***'Cultivating Biodiversity'*** the symbiotic living ***'Fabric of Life'*** of this planet.
 
-Not addressing immediate needs is an insult to the young. Individuals with passion, purpose and practical skills make the world a better place.
+Not addressing immediate needs is an insult to the young. Individuals with passion, purpose and practical skills make the *world* a better place.
 
 **It's time to call home. To Act and for those acts to connect and transfer through too Mother Earth, soil to soul cultivating cultures that are healing.** Actionable know-how. Knowing what to do, and doing it. Taking the steps, teaching what one needs to learn.
 

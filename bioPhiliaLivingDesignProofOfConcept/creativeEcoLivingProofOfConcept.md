@@ -16,11 +16,11 @@ In the process of accepting the truth the deepest passion was reveled. It was in
 
 ### Conservation As Consequence Of Lifestyle And Work. 
 
-**reGenerative urban living; The cultivation of a mutually symbiotic habitat, that honors the individual as a *biological organism* in the *built environment*, within the *biophysical environment.***
+**reGenerative urban living; The cultivation of a mutually symbiotic habitat, that honors the individual as a *biological organism* in the *built environment*, within the *biophysical environment. Creating possibility for bio-positive economic exchanges to occur.***
 
-#### Becoming a part of the circle of life. The *symbiotic relationships* and feelings generated between *Wo-Man and Mother Earth* (environment) are highlighted, not human and 'things'.
+#### Becoming a part of the circle of life. The *symbiotic relationships* and feelings generated between *Wo-Man and Mother Earth* (environment) are highlighted, not humans and 'things'.
 
-***Harvesting Knowledge:*** Through cultivating the ability of observation, curiosity, intuition and imagination. Discovering patterns which are alive. Cataloging felt experiences, sources in the natural environment, of positive biological, physical and emotional states that humans experience. Recreating them in the built and cultivated environments to enhance connection and support emotional, mental, physical and biological health.
+***Harvesting Knowledge:*** Through cultivating the ability of observation, curiosity, intuition and imagination. Discovering patterns which are alive. Cataloging felt experiences, sources in the natural environment, of positive biological, physical and emotional states that humans experience. Recreating them in the built and cultivated environments to enhance connection and support emotional, mental, physical and biological health. While exploring where and what the surpluses generated are, *revenue streams that connect*.
 
 Meaningful living; life-giving and life-sustaining with a high degree of refinement and comfort. Adaptable to all practical needs of life within an attractive built environment.
 
@@ -34,11 +34,11 @@ It is when ones feelings are in touch with the reality of the forces in their en
 
 ![*Patio garden bird.*](./vivariumGeorgeTownGallery/vivariumPatio/vivariumGTPatioBirdweb.JPG)
 
-#### *Naturally taping into the abundant emotions of joy, grace, awe, wholeness, passion and compassion that are experienced from recognizing the beauty in nature, feeling one with nature.*
+#### *Naturally taping into the abundant emotions of joy, grace, awe, wholeness, passion and compassion that are experienced from recognizing the beauty in nature, feeling one with nature, a part of that beauty.*
 
 ![moringa tree bloom](./vivariumGeorgeTownGallery/vivariumGarden/vivariumMoringaFlowers02Web.JPG)
 
-***Soil Makers; being the gardener, an open hand, bringing vitality to soil, the womb of Mother Earth, the beginnings of life, love and endings. Each bloom in the doing of this most sacred act.***
+***Soil Makers; being the gardener, an open hand, bringing vitality to soil, connecting to the womb of Mother Earth, the beginnings of life, love and endings. Each bloom in the doing of this most sacred act.***
 
 Bio-logically re-connecting; an archaic revival of Wo-Mans symbiotic microbial Gaian connection, honoring the feminine through feeling, connecting soil to soul.
 
@@ -50,13 +50,13 @@ Using the biological relationships with *'Mother Earth'* as a path of discovery 
 
 ***People are deeply nourished by the process of creating wholeness.***
 
-***Healing environments*** allow someone to draw emotional support from their settings through the Symbiotic Energy, the living energy of the space. One then *feels free* to move around and interact unselfconsciously, to connect and *combine ones life with the life of the living* systems and elements within the built space. Achieved by bringing in a number of high quality visual and intuitive interactions among the bio-logical ecosystems and elements of a curated space and its users.
+***Healing environments*** allow someone to draw emotional support from their settings through the Symbiotic Energy, the living energy of the space. One then *feels free* to move around and interact unselfconsciously, to connect and *combine ones life with the life of the living* systems and elements within the built space. Achieved by bringing in a number of high quality visual and intuitive *interactions* among the bio-logical ecosystems and other visceral elements of a curated space and its users.
 
 ![Open Space living room, stone floor](./vivariumGeorgeTownGallery/vivariumLivingRoom/vivariumGTLivingroomRelaxWeb.JPG)
 
-A living design built upon the inherent intuitive 'biophilic' response to natural built forms, natural settings and systems. Designed to generate healthy interactions by encouraging their spontaneous occurrence.
+A living design built upon the inherent intuitive 'biophilic' response to natural built forms, natural settings and Eco systems. Designed to generate healthy interactions by encouraging their spontaneous occurrence.
 
-New ways of thinking, seeing, touching and feeling; relating to the Natural World can be expanded, experienced through connecting. Causing a total shift of posture, perceptions, beliefs, and thought processes. 
+New ways of thinking, seeing, touching and feeling; relating to the Natural World can be expanded, experienced through connecting. Causing a total shift of posture, perceptions, beliefs, and thought processes.
 
 ***Transforming ones relationship with the Natural World.*** Making a habit to feel where one is *within the circle of life,* too understand how they are moving together As One.
 
@@ -68,13 +68,13 @@ New ways of thinking, seeing, touching and feeling; relating to the Natural Worl
 
 ***Discovering what kind of meaning to give it ...***
 
-**Life is in motion, every day movement is a dance, what someone sees, smells, hears, how one brings their consciousness to the experience, to the soil, to a tree, ..., a bird in the garden, and then brings it into the body, that becomes the dance; the felt experience of the shared breath made visible.**
+**Life is in motion, every day movement is a dance, what someone sees, smells, hears, how one brings their consciousness to the experience, to the soil, to a tree, ..., to a bird in the garden, and then brings it *into the body*, that becomes the dance; the felt experience of *being in organism*, the shared breath made visible.**
 
-*Preserving the character of somethings true nature is achieved through connection.*
+#### *Preserving the character of somethings true nature is achieved through connection.*
 
-**A ritual is a movement that has a purpose, to achieve something real in ones life. Dancing within life, creating a sense of reverence for the process.**
+**A ritual is a movement that has a purpose, to achieve something real, something meaningful in ones life. Dancing within life, creating a sense of reverence for the process.**
 
-*... starting over ... nothing lasts ... What someone can have control over is how one copes with what happens, being adaptable to change. ...*
+*... starting over ... nothing lasts ... What someone *can* have control over, is how one copes with what happens, being adaptable to change. ...*
 
 **Art is a way** ...  finding a common way to move forward through to nature ... finding the commonalities.
 
@@ -90,9 +90,9 @@ Urban environments are not nurturing environments in and of themselves, but with
 
 ***Honoring the uniqueness of the self,*** breaking free of boundaries, having reverence for ones own body within nature. Avoiding pre-stylization of movement in life, taking off the 'cultural amour', allowing direct experience to evoke feelings. 
 
-Going beyond, using the feelings to expand into the 'living' style of ones life through the kinesthetic sense.
+Going beyond, using the feelings to expand into the 'living' style of ones life through All the senses, connected within the built and cultivated forms.
 
-**Love;** to feel how things are, allowing the physical body too recognize itself as part of nature.
+**Love;** to feel how things are, allowing the physical body too recognize itself as part of nature, a part of the living systems.
 
 ***Calling home; Actions that biologically transfer through nature.***
 
