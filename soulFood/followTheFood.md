@@ -24,7 +24,7 @@ date: 2021-03-09
 
 **Intelligence is not to see that nature is alive, its to recognize when its seen. The felt experience of being in organism; standing as a mirror before nature as its object. *Woman is natures destination; being endowed within by the spirit of selfless service, as such She can speak for Mother Earth.* Being subject of this land means caring for its next generations use.**
 
-**This will document the alchemical journey of *Soul Food,* from its soil source, cultivation, harvest, preservation/preparation to culinary delight, and its multi dimensional re-Cultivated return to source, soil.**
+**The alchemical journey of *Soul Food,* from its soil source, cultivation, harvest, preservation/preparation to culinary delight, and its multi dimensional re-Cultivated return to source, soil.**
 
 ![Soul Food](./soilToSoulFoodImages/soulFood01.jpg)
 
@@ -38,19 +38,19 @@ A symbiotic microbial messenger; from humus, through human, to humus. Returned t
 
 **What ever the physical mind feeds upon is what the *Earth Body* calls to *Wo-Man*, *Soil too Soul* they receive.**
 
-**As such this journey will begin in a field,** the soils cultivated by the Nam Khan River, chosen for the close proximity and open access. The Nam Khan River is a major tributary of the river Mekong, with which it joins at Luang Prabang. A journey 6.5km up river to harvest soil knowledge at source, and document cultivation from seed to harvest.
+**The journey begins in a field,** the soils cultivated by the Nam Khan River, chosen for the close proximity and open access. The Nam Khan River is a major tributary of the river Mekong, with which it joins at Luang Prabang. A journey 6.5km up river to harvest soil knowledge at source, documenting cultivation from seed to harvest.
 
-The alchemical journey will then continue into the personal home kitchen, with recipes of soul food for the physical body. Moving through the physical body, bio-matter enters into a cyclical fermentation process, whereupon the spirit is released. 
+The alchemical journey continuing into the personal home kitchen, with recipes of soul food for the physical body. Moving through the physical body, bio-matter enters into a living cyclical fermentation process, whereupon the spirit is released. 
 
-From soil womb, through alchemical tomb, Reborn- emerging whole as unified humus soil, pro-biotic soul food for the earth body.
+From soil womb, through alchemical tomb; Reborn- emerging whole as unified humus soil, pro-biotic soul food for the earth body.
 
 Reincarnate; To cause to be reborn in another body; incarnate again.
 
-To cause to appear in a new form; refurbish or revitalize.
+To cause to appear in a new form; refurbished and revitalized.
 
 ![Nam Khan River](./soilToSoulFoodImages/bambooBridgeNamKhan01.jpg)
 
-#### *To Reveal a path toward healing the rift that grows between Wo-Man and nature.*
+#### *To Reveal a path toward healing the rift that grows between Wo-Man and Nature.*
 
 Re-connect; bringing the *physical body* back into conversation with all that is green and growing. A *universe* that never stopped speaking to *Earth Wo-Man,* even when they forgot how to listen.
 

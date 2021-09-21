@@ -20,7 +20,7 @@ In the process of accepting the truth the deepest passion was reveled. It was in
 
 #### Becoming a part of the circle of life. The *symbiotic relationships* and feelings generated between *Wo-Man and Mother Earth* (environment) are highlighted, not humans and 'things'.
 
-***Harvesting Knowledge:*** Through cultivating the ability of observation, curiosity, intuition and imagination. Discovering patterns which are alive. Cataloging felt experiences, sources in the natural environment, of positive biological, physical and emotional states that humans experience. Recreating them in the built and cultivated environments to enhance connection and support emotional, mental, physical and biological health. While exploring where and what the surpluses generated are, *revenue streams that connect*.
+***Harvesting Knowledge:*** Through cultivating the ability of observation, discovering patterns which are alive. Cataloging felt experiences, sources in the natural environment, of positive biological, physical and emotional states that humans experience. Recreating them in the built and cultivated environments to enhance connection and support emotional, mental, physical and biological health. While exploring where and what the surpluses generated are, *revenue streams that connect*.
 
 Meaningful living; life-giving and life-sustaining with a high degree of refinement and comfort. Adaptable to all practical needs of life within an attractive built environment.
 
