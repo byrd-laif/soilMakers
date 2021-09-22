@@ -14,12 +14,16 @@ date: 2018-08-13
 
 ![Enzyme Spa](./enzymeImages/enzymeWoodHempBrush.JPG)
 
-### Pro-biotic Eco-enzyme is *Water Therapy;* forgiveness, healing through nature. Connecting with things that make living possible, the practice of spending time *cultivating living healing water* for the purpose of enhancing whole health. *Bio-logical Body And Earth Care,* wellness, and happiness. A practice of *symbiotic connection* within the natural world and with each other.
+### Pro-biotic Eco-enzyme is *Water Therapy;* Forgiveness and healing through nature. 
+
+Connecting with things that make living possible, the practice of spending time *cultivating living healing water* for the purpose of enhancing whole health.
+
+Ancestral Healing- *Bio-logical Body and Earth care,* wellness, and happiness. A practice of *symbiotic connection* within the natural world and with each other.
 
 ![Enzyme Spa Glass Brew](./enzymeImages/enzymeGlassBrew.jpg) 
 
 ***Water Alchemy; Self-care that goes far beyond the self, bio-logically re-connecting.***
-Symbiotically nourishing, fortifying and gentle. 
+Symbiotically cleansing, nourishing, fortifying and gentle. 
 
 Remarkably enough the Physical Body and Mother Earth find natural healing benefits from this one easy process.
 
@@ -58,7 +62,9 @@ Natural processes that cleanse the water can take years, decades, or even centur
 
 *Every part of the World is given its character, essentially, by a small number of patterns/habits which repeat themselves over and over again.*
 
-**Home Cleaning products and fertilizers made with chemicals and pesticides pollute the underground water, rivers and surrounding ecosystems.** Pharmaceutical drugs and personal care products, also manufactured by many pharmaceutical companies (such as sunscreen lotions, lipsticks, deodorants, perfumes, body soaps, and shampoos, ...), are produced in staggeringly huge quantities; **often equaling or surpassing agrochemicals in tonnage.** The volume consumed is simply astounding. All of these go into the ecosystem, most of them into waste treatment systems. These conventional body and home cleaning products contain harmful amounts of chemicals such as phosphate, nitrates, ammonia, chlorine etc. The accumulated effect of these chemicals released from every household causes significant damage to the health of the environment and the body.
+**Home Cleaning products and fertilizers made with chemicals and pesticides pollute the underground water, rivers and surrounding ecosystems.** Pharmaceutical drugs and personal care products, also manufactured by many pharmaceutical companies (such as sunscreen lotions, oral products, lipsticks, deodorants, perfumes, body soaps, and shampoos, ...), are produced in staggeringly huge quantities; **often equaling or surpassing agrochemicals in tonnage.** 
+
+**The volume consumed is simply astounding.** All of these go into the ecosystem, most of them into waste treatment systems. These conventional body and home cleaning products contain harmful amounts of chemicals such as phosphate, nitrates, ammonia, chlorine etc. The accumulated effect of these chemicals released from every household causes significant damage to the health of the environment and the body.
 
 **Clean Water Is Clean Air.**
 
@@ -66,7 +72,7 @@ Natural processes that cleanse the water can take years, decades, or even centur
 
 **The fact is that rivers are being polluted by human activities, especially in urban areas. More than half of the world's population lives closer than 3km to a freshwater body, many are river networks.**
 
-**Mother Earths Rivers Are Breathing, fresh water lakes, rivers, streams ... breath, however they are now so toxic they are exhaling all that humanity has given them, toxic water is toxic air and rain. This is the current toxic trend, a rape and pillage lifestyle of using Mother Earth, giving nothing meaningful in return.**
+**Mother Earths Rivers Are Breathing, fresh water lakes, rivers, streams ... breath. Now so toxic they are exhaling all that humanity has given them, toxic water is toxic air and rain. The current toxic cycle; a trend of rape and pillage, a lifestyle of using Mother Earth, giving nothing meaningful in return.**
 
 Increased urbanization has introduced a staggeringly large volume of contaminants to rivers, more than 80% of municipal wastewater is still directly discharged into the environment. Most of the pollutants come from untreated wastewater, agricultural runoffs, and increased sediment accumulation.
 

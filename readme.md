@@ -40,9 +40,9 @@ Giving someone courage; for changing what must be altered, empathy for accepting
 ### *Vivarium Salon ~ place of life*
 *Networking Global Communities For Local Impacts.*
 
-**Vivarium Salon Culture; Cross-pollinate and connect, sharing diverse feelings about Mother Earth and the ecological future.**
+**Vivarium Salon Culture; Cross-pollinate and connect, sharing diverse ideas and feelings about Mother Earth and the ecological future.**
 
-**At a time of ecological and economic precarity, *salon style* sharing offers space for connecting; sharing ideas and feelings, rethinking and remaking mutually symbiotic relations within the body of one-self, one-another and Mother Earth.**
+**At a time of ecological and economic precarity, *salon style discourse* offers a safe space for connecting; rethinking and remaking mutually symbiotic relations within the body of one-self, one-another and Mother Earth.**
 
 [Real time on Matrix; Join the conversation in the interactive **Vivarium Salon**](https://matrix.to/#/!LSpVaMCiYQehpJONFF:matrix.org?via=matrix.org&via=t2bot.io&via=stux.chat)
 
@@ -60,9 +60,11 @@ Awakening possibility and creative insight; refine the taste, and increase knowl
 
 The *seeds of opportunity;* an awareness, taking the moment and transforming it into a better situation, something new and beautiful. Learning to live in the light of Nature.
 
-Being responsible stewards of *Mother Earth* means taking to heart the current *planetary healing crisis*. Soil to Soul; Humanity, finding them selves a part of the circle of existence, logically *Accepting* this circumstance, *responsibility* then means *ability*- an action oriented *authentic response* to the situation as it is *now.*
+Being responsible stewards of *Mother Earth* means taking to heart the current *planetary healing crisis*.
 
 #### *Environ-Mental Health
+
+**Soil to Soul; Humanity, finding them selves a part of this circle of existence, thereby logically *Accepting* this circumstance, *responsibility* then means *ability*- an action oriented *authentic response* to the situation as it is, in the present moment.**
 
 *The aesthetics of ecology.* The cultivation of a more attuned and responsive awareness of Wo-Mans ecological interconnections, recognizing feelings which are in touch with reality. Feelings provide a powerful way of finding out which lifestyle patterns are balanced and which are not.
 

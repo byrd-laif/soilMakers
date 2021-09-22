@@ -12,13 +12,19 @@ date: 2018-08-13
 Ninety percent of cells contained in the human body are microbes. Microbes produce hormones that regulate growth, stress
 response, and immunity in plants and animals. *All components of an ecosystem are dependent on healthy soil for the system to function optimally.*
 
-### Bokashi is *Soil Therapy;* forgiveness, healing soil to soul. Connecting with things that make living possible, the practice of spending time *cultivating fertile soil* for the purpose of enhancing whole health. *Bio-logical Body And Earth Care,* wellness, and happiness. A practice of *symbiotic connection* within the natural world and with each other.
+### Bokashi is *Soil Therapy;* Forgiveness and healing through nature. 
+
+Connecting with things that make living possible, the practice of spending time *cultivating fertile soil* for the purpose of enhancing whole health.
+
+Ancestral Healing- *Bio-logical Body and Earth care,* wellness, and happiness. A practice of *symbiotic connection* within the natural world and with each other.
 
 **Soil life is fragile,** an estimated one third of global soils are degraded. Moreover, each year an estimated 24 billion tonnes of fertile soil are lost due to erosion alone.
 
-Building up, maintaining and conserving the fertility of different soil types around the world in the face of diverse climatic conditions is the biggest challenge of agriculture today. The key to soil fertility lies mostly in the humus content of soils.
+Building up, maintaining and conserving the fertility of different soil types around the world in the face of diverse climatic conditions is the biggest challenge of agriculture today. 
 
-Cultivating Probiotic Soil that’s the color of a 70% cocoa chocolate bar, free of chemicals and teeming with beneficial bacteria, protozoa, fungi and nematodes. Without them, the soil is dead. Chemical fertilizers are like feeding the body highly processed foods, empty calories that may fill one up in the short term but leave one vulnerable to disease and other problems over time. The life of the soil is part of the life of the plants grown in it, part of the body tending it, and part of the body eating from it all, soil to soul food.
+**The key to soil fertility lies mostly in the humus content of soils.**
+
+Cultivating Probiotic Soil that’s the color of a 70% cocoa chocolate bar, free of chemicals and teeming with beneficial bacteria, protozoa, fungi and nematodes. Without them soil is dead. Chemical fertilizers are like feeding the body highly processed foods, empty calories that may fill one up in the short term but leave one vulnerable to disease and other problems over time. The life of the soil is part of the life of the plants grown in it, part of the body tending it, and part of the body eating from it all, soil to soul food.
 
 ***Humility:*** The state of being Humble; Middle English, from Anglo-French, from Latin humilis low, humble, ***from humus earth;*** akin to Greek chthōn ***earth,*** chamai on ***the ground.***
 
