@@ -14,21 +14,22 @@ date: 2018-08-13
 
 ![Enzyme Spa](./enzymeImages/enzymeWoodHempBrush.JPG)
 
-### Pro-biotic Eco-enzyme is *Water Therapy;* forgiveness, healing water to soul. Connecting with things that make living possible, the practice of spending time *cultivating living healing water* for the purpose of enhancing whole health. *Bio-logical Body And Earth Care,* wellness, and happiness. A practice of *symbiotic connection* within the natural world and with each other.
+### Pro-biotic Eco-enzyme is *Water Therapy;* forgiveness, healing through nature. Connecting with things that make living possible, the practice of spending time *cultivating living healing water* for the purpose of enhancing whole health. *Bio-logical Body And Earth Care,* wellness, and happiness. A practice of *symbiotic connection* within the natural world and with each other.
 
 ![Enzyme Spa Glass Brew](./enzymeImages/enzymeGlassBrew.jpg) 
 
-***Water Alchemy; Self-care that goes far beyond the self, bio-logically re-connecting. Symbiotically nourishing, fortifying and gentle. Remarkably enough the Physical Body and Mother Earth find natural healing benefits from this one easy process.***
+***Water Alchemy; Self-care that goes far beyond the self, bio-logically re-connecting.***
+Symbiotically nourishing, fortifying and gentle. 
+
+Remarkably enough the Physical Body and Mother Earth find natural healing benefits from this one easy process.
 
 *Yes, Nature is that simple, effective and synergistic.*
 
 #### *What is Pro-biotic Eco-enzyme*
 
-**A simple process of encouraging natural fermentation by lactic acid-forming bacteria such as Lactobacillus species and naturally-occurring wild yeasts of fruit and plant food remnants and brown sugar.**
+**A simple process of encouraging natural fermentation by lactic acid-forming bacteria such as Lactobacillus species and naturally-occurring wild yeasts of fruit and plant food remnants and brown sugar.** The microbes eat the sugars, digesting them and excrete metabolites.
 
-**Through fermentation, the ingredients used for making Pro-biotic Eco-enzyme will have effect on each other, creating a complex but stable enzymatic ecosystem.** 
-
-The microbes eat the sugars, digesting them and excrete metabolites. A detoxification and transfer of anti-nutrients into nutrients occurs, with nutrient enhancement and the creation of micro-nutrients. An abundance of LAB lactic acid bacteria, yeasts, and molds that produce enzymes, break down and alter the original foods. 
+**Through fermentation, the ingredients used for making Pro-biotic Eco-enzyme will have effect on each other, creating a complex but stable enzymatic ecosystem.** A detoxification and transfer of anti-nutrients into nutrients occurs, with nutrient enhancement and the creation of micro-nutrients. An abundance of LAB lactic acid bacteria, yeasts, and molds that produce enzymes, break down and alter the original foods. 
 
 As fermentation progresses, the natural anti-bacterial properties of fruit peels are further enhanced as organic substances are decomposed, yielding secondary metabolites known as bio-active compounds or phytochemicals. The process creates new amino acids, organic acids, and antioxidants that didn’t originally exist in the raw material, naturally optimized to provide the most nutrition.
 
@@ -45,13 +46,17 @@ There are many targeted uses for these metabolites. LAB are applied in food prod
 
 #### *Why make Eco-Enzyme?*
 
-***The Gift of Life is in the giving, conservation is the consequence of production. Cultivating cultures that heal, symbiotically keep the body healthy while restoring vitality and strength to the environment. It is easily done at negligible cost, free of harmful pollutants, effective, and multipurpose.***
+***The Gift of Life is in the giving, conservation is the consequence of production.***
+
+Cultivating cultures that heal, symbiotically keep the body healthy while restoring vitality and strength to the environment. It is easily done at negligible cost, free of harmful pollutants, effective, and multipurpose.***
 
 ***WATER***
 
-**It is very difficult to reverse the effects of water pollution.** Natural processes that cleanse the water can take years, decades, or even centuries, and even with costly technological processes, it can take years to remove all of the harmful substances from the water. There are many aspects of the contamination that must be removed. **First, and most importantly, the source of the water pollution must be removed, so that additional water contamination does not occur.**
+**It is very difficult to reverse the effects of water pollution.** 
 
-*Every part of the World is given its character, essentially, by a small number of patterns which repeat themselves over and over again.*
+Natural processes that cleanse the water can take years, decades, or even centuries, and even with costly technological processes, it can take years to remove all of the harmful substances from the water. There are many aspects of the contamination that must be removed. **First, and most importantly, the source of the water pollution must be removed, so that additional water contamination does not occur.**
+
+*Every part of the World is given its character, essentially, by a small number of patterns/habits which repeat themselves over and over again.*
 
 **Home Cleaning products and fertilizers made with chemicals and pesticides pollute the underground water, rivers and surrounding ecosystems.** Pharmaceutical drugs and personal care products, also manufactured by many pharmaceutical companies (such as sunscreen lotions, lipsticks, deodorants, perfumes, body soaps, and shampoos, ...), are produced in staggeringly huge quantities; **often equaling or surpassing agrochemicals in tonnage.** The volume consumed is simply astounding. All of these go into the ecosystem, most of them into waste treatment systems. These conventional body and home cleaning products contain harmful amounts of chemicals such as phosphate, nitrates, ammonia, chlorine etc. The accumulated effect of these chemicals released from every household causes significant damage to the health of the environment and the body.
 
@@ -68,7 +73,7 @@ Increased urbanization has introduced a staggeringly large volume of contaminant
 ***River restoration begins with reducing pollution.***
 
 **Waterborne infections account for 80% of all infectious diseases.**
-There is a serious global environmental resource problem of water, soil and energy that are now coming to bear down on *Life As People Know It:* food production, malnutrition, the incidence of diseases, ... . ***By 2025, half the world population will be living in water-stressed areas.***(WHO) People are literally killing the micro-biome with chemicals that alter this grand vast unknowable microbial balance of Mother Earth.
+There is a serious global environmental resource problem of water, soil and energy that are now coming to bear down on *Life As People Know It:* food production, malnutrition, the incidence of diseases, ... . ***Some predict that by 2025, half the world population will be living in water-stressed areas.***(WHO) People are literally killing the micro-biome with chemicals that alter this grand vast unknowable microbial balance of Mother Earth.
 
 **Water, the “universal solvent,”** is a major constituent of the soil and exerts a strong influence on soil biota because many of the biota are adapted to life in a saturated atmosphere.
 
@@ -76,7 +81,7 @@ By no surprise, improving water quality makes a significant difference.
 
 **Pro-biotic Eco-enzyme is a viable solution to some very big problems. Re-use of wastewater, to recover water, nutrients, or energy, is becoming an important strategy.**
 
-#### *Life-long symbiosis. The micro-biome connection between Humans and the Soil.*
+#### *Life-long symbiosis. The micro-biome connection between Humans and Mother Earth.*
 
 **Pro*Biotic*; For Life.**
 
@@ -86,13 +91,13 @@ By no surprise, improving water quality makes a significant difference.
 
 **Body and Soil, Symbiotic Microbial Gardens.**
 
-**The human body contain 10 times more bacteria than human cells, meaning around 100 trillion microbes make up the physical human body. Humans are Wild in this way, symbiotically connected to the environment.** The largest colony is located in the stomach and intestines. The bacteria digest substances that help the immune system defend against invaders. This exact same process happens symbiotically, in soil, water and the food that comes from it. Protect the microbes with Pro-biotic Eco-enzyme. Doing so will keep the micro-biome full of live beneficial organisms, which will help keep digestion, immunity and overall health on track. **Body, Soil and Water encourage the growth of healthy bacteria.**
+**The human body contain 10 times more bacteria than human cells, meaning around 100 trillion microbes make up the physical human body. Humans are Wild in this way, symbiotically connected to the environment.** The largest colony in the human body is located in the stomach and intestines. The bacteria digest substances that help the immune system defend against invaders. This exact same process happens symbiotically, in soil, water and the food that grows from it. Protecting and feeding the microbes with Pro-biotic Eco-enzyme will keep the micro-biome full of live beneficial organisms, which will help keep digestion, immunity and overall health on track. **Body, Soil and Water encouraging the growth of healthy bacteria.**
 
 **Pro-Biotic Eco-Enzyme are therapeutic *soul food* for the micro-biome, Soil to Soul.**
 
 Fermentation naturally produces Lactic Acid Bacteria (LAB), one of the most well studied bacterial groups known from ancient times. ***Lactic acid - this molecule occurs in almost every living organism and it plays an essential role in the anaerobic energy metabolism of billions of life forms.*** These valuable micro-organisms are used in numerous areas, especially food industry and medicine. LAB can also produce a wide range of compounds for special applications like generation of bio-energy not affecting the surrounding environment.
 
-**Re-Act To The Environ-Mental Realities**
+**Re-Act To The Environ-Mental Realities.**
 
 **Lifestyles For Change, bringing life to style. Eco-Enzyme is an ecologically responsible solution,** perfect for those living in urban or rural environments, as a way to use their fresh fruit and vegetable remnants as a **nutrient rich pro-biotic water and soil amendment.** Use in the garden, plant pots or the local environment as a gift of thanks, pro-biotic water for Mother Earth. No traditional 'garden' is required. Be creative, whats around ...
 
@@ -172,11 +177,18 @@ Fermentation time & environment: 3 months minimum, from the time stopped adding 
 ![filter](./enzymeImages/enzymeProcess05.jpg)
 
 **Step 5:**
-- Harvest Day! In a suitable size vessel with a suitable size strainer, separate the solids form the liquids. The filtered Eco-enzyme can be bottled and is ready for use. For a more polished product allow the filtered liquid enzyme to rest overnight (or longer) so the sediment can settle to the bottom. Repeat straining this time through a microfiber cloth, taking care to not disturb the sediment.
+- Harvest Day! In a suitable size vessel with a suitable size strainer, separate the solids form the liquids. The filtered Eco-enzyme can be bottled and is ready for use. For a more polished product allow the filtered liquid enzyme to rest overnight (or longer) so the sediment can settle to the bottom. Repeat straining this time through a microfiber cloth, taking care to not disturb the sediment at the bottom.
 
-A portion of filtered solids or sediment can be used as a starter for the next batch, dried and used as a powdered fertilizer, or add them to the [Bokashi](./soilAlchemy.md) bin, garden compost or turn them directly into the soil. Even dumping them down the toilet is perfectly fine.
+A portion of filtered solids or sediment can be used as a starter for the next batch. 
 
-Example harvest ratio: From 14 liters of enzyme under ferment; 12 liters of liquid enzyme was harvested with 2 liters of solid fermented fruit remnants. Further filtration yielded 9 liters of clear enzyme and 3 liters of fine fermented fruit sediment. 
+It can also be dried, for use as a powdered fertilizer. Or added *as is* to the [Bokashi](./soilAlchemy.md) soil building system, garden compost or turned directly into the soil. Even dumping them down the toilet is healthful.
+
+Example harvest ratio: 
+From 14 liters of enzyme under ferment.
+
+- 12 liters of liquid enzyme was harvested with 2 liters of solid fermented fruit remnants. 
+
+Further filtration yielded 9 liters of clear enzyme and 3 liters of fine fermented fruit sediment. 
 
 ![enzyme bokashi](./enzymeImages/enzymeRemnatsBikashiBin_web.jpg)
 
@@ -185,7 +197,7 @@ Example harvest ratio: From 14 liters of enzyme under ferment; 12 liters of liqu
 **Sugars**- For best results try use molasses, brown sugar, jaggery or some similar sugar, as they are full of minerals and will create a more rich product.
 
 **Separating kitchen remnants**, think aroma.
-Different organics have different benefits, aromas and textures. Separating citrus fruits like Orange, Lemon, Lime and Pineapple into a dedicated bin creates a fantastic and powerful cleaning enzyme. Other aromatics and medicinal plants and flowers such as Ginger, Aloe Vera Lemongrass, Tea, Plumeria, Rose ... can be added for a luxurious whole body healing wash product.
+Different organics have different benefits, aromas and textures. Separating citrus fruits like Orange, Lemon, Lime and Pineapple into a dedicated bin creates a fantastic and powerful cleaning enzyme. Other aromatics and medicinal plants and flowers such as Ginger, Aloe Vera, Lemongrass, Tea, Plumeria and Rose flowers ... can be added for a luxurious whole body healing wash product.
 
 One can create a separate catch-all bin for everything else like veggie scraps, purely for 'compost', garden use and drains. Or these can be added to the [Bokashi](./soilAlchemy.md) pro-biotic soil building bin.
 
@@ -213,18 +225,18 @@ One can create a separate catch-all bin for everything else like veggie scraps, 
 
 Eco-Enzymes can be used safely at full strength, undiluted, on the most sensitive skin. Ratios provided are a personal preference, experiment to discover what works best, allow intuition to be the guide. Keeping things modular helps to retain creativity.
 
-**Enzyme to Water dilution ratios:**
+**Enzyme to Water dilution ratios for different usage:**
 
 - Hair and body wash - 1:1
 - Mouthwash/Toothpaste - 1:1 or undiluted
 - Warts and fungal infections - undiluted
 - Wound healing, diaper rash wash - 1:10 or undiluted
 - Dish washing - 1:500
-- House hold surface cleaning - 3:100
 - Laundry detergent, natural fabric softener - 1:500
 - Evaporative cooler - air freshener - 1:500
 - Insect replant and fertilizer for the garden - 1:500
 - Fruit and vegetable wash (submerge for 5 min) to remove chemicals and pesticides - 3:100 (30ml enzyme to 1 liter water)
+- House hold surface cleaning - 3:100
 
 ![enzyme with soap](./enzymeImages/enzymeFinish.jpg)
 
@@ -241,7 +253,7 @@ A: Using various ingredients can create complex and stable enzymatic ecosystems.
 Q: Will there be bacteria in Eco-Enzyme after fermentation?
 Is it safe to be used for personal cleaning?
 
-A: Eco-enzyme contains natural acetic acid, bromelain (from pineapple), probiotics and antioxidants, which help fight bad bacteria on the skin’s surface. Eco-enzyme can reduce allergies caused by chemicals, eliminate harmful microorganisms and enhance cell regeneration. It is important to remember that the acidic value of Eco-enzyme sits at or below PH 5.0 if it has been fermented well. Remember to dilute accordingly. Eco-enzyme is very safe and makes a wonderfully gentle yet powerful wash for wound cleaning and healing. Safe for all family members to use.
+A: Eco-enzyme contains natural acetic acid, probiotics and antioxidants, which help fight bad bacteria on the skin’s surface. Eco-enzyme can reduce allergies caused by chemicals, eliminate harmful microorganisms and enhance cell regeneration. It is important to remember that the acidic value of Eco-enzyme sits at or below PH 5.0 if it has been fermented well. Eco-enzyme is very safe and makes a wonderfully gentle, yet powerful, wash for wound cleaning and speeds healing. Safe for all family members to use.
 
 The acetic acid in Eco-enzyme kills many strains of bacteria on household surfaces and inhibits the growth of new bacteria and mold. Eco-enzyme is natures all-natural cleaner. 
 
