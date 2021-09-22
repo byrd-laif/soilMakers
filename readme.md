@@ -62,7 +62,7 @@ The *seeds of opportunity;* an awareness, taking the moment and transforming it 
 
 Being responsible stewards of *Mother Earth* means taking to heart the current *planetary healing crisis*.
 
-#### *Environ-Mental Health
+#### *Environ-Mental Health*
 
 **Soil to Soul; Humanity, finding them selves a part of this circle of existence, thereby logically *Accepting* this circumstance, *responsibility* then means *ability*- an action oriented *authentic response* to the situation as it is, in the present moment.**
 
