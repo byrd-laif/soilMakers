@@ -88,25 +88,25 @@ Urban environments are not nurturing environments in and of themselves, but with
 
 ***Cultivating intimacy within nature.***
 
-***Honoring the uniqueness of the self,*** breaking free of boundaries, having reverence for ones own body within nature. Avoiding pre-stylization of movement in life, taking off the 'cultural amour', allowing direct experience to evoke feelings. 
+***Honoring the uniqueness of the self,*** breaking free of boundaries, having reverence for ones own body within nature. Avoiding pre-stylization of movement in life, taking off the 'cultural amour', allowing direct experience to evoke feelings.
 
-Going beyond, using the feelings to expand into the 'living' style of ones life through All the senses, connected within the built and cultivated forms.
+Going beyond, using the feelings to expand into the 'living' style of ones life through the kinesthetic sense.
+
+Kinesiology is a powerful tool for accessing information from the body’s innate wisdom, and the unconscious mind. It works by experiencing how the strength of a muscle is affected by focusing on an external stimulus or part of the body. With Kinesiology, one can have a visceral experience of how the body is affected by the introduction of specific foods, scents, music, bio-logical and other environ-mental factors, along with verbal statements, coming together and sharing in a safe space. Using the experience, testing the strength of different systems in the body and its surrounding energetic structure.
 
 **Love;** to feel how things are, allowing the physical body too recognize itself as part of nature, a part of the living systems.
 
-***Calling home; Actions that biologically transfer through nature.***
+***Calling home; Actions that biologically transfer through too nature.***
 
 ![Home](./vivariumGeorgeTownGallery/vivariumLivingRoom/vivariumLiving015Web.JPG)
 
-***Contact made manifest.***
+***Contact made manifest, connected through matter.***
 
 #### *Vivarium ~ place of life*
 
-*An interactive space curated to connect; explore, learn, reflect, ... on how people interact, impact and live within personal environments; homes, work, travel, ..., spaces.*
+*An interactive space curated to connect; explore, learn, reflect, ... on how people interact, impact and live within ones personal environments; homes, work, travel, ..., spaces.*
 
-**Vivarium**- (Latin, literally for "place of life"; plural: vivaria or vivariums) is an area, usually enclosed, for keeping and raising animals or (in this case People and biological ecosystems) plants for observation or research. Often, a portion of the ecosystem for a particular species is simulated on a smaller scale, with controls for environmental conditions.
-
-**The way out is a personal responsibility, the way out is in the soil. When the soil is healed the soul follows.**
+**Vivarium**- (Latin, literally for "place of life"; plural: vivaria or vivariums) is an area, usually enclosed, for keeping and raising animals and plants for observation or research. Often, a portion of the ecosystem for a particular species is simulated on a smaller scale, with controls for environmental conditions. In this case; People and biological ecosystems ... A "Place of Life" designed around the human forum and its needs.
 
 ![Harmonize with the Natural World.](./vivariumGeorgeTownGallery/vivariumLivingRoom/vivariumGTLivingroomPatioweb.jpg)
 
@@ -114,7 +114,9 @@ Going beyond, using the feelings to expand into the 'living' style of ones life 
 
 To do it someone need only let it happen in the mind.
 
-**Quality of Life**- *Mind, Body, Earth (soil); Anima Mundi (world soul) Mutually Symbiotic Ecological Connections. Creating live and dynamic, open independent spaces that feel as they have existed long before someones arrival and will remain long after their depart.*
+**Quality of Life**- *Mind, Body, Earth (soil); Anima Mundi (world soul) Mutually Symbiotic Ecological Connections. 
+
+Creating live and dynamic, open independent spaces that feel as they have existed long before someones arrival and will remain long after their depart.*
 
 ![An Enchanted Sensibility To Create Change](./vivariumGeorgeTownGallery/VivariumDouble/moringaRoomCandid01Web.jpg)
 
@@ -122,7 +124,7 @@ To do it someone need only let it happen in the mind.
 
 ***The Physical Body Is The Placebo;*** the mind’s natural capacity to influence bodily functions and symptoms.
 
-The mind is a medium within which the imagination jumps between the pattern and the world can happen. The individual, oneself is only the medium for the imagination, not its originator.
+The mind is a medium within which the imagination jumps between the pattern and the living world can happen. The individual, the physical body is only the medium for the imagination, not its originator.
 
 **Co-evolutionary ecosystems:** Re-establishing and encouraging healthy symbiotic connections within nature (Mother Earth) through sensory experiences; mental, physical and biological interactions, movement, and hands-on meaningful activities. Allowing the brain, body and earth body to establish new, more productive patterns.
 
@@ -130,7 +132,7 @@ The individual is only the medium in which the patterns come to life, and of the
 
 ![Harvest](./vivariumGeorgeTownGallery/vivariumHarvest/vivariumLivingHarvest01Web.JPG)
 
-A place where someone is continually discovering how to create their own reality, and how to adapt, change it.
+A place where someone is continuously discovering how to create ones own reality, how to adapt and change.
 
 #### Location
 
@@ -148,7 +150,7 @@ The surrounding low density neighborhood is tranquil with many large trees, and 
 
 #### The Building and Property
 
-A residential, 3-story apartment building with 15 exclusive units, each 1230 square feet in size. With permission, residents were voluntary participants in bokashi soil building and a small food garden was under personal cultivation.
+A residential, 3-story apartment building with 15 exclusive units, each 1230 square feet in size. A small food garden was under personal cultivation by one of the residents. With an open invitation, residents were voluntary participants in community bokashi soil building.
 
 #### *The Vivarium ~ place of life*
 
