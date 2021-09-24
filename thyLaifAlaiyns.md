@@ -26,3 +26,5 @@ date: 2021-09-22
 Stepping out from the story of the present situation, and writing a New Future. A new story about creating healing spaces that connect Soil to Soul, the Symbiotic Real.
 
 Becoming a part of the circle of life.
+
+[Soil Makers ~ Eco-Logical Movement And Enterprise](./readme.md)
