@@ -5,13 +5,15 @@
 ## *The Ecology Is The Economy.*
 **Nature is the *balance sheet.***
 
-***Transforming an environmental withdraw to an environmental deposit for the future. Mobilizing bio-resources (organic refuse) and converting this into bio-gold, Bio-Logical Body and Earth Care Services & Commodities.***
+***Transforming an environmental withdraw to an environmental deposit for the future. Mobilizing bio-resources (organic refuse) and converting this into bio-gold- Eco-logical Pro-biotics.***
 
 ### Eco-Logical Movement And Enterprise
 
+***Bio-Logical Body and Earth Care Services & Commodities.***
+
 **Cultivating a *Bio-logical Economy* creates the market for an *Ecologically Sustainable* future.**
 
-***Creating co-Evolutionary Leaders;*** Revolutionary Eco-logical Actions that connect and are transferable through to nature. ***Bio-Logical Body and Earth Care Systems*** provide the environment for an enlightened, sustainable future.
+***Creating co-Evolutionary Leaders;*** Revolutionary Eco-logical Actions that connect and are transferable through to nature. ***Eco-logical Pro-biotics;*** biological body and earth care systems provide the environment for an enlightened, sustainable future.
 
 #### Claiming ones fundamental human birthright; *freely connecting with that which makes living possible.*
 Being attracted to all that is alive and vital, the human tendency to relate and connect with life and natural processes - ***Is The Expression Of A Bio-Logical Need.***
@@ -46,7 +48,7 @@ Giving someone courage; for changing what must be altered, empathy for accepting
 
 [Real time on Matrix; Join the conversation in the interactive **Vivarium Salon**](https://matrix.to/#/!LSpVaMCiYQehpJONFF:matrix.org?via=matrix.org&via=t2bot.io&via=stux.chat)
 
-### *Salon Circle:* A renewed culture of *Artful Conversation;* honoring someone's intention within a group process, were each idea is valued for itself, creating appreciated forums.
+### *Salon Circle:* A renewed culture of *Artful Conversation;* honoring someone's intention within a group process, were each idea is valued for itself, creating appreciated forms.
 
 **Harvesting Knowledge.**
 Awakening possibility and creative insight; refine the taste, and increase knowledge through guided meaningful conversation, organized around living cultures and ideas reflective of the era in which one lives.
@@ -66,7 +68,7 @@ Being responsible stewards of *Mother Earth* means taking to heart the current *
 
 **Soil to Soul; Humanity, finding them selves a part of this circle of existence, thereby logically *Accepting* this circumstance, *responsibility* then means *ability*- an action oriented *authentic response* to the situation as it is, in the present moment.**
 
-*The aesthetics of ecology.* The cultivation of a more attuned and responsive awareness of Wo-Mans ecological interconnections, recognizing feelings which are in touch with reality. Feelings provide a powerful way of finding out which lifestyle patterns are balanced and which are not.
+***The aesthetics of ecology.*** The cultivation of a more attuned and responsive awareness of Wo-Mans ecological interconnections, recognizing feelings which are in touch with reality. Feelings provide a powerful way of finding out which lifestyle patterns are balanced and which are not.
 
 #### *Quality Of Life*
 
@@ -81,6 +83,8 @@ Not addressing immediate needs is an insult to the young. Individuals with passi
 **It's time to call home. To Act and for those acts to connect and transfer through too Mother Earth, soil to soul cultivating cultures that are healing.** Actionable know-how. Knowing what to do, and doing it. Taking the steps, teaching what one needs to learn.
 
 #### Explore
+
+[Thy Laif Alyaiyns Mission and Vission](./thyLaifAlaiyns.md)
 
 [**BioPhilia Living Design - *Proof of Concept* Urban Sustainable Eco-Living**](./bioPhiliaLivingDesignProofOfConcept/creativeEcoLivingProofOfConcept.md)
 

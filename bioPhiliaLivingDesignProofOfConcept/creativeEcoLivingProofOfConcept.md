@@ -50,7 +50,7 @@ Using the biological relationships with *'Mother Earth'* as a path of discovery 
 
 ***People are deeply nourished by the process of creating wholeness.***
 
-***Healing environments*** allow someone to draw emotional support from their settings through the Symbiotic Energy, the living energy of the space. One then *feels free* to move around and interact unselfconsciously, to connect and *combine ones life with the life of the living* systems and elements within the built space. Achieved by bringing in a number of high quality visual and intuitive *interactions* among the bio-logical ecosystems and other visceral elements of a curated space and its users.
+***Healing environments*** allow someone to draw emotional support from their settings through the Symbiotic Energy, the living energy of the space. One then *feels free* to move around and interact unselfconsciously, connecting and *combining ones life with the life of the living* systems and elements within the built space. Achieved by bringing in a number of high quality visual and intuitive *interactions* among the bio-logical ecosystems and other visceral elements of a curated space and its users.
 
 ![Open Space living room, stone floor](./vivariumGeorgeTownGallery/vivariumLivingRoom/vivariumGTLivingroomRelaxWeb.JPG)
 
