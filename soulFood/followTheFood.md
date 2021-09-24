@@ -38,7 +38,7 @@ A symbiotic microbial messenger; from humus, through human, to humus. Returned t
 
 **What ever the physical mind feeds upon is what the *Earth Body* calls to *Wo-Man*, *Soil too Soul* they receive.**
 
-**The journey begins in a field,** the soils cultivated by the Nam Khan River, chosen for the close proximity and open access. The Nam Khan River is a major tributary of the river Mekong, with which it joins at Luang Prabang. A journey 6.5km up river to harvest soil knowledge at source, documenting cultivation from seed to harvest.
+**The journey begins in a field,** the soils cultivated by the Nam Khan River, chosen for the close proximity and open access. The Nam Khan River is a major tributary of the river Mekong, with which it joins at Luang Prabang. A journey 6.5km up river to harvest soil knowledge at source. Participating, observing and documenting cultivation from seed to harvest.
 
 The alchemical journey continuing into the personal home kitchen, with recipes of soul food for the physical body. Moving through the physical body, bio-matter enters into a living cyclical fermentation process, whereupon the spirit is released. 
 
@@ -103,11 +103,11 @@ Anyone who sees the monetary value as greater than the medicinal value of the st
 
 Alchemy is an entirely natural science. The Alchemist does not force anything, but rather aids the substance to develop naturally where it wants to go by removing any impediment and assuring the optimal conditions.
 
-The contradicting quotation is not truly contradicting as it does not contradict the premise; Emulate Nature- It only warns not to, too closely imitate every tiny detail of nature.
+The contradicting quotation is not truly contradicting as it does not contradict the premise; Emulate Nature- Only warning not to, too closely imitate every tiny detail of nature.
 
 Alchemy can only truly be understood by gaining an understanding of how and why nature operates ***as it does.***
 
-**What is remarkable about the practices of the alchemist, is the willingness to let nature work without knowing exactly how nature works.**
+**What is remarkable about the practices of the alchemist? The willingness to let nature work *without knowing* exactly how nature works.**
 
 **Nature** - the ultimate non absolute ... where ...
 
@@ -117,7 +117,13 @@ Alchemy can only truly be understood by gaining an understanding of how and why 
 
 **Nature is a great Book, an open book to be read by putting nature through processes which reveal not only its inner mechanics, but the inner mechanics of the artifex, the person working upon the material.**
 
-*Experience Alchemy ~ The Healing Spirit Of Nature; the secret tradition of the redemption of spirit from matter.*
+*Experience Alchemy ~ The Healing Spirit Of Nature; a secret tradition of the redemption of spirit from matter.*
+
+**Humus Soil and the Mycelial Network.**
+A below ground fungi mass that connects humans, plants and trees together, whereupon they communicate with each other.
+
+Feeding the Mycelial Mass is a journey into the Womb of Mother Earth. Connecting and communicating with that which makes living possible.
+
 
 Shall She Continue ...
 

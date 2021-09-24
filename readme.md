@@ -84,7 +84,7 @@ Not addressing immediate needs is an insult to the young. Individuals with passi
 
 #### Explore
 
-[Thy Laif Alyaiyns Mission and Vission](./thyLaifAlaiyns.md)
+[**Thy Laif Alyaiyns Mission and Vision**](./thyLaifAlaiyns.md)
 
 [**BioPhilia Living Design - *Proof of Concept* Urban Sustainable Eco-Living**](./bioPhiliaLivingDesignProofOfConcept/creativeEcoLivingProofOfConcept.md)
 
