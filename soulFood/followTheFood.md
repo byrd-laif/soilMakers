@@ -60,7 +60,7 @@ Bending down and spreading the *mud* with hands across the *Womb* of *Mother Ear
 
 The living land grows and grows as *Earth Wo-Man* dances in thanks, from the dab of mud on *Womb*, the *alchemy* of all the animals’ gifts coupled with *Earth Wo-Man* in symbiotic deep gratitude. Together, this *alchemical dance*, formed what people know today as planet *Earth*, home.
 
-Like any good guest, *Earth Wo-Man* has not come empty-handed. With revitalized soil bundle clutched in hand, when toppled by domination from the hole in human heart, *Earth Wo-Man* reaches out clutching *Tree of Life* that grows. With-in grasp, branches—fruits and seeds of all kinds of plants.
+**A preparatory event;** *Earth Wo-Man* is not coming empty-handed, with revitalized soil bundle clutched in hand, when toppled by domination from the hole in human heart, *Earth Wo-Man* reaches out clutching *Tree of Life* that grows. With-in grasp, branches—fruits and seeds of all kinds of plants.
 
 These *Earth Wo-Man* scatters onto new ground and carefully tends each one until *the world* turns from brown to green. Sunlight streams through the hole in the heart of the dominated, for-given, these seeds too flourish. Wild grasses, flowers, trees, and medicines spread everywhere. And now that the animals too have plenty to eat, many come to live with *Earth Wo-Man* on *Earth Island*, the planet of life in *Ocean Sky*.
 
