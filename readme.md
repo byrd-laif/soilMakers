@@ -61,7 +61,7 @@ Awakening possibility and creative insight; refine the taste, and increase knowl
 **Tools For Understanding.**
 *An integrated set of processes that allow the often hidden insight of human expertise to be captured and converted into specific **Actionable Know-how** that can be transferred to someone. Cultivating a more desirable, fulfilling, life supporting; Ecologically Modern and Realistic Lifestyle.*
 
-[**Life*Styles* For Change ~ Becoming a part of the circle of life.**](./lifeStylesForChange/lifeStylesForChangeIntro.md)
+[**Life*Styles* For Change**](./lifeStylesForChange/lifeStylesForChangeIntro.md)
 
 The *seeds of opportunity;* an awareness, taking the moment and transforming it into a better situation, something new and beautiful. Learning to live in the light of Nature.
 
@@ -95,7 +95,9 @@ Not addressing immediate needs is an insult to the young. Individuals with passi
 
 [**Anna ~ Soil Makers on Vimeo**](https://vimeo.com/soilmakers)
 
-#### [Salon Programs/Resources](./lifeStylesForChange)
+#### Salon Programs/Resources
+
+[***Life*Styles* For Change Intro.***](./lifeStylesForChange/lifeStylesForChangeIntro.md)
 
 - [Soil Alchemy - The Soil Rehabilitation Miracle Of Bokashi](./lifeStylesForChange/soilAlchemy.md)
 

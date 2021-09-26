@@ -28,15 +28,19 @@ Cultivating Probiotic Soil that’s the color of a 70% cocoa chocolate bar, free
 
 ***Humility:*** The state of being Humble; Middle English, from Anglo-French, from Latin humilis low, humble, ***from humus earth;*** akin to Greek chthōn ***earth,*** chamai on ***the ground.***
 
-#### Soil Return - 30% of soil is fungal mass, bokashi pro-biotic soil offers *humus soul food* to the field. Microbes and other soil organisms are capable of producing all the nutrients plants need.
+#### Soil Return - 30% of soil is fungal mass, bokashi pro-biotic soil offers *soul food* to the field. Microbes and other soil organisms that are capable of producing all the nutrients plants need.
 
-**Humus is organic matter reduced until it can break down no further. In this state of evolution its appearance is unified. Commonly known as topsoil, humus is essential for all life. It creates fertile terrain for new growth, strengthens immunity and offers nutrients needed for soil organisms to regenerate.**
+**Humus is a component of soil, organic matter reduced until it can break down no further. In this state of evolution its appearance is unified. Ranging in color from brown to black, consisting of about 60 percent carbon, 6 percent nitrogen, and smaller amounts of phosphorus and sulfur. Its basically the final stage of soil life, broken down to its smallest constituents. Ashes to ashes this is where all organic life ends up. As Humus. Star dust of the earth.
+
+The Soil is a dynamic and complex cycle of life, death and rebirth. Of which humans have yet to understand.
+
+**Commonly known as topsoil, essential for all life. Creating fertile terrain for new growth, strengthening immunity and offers nutrients needed for soil organisms to regenerate.**
 
 The current high erosion rates throughout the world are of great concern because of the slow rate of topsoil renewal; it takes approximately 500 years for 2.5 cm layer of fertile topsoil to form under agricultural conditions.
 
 Due to rapid urbanization the amount of *arable land* available for each person is continually dropping. Currently, each human being has only 2,000m² at their disposal; in 1961, that figure was 4,000m². At current rates, the amount of arable land available per person will decrease to 1,500m² by 2050.
 
-**Bokashi gives a finished pro-biotic living soil in 30–45 days all in.** The speed of the fermentation process is a big advantage, cycling organic remnants faster by going straight from kitchen to fermentation, to soil, over and over again in small batches. With out the need to collect a critical mass of scraps to start, the fermentation process starts right away. Scale the fermentation vessel to the amount of scraps being generated, going straight into the bokashi bucket as soon as they are produced.
+**Bokashi gives a finished pro-biotic, living soil in 30–45 days all in.** The speed of the fermentation process is a big advantage, cycling organic remnants faster by going straight from kitchen to fermentation, to soil, over and over again in small batches. With out the need to collect a critical mass of scraps to start, the fermentation process starts right away. Scale the fermentation vessel to the amount of scraps being generated, going straight into the bokashi bucket as soon as they are produced.
 
 ![Pro-biotic Fluffy Soil](./bokashiImages/fluffyBokashiSoil_web.jpg)
 Pro-biotic fluffy soil.
@@ -46,7 +50,7 @@ Pro-biotic fluffy soil.
 **Pro-biotic Soul Food For The Soil.**
 Bokashi is a Japanese term meaning fermented organic matter and refers to a 2-step method of ***indoor soil building*** that uses beneficial micro-organisms to quickly ferment many types of organic matter including food remnants, fruit, vegetables, meat, dairy and bread.
 
-Although the terms humus and compost are informally used inter-changeably, they are distinct soil components with different origins; humus is created through anaerobic fermentation, while compost is the result of aerobic decomposition. This is the very important difference between composting and bokashi method. There is no putrefaction or toxic leaching happening here. Bokashi is pro-biotic, working symbiotically with nature to accelerate the process of anerobic fermentation using beneficial microbes.
+Although the terms humus and compost are informally used inter-changeably, they are distinct soil components with different origins; humus is created through anaerobic fermentation, while compost is the result of aerobic decomposition. Likewise, there is the very important difference between composting and bokashi method. There is no putrefaction or toxic leaching happening here, such that often occur in conventional composting, producing heat. Bokashi is pro-biotic, working symbiotically with nature to accelerate the process of anerobic fermentation using beneficial microbes.
 
 ***The Soil Is A Garden.***
 
@@ -54,7 +58,7 @@ Fermentation naturally produces Lactic Acid Bacteria (LAB), one of the most well
 
 ***One handful of healthy soil contains more micro-organisms than there are people living on earth.***
 
-Bokashi conserves water in the ground, humus soils are not as water soluble, nutrients are less prone to leaching and run-off because the organic nutrients literally are the soil after Bokashi fermentation is complete.
+Bokashi conserves water in the ground, probiotic soils are not as water soluble, nutrients are less prone to leaching and run-off because the organic nutrients literally are the soil after Bokashi fermentation is complete.
 
 #### *Benefits of Bokashi*
 
@@ -62,17 +66,17 @@ Bokashi conserves water in the ground, humus soils are not as water soluble, nut
 
 ***Bokashi Is A Solution To Some Very Big Problems; Regenerative Urba-culture, healing from the inside out.***
 
-**Responsible management of organic kitchen remnants can reduce 70% of the total waste production and reduce the bad gases produced during organic decomposition, all while revitalizing the environment by creating bio-active humus soil and pro-biotic liquid fertilizer to combat the negative use of toxic chemicals and pollutants.**
+**Responsible management of organic kitchen remnants can reduce 70% of the total waste production and reduce the bad gases produced during organic decomposition, all while revitalizing the environment by creating bio-active probiotic soil and liquid fertilizer to combat the negative use of toxic chemicals and pollutants.**
 
-**Soils store more than 4000 billion tonnes of carbon. By way of comparison, the forests store 360 billion tonnes of carbon as woody biomass, and the atmosphere more than 800 billion tonnes in the form of carbon dioxide.**
+**Probiotic Living Soils store more than 4000 billion tonnes of carbon. By way of comparison, the forests store 360 billion tonnes of carbon as woody biomass, and the atmosphere more than 800 billion tonnes in the form of carbon dioxide.**
 
 **Bioremediation**- Biotechnology employs the use of living organisms, microbes and bacteria, in the removal of contaminants, pollutants, and toxins from soil, water, and other environments.
 
 #### *Conservation as a consequence of production.*
 
-***Urban soil cultivation practices can have a significant impact on urban ecosystem.***
+***Urban probiotic soil cultivation practices can have a significant impact on urban ecosystems.***
 
-Bokashi, the ecologically responsible option for all food remnants, perfect for those living in apartments/condos and those looking to use their food remnants as a nutrient rich pro-biotic soil amendment in their garden, plant pots or the surrounding local environment (ecosystem) as a gift of thanks, fertile pro-biotic soil for Mother Earth. No modern garden is required, be creative, whats around ...
+Bokashi, the ecologically responsible option for all food remnants, perfect for those living in apartments/condos and those looking to use their food remnants as a nutrient rich pro-biotic soil amendment in their garden, plant pots or the surrounding local environment (ecosystem) as a gift of thanks, fertile pro-biotic soil for Mother Earth. No modern garden is required, being creative with whats around ...
 
 A healthy microbiome of the physical body is like a healthy microbiome of the soil, when cared for correctly creates space for more healthy lifeforms to exist. The flora and fauna, healthy bacteria and yeast of the body and soil, actually can, do and have gone extinct! Especially in the gut, and the soil, from a life time of unhealthy eating they just become eliminated. Fermentation is the way to bring that balance back, body and soil all life is 'built' the same.
 

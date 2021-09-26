@@ -47,7 +47,7 @@ A series of guided invitations, natural cycles, bring one into the present momen
 
 *A mutually beneficial; 'symbiotic legacy venture' with Mother Earth. An Eco system that operates to deliver a positive bio-logical impact; symbiotically profiting through seeding the soil, the Womb of Mother Earth.*
 
-
+[**Life*Styles* For Change ~ programs and resources**](./lifeStylesForChange)
 
 
 
