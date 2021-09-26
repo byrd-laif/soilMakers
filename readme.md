@@ -5,7 +5,7 @@
 ## *The Ecology Is The Economy.*
 **Nature is the *balance sheet.***
 
-***Transforming an environmental withdraw to an environmental deposit for the future. Mobilizing bio-resources (organic refuse) and converting this into bio-gold- Eco-logical Pro-biotics.*** Waste is something discarded before its usefulness has been realized.
+***Transforming an environmental withdraw to an environmental deposit for the future. Mobilizing bio-resources (organic refuse) and converting this into bio-gold- Eco-logical Pro-biotics.***
 
 ### Eco-Logical Movement And Enterprise
 

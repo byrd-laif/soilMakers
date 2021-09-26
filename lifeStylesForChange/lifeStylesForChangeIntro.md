@@ -25,6 +25,8 @@ Being *Ecologically Realistic* and getting back to the *heart* of what *life* is
 
 ***Producing Something Meaningful.*** Projecting one's lifestyle into a future possibility, connected with that which makes living possible. Living the creative process; honoring the Soul through cultivating a lifestyle that feeds the Soil.
 
+**Waste is something discarded before its usefulness has been realized.**
+
 Its easy to destroy something, the challenge is to create something meaningful. To bring something back to the *Village* that someone can live from. Wo-Men don't have to abandon their 'modern' lives but they do have to protect Mother Earth.
 
 #### *Ancestral Healing; Cultivating cultures that heal cultivates compassion for mother earth, an act of humility.* 

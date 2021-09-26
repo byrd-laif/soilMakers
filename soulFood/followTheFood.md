@@ -122,8 +122,9 @@ Alchemy can only truly be understood by gaining an understanding of how and why 
 **Humus Soil and the Mycelial Network.**
 A below ground fungi mass that connects humans, plants and trees together, whereupon they communicate with each other.
 
-Feeding the Mycelial Mass is a journey into the Womb of Mother Earth. Connecting and communicating with that which makes living possible.
+Displaying remarkable patterns of the reallocating of biomass and mineral nutrients and the discovery and colonization of new resources.
 
+Feeding the Mycelial Mass is a journey into the Womb of Mother Earth. Connecting and communicating with that which makes living possible.
 
 Shall She Continue ...
 
