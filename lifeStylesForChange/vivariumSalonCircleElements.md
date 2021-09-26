@@ -25,7 +25,7 @@
 
 - Listening together for patterns, insights and deeper connections.
 
-- Harvesting and share collective discoveries.
+- Harvesting and sharing collective discoveries.
 
 ### Basic Guidelines for Calling a Vivarium Salon Circle
 Honoring the lineage of the circle and PeerSpirit methodology as one uses this gift. (http://www.peerspirit.com)
