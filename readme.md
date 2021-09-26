@@ -7,13 +7,13 @@
 
 ***Transforming an environmental withdraw to an environmental deposit for the future. Mobilizing bio-resources (organic refuse) and converting this into bio-gold- Eco-logical Pro-biotics.***
 
+***Creating co-Evolutionary Leaders;*** Revolutionary Eco-logical Actions that connect and are transferable through to nature.
+
 ### Eco-Logical Movement And Enterprise
 
-***Bio-Logical Body and Earth Care Services & Commodities.***
+**Cultivating a *Bio-logical Economy* creates the market for an *Ecologically Sustainable* future.** 
 
-**Cultivating a *Bio-logical Economy* creates the market for an *Ecologically Sustainable* future.**
-
-***Creating co-Evolutionary Leaders;*** Revolutionary Eco-logical Actions that connect and are transferable through to nature. ***Eco-logical Pro-biotics;*** biological body and earth care systems provide the environment for an enlightened, sustainable future.
+***Eco-logical Pro-biotics; biological body and earth care systems, services and commodities provide the environment for an enlightened, sustainable future.***
 
 #### Claiming ones fundamental human birthright; *freely connecting with that which makes living possible.*
 Being attracted to all that is alive and vital, the human tendency to relate and connect with life and natural processes - ***Is The Expression Of A Bio-Logical Need.***
@@ -32,7 +32,7 @@ Being attracted to all that is alive and vital, the human tendency to relate and
 
 Giving someone courage; for changing what must be altered, empathy for accepting what cannot be helped, and the insight for knowing one from the other. *Love and labor are inseparable, calling forth deep bravery from within.*
 
-**Lifestyles For Change; Bringing Life To Style.**
+[**Lifestyles For Change; Bringing Life To Style.**](./lifeStylesForChange/lifeStylesForChangeIntro.md)
 
 *An Archaic Revival; the sharing of a living language, learning how to discover patterns which are deep and capable of re-Generating Life.*
 
@@ -49,19 +49,17 @@ Giving someone courage; for changing what must be altered, empathy for accepting
 
 [Real time on Matrix; Join the conversation in the interactive **Vivarium Salon**](https://matrix.to/#/!LSpVaMCiYQehpJONFF:matrix.org?via=matrix.org&via=t2bot.io&via=stux.chat)
 
-### *Salon Circle:* A renewed culture of *Artful Conversation;* honoring someone's intention within a group process, were each idea is valued for itself, creating appreciated forms.
+### *Salon Circle Events, Programs and/or Experiences:* A renewed culture of *Artful Conversation;* honoring someone's intention within a group process, were each idea is valued for itself, creating appreciated forms.
 
 **Harvesting Knowledge.**
-Awakening possibility and creative insight; refine the taste, and increase knowledge through guided meaningful conversation, organized around living cultures and ideas reflective of the era in which one lives.
+Awakening possibility and creative insight; refining the tastes, and increasing the knowledge through interaction. Guiding meaningful conversations, organized around living cultures and ideas reflective of the era in which one lives.
 
 - [***Soil Makers / Vivarium Salon Circle Elements, Etiquette and Governance***](./lifeStylesForChange/vivariumSalonCircleElements.md)
 
-### *Salon Programs:* Designed to be Fun, Creative, Interactive and Resourceful.
+#### *Vavarium Salons* are Designed to be Fun, Creative, Interactive and Resourceful.
 
 **Tools For Understanding.**
 *An integrated set of processes that allow the often hidden insight of human expertise to be captured and converted into specific **Actionable Know-how** that can be transferred to someone. Cultivating a more desirable, fulfilling, life supporting; Ecologically Modern and Realistic Lifestyle.*
-
-[**Life*Styles* For Change**](./lifeStylesForChange/lifeStylesForChangeIntro.md)
 
 The *seeds of opportunity;* an awareness, taking the moment and transforming it into a better situation, something new and beautiful. Learning to live in the light of Nature.
 
@@ -69,13 +67,13 @@ Being responsible stewards of *Mother Earth* means taking to heart the current *
 
 #### *Environ-Mental Health*
 
-**Soil to Soul; Humanity, finding them selves a part of this circle of existence, thereby logically *Accepting* this circumstance, *responsibility* then means *ability*- an action oriented *authentic response* to the situation as it is, in the present moment.**
+**Soil to Soul; Humanity, finding one self a part of this circle of existence, thereby logically *Accepting* this circumstance, *responsibility* then means *ability*- an action oriented *authentic response* to the situation as it is, in the present moment.**
 
-***The aesthetics of ecology.*** The cultivation of a more attuned and responsive awareness of Wo-Mans ecological interconnections, recognizing feelings which are in touch with reality. Feelings provide a powerful way of finding out which lifestyle patterns are balanced and which are not.
+***The aesthetics of ecology.*** The cultivation of a more attuned and responsive awareness of Wo-Mans ecological interconnections, recognizing feelings which are in touch with reality, providing a powerful way of finding out which lifestyle patterns are balanced and which are not.
 
 #### *Quality Of Life*
 
-It's ones alone, that's why it takes a common unity, a partnership of people doing the right things.
+It's ones alone, that's why it takes a common unity, a partnership of individuals doing the right things.
 
 Loss of biodiversity and ecosystems are catastrophic, impacts are symbiotic and happen within the physical body through too *Mother Earth,* far into future generations.
 
@@ -83,11 +81,13 @@ Today’s young generation are being handed the biggest challenge of all; ***'Cu
 
 Not addressing immediate needs is an insult to the young. Individuals with passion, purpose and practical skills make the *world* a better place.
 
-**It's time to call home. To Act and for those acts to connect and transfer through too Mother Earth, soil to soul cultivating cultures that are healing.** Actionable know-how. Knowing what to do, and doing it. Taking the steps, teaching what one needs to learn.
+**Calling Home. Taking Action, and for those acts to connect and transfer through too Mother Earth, soil to soul cultivating cultures that are healing.** Actionable know-how. Knowing what to do, and doing it. Taking the steps, teaching what one needs to learn.
 
 #### Explore
 
 [**Thy Laif Alyaiyns Mission and Vision**](./thyLaifAlaiyns.md)
+
+[***Soil Makers / Vivarium Salon Circle Elements, Etiquette and Governance***](./lifeStylesForChange/vivariumSalonCircleElements.md)
 
 [**BioPhilia Living Design - *Proof of Concept* Urban Sustainable Eco-Living**](./bioPhiliaLivingDesignProofOfConcept/creativeEcoLivingProofOfConcept.md)
 

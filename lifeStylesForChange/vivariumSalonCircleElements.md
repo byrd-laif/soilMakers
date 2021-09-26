@@ -7,32 +7,32 @@
 
 - Organizing and honoring the collective wisdom of a group. 
 
-- Honoring personal intention within group process to create egalitarian forums.
+- Honoring someone's intention within a group process, were each idea is valued for itself, creating appreciated forms.
 
 ### *Salon Circle Elements and Etiquette*
 
-- The event has a beginning/middle/end and a structure that holds it.
+- Events having a beginning/middle/end and a structure that holds it.
 
-- Clarify context. Agreements of participation and a definition of respect are articulated. 
+- Clarifying context. Agreements of participation and a definition of respect are articulated. 
 
-- Create hospitable space, slow down and take time to think and reflect. Conversation is viewed as a practice set apart from casual social interaction.
+- Creating a hospitable space, slowing down and taking time to think and reflect. Conversations are a practice set apart from casual social interaction.
 
-- Focus on what matters. Explore ? Questions that matter ? 
+- Focusing on what matters. Exploring ? Questioning that which matters ? 
 
-- Encourage each person's contribution.
+- Encouraging each participants contribution.
 
-- Cross Pollinate, link and connect diverse opinions and ideas.
+- Cross Pollinating, linking and connecting diverse opinions and ideas.
 
-- Listen together for patterns, insights and deeper connections.
+- Listening together for patterns, insights and deeper connections.
 
-- Harvest and share collective discoveries.
+- Harvesting and share collective discoveries.
 
 ### Basic Guidelines for Calling a Vivarium Salon Circle
-To honor the lineage of the circle and PeerSpirit methodology as one uses this gift. (http://www.peerspirit.com)
+Honoring the lineage of the circle and PeerSpirit methodology as one uses this gift. (http://www.peerspirit.com)
 
 These guidelines are an adapted excerpted from the book: Calling the Circle, the First and Future Culture by Christina Baldwin in addition to the ongoing work of PeerSpirit, Inc.
 
-Now more than ever, the circle may serve Wo-Man as a form that honors all voices and invites wisdom into their midst. The circle offers the human community a safe interpersonal gathering point inside which members may courageously listen to one another, speak truths, and act with clear intention.
+Now more than ever, the circle may serve humanity as a form that honors all voices, inviting wisdom into their midst. Offering the human community a safe interpersonal gathering point inside which members and participants may courageously listen to one another, speak truths, and act with clear intention.
 
 #### *Wisdom or Council Circle is a world wide gift.*
 
@@ -40,14 +40,14 @@ The 'circle', or council methodology is an ancient social structure that has gat
 
 Vivarium Salon Circle is a modern methodology that calls on this tradition and helps people gather in conversations that fulfill their potential for dialogue, replenishment, and wisdom-based ecological change. Soil Seekers form a partnership with Vivarium Salon Circle, dedicated to a global ecological shift through conversation. Circle enables one to discover the collective wisdom. It helps participants discover who they are in relation to one another and their environments, as well as the resources each can offer to the conversation and conservation tasks at hand.
 
-The circle as a global experience has the ability to remind people of common human values, ethics and ecological concerns. This form encourages a focus on the issue at hand and, like  council circle, minimizes the tendency for discussion to fall into a debate between individuals.
+The circle as a global experience has the ability of reminding someone of common human values, ethics and ecological concerns. This form encourages a focus on the issue at hand and, like  council circle, minimizes the tendency for discussion to fall into a debate between individuals.
 
 **The circle offers the process** (the way of being together in conversation) and the intention of the group offers the content, nature provides the opportunity.
 
 ***Each circle experience can be different.***
 Circle may have similar rituals of opening and closing, but very different content. While other circle may share similar content with very different rituals.
 
-Whatever the setting, what makes a meeting into a circle is the willingness of people to shift from informal socializing or opinionated discussion into a receptive attitude of thoughtful speaking and deep listening often referred to as "the sacred space of council."
+Whatever the setting, what makes a meeting into a circle is the willingness of participants to shift from informal socializing or opinionated discussion into a receptive attitude of thoughtful speaking and deep listening often referred to as "the sacred space of council."
 
 Though expressed in slightly different ways in different cultures and through different methodologies, the sacred space of council consists of a structure that takes conversation to its depths.
 
@@ -55,9 +55,9 @@ Though expressed in slightly different ways in different cultures and through di
 
 ***The role of the host***
 
-- Be modest and humble about what can be accomplished.
+- Being modest and humble about what can be accomplished.
 
-- Allow space for all voices, but stress that although the host will try, each opinion may not be heard.
+- Allowing space for all voices, stressing that although the host will try, each opinion may not be heard.
 
 To start a circle, somebody needs to set an intention (content, mission, or direction), offer basic structure, and be ready to model circle skills while others become accustomed to how a circle works. This person is the caller of the circle, sometimes called the circle host. A circle may be held one time or meet many times over a period of months or years. In ongoing circles, the host role can rotate so that responsibility for the group is shared among members.
 
