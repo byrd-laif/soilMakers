@@ -42,7 +42,7 @@ Giving someone courage; for changing what must be altered, empathy for accepting
 ### *Vivarium Salon ~ place of life*
 *Networking Global Communities For Local Impacts.*
 
-**Vivarium Salon Culture; Cross-pollinate and connect, sharing diverse ideas and feelings about Mother Earth and the ecological future.**
+**Vivarium Salon Culture; Cross-pollinating, connecting, sharing diverse ideas and feelings about Mother Earth and the ecological future.**
 
 **At a time of ecological and economic precarity, *salon style discourse* offers a safe space for connecting; rethinking and remaking mutually symbiotic relations within the body of one-self, one-another and Mother Earth.**
 
