@@ -37,6 +37,7 @@ Giving someone courage; for changing what must be altered, empathy for accepting
 *An Archaic Revival; the sharing of a living language, learning how to discover patterns which are deep and capable of re-Generating Life.*
 
 [Live Blog On Matrix - Soil Makers](https://matrix.to/#/!EwezVvVjpxKVCMIuRM:matrix.org?via=matrix.org&via=kde.org&via=converser.eu)
+
 [Soil Makers On Open Collective](https://opencollective.com/soil-makers)
 
 ### *Vivarium Salon ~ place of life*
@@ -52,6 +53,8 @@ Giving someone courage; for changing what must be altered, empathy for accepting
 
 **Harvesting Knowledge.**
 Awakening possibility and creative insight; refine the taste, and increase knowledge through guided meaningful conversation, organized around living cultures and ideas reflective of the era in which one lives.
+
+- [***Soil Makers / Vivarium Salon Circle Elements, Etiquette and Governance***](./lifeStylesForChange/vivariumSalonCircleElements.md)
 
 ### *Salon Programs:* Designed to be Fun, Creative, Interactive and Resourceful.
 
@@ -101,8 +104,6 @@ Not addressing immediate needs is an insult to the young. Individuals with passi
 - [Kefir Milk Alchemy - An Ancient Living Legacy, The Miracle Of Kefir Milk Culture](./lifeStylesForChange/kefirMilkAlchemy.md)
 
 - [The Alchemy Of Food Preservation - Cultivating Pro-biotic Functional Foods](./lifeStylesForChange/lactoFermentbBasicMethod.md)
-
-- [Soil Makers / Vivarium Salon Circle Elements, Etiquette and Governance](./lifeStylesForChange/vivariumSalonCircleElements.md)
 
 #### Connect ~ Ask a question or book an event ...
 Contact Anna directly on Matrix @bird:matrix.org or [Connect in the Vivarium Salon](https://matrix.to/#/!LSpVaMCiYQehpJONFF:matrix.org)
