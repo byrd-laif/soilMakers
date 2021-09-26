@@ -1,11 +1,10 @@
 # *Vivarium Salon Circle ~ place of life*
 
-## *Evoking the Wisdom of the World.*
-*The ethics of ecology; Learning to live in the light of Nature.*
-
 ***Supporting Global Communities For Local Impact***
 
-- Organizing and honoring the collective wisdom of a group. 
+- Organizing and honoring the collective wisdom of a group.
+
+## *Evoking the Wisdom of the World.*
 
 - Honoring someone's intention within a group process, were each idea is valued for itself, creating appreciated forms.
 
@@ -15,7 +14,7 @@
 
 - Clarifying context. Agreements of participation and a definition of respect are articulated. 
 
-- Creating a hospitable space, slowing down and taking time to think and reflect. Conversations are a practice set apart from casual social interaction.
+- Creating a hospitable space, slowing down and taking time to think and reflect. ***Conversations are a practice set apart from casual social interaction.***
 
 - Focusing on what matters. Exploring ? Questioning that which matters ? 
 
@@ -28,7 +27,7 @@
 - Harvesting and sharing collective discoveries.
 
 ### Basic Guidelines for Calling a Vivarium Salon Circle
-Honoring the lineage of the circle and PeerSpirit methodology as one uses this gift. (http://www.peerspirit.com)
+*Honoring the lineage of the circle and PeerSpirit methodology as one uses this gift. (http://www.peerspirit.com)*
 
 These guidelines are an adapted excerpted from the book: Calling the Circle, the First and Future Culture by Christina Baldwin in addition to the ongoing work of PeerSpirit, Inc.
 
@@ -38,16 +37,16 @@ Now more than ever, the circle may serve humanity as a form that honors all voic
 
 The 'circle', or council methodology is an ancient social structure that has gathered human beings into respectful conversation for thousands of years. Serving as the foundation for collaborative dialogue and action in many cultures. Circle is used as a space to be social, to discover safe methods of dialogue, to share stories, build community, and hold meetings in a collaborative manner. In some areas of the world this tradition remains intact, but in other societies it has been nearly forgotten.
 
-Vivarium Salon Circle is a modern methodology that calls on this tradition and helps people gather in conversations that fulfill their potential for dialogue, replenishment, and wisdom-based ecological change. Soil Seekers form a partnership with Vivarium Salon Circle, dedicated to a global ecological shift through conversation. Circle enables one to discover the collective wisdom. It helps participants discover who they are in relation to one another and their environments, as well as the resources each can offer to the conversation and conservation tasks at hand.
+Vivarium Salon Circle is a modern methodology that calls on this tradition, helping participants gather in conversations that fulfills ones potential for dialogue, replenishment, and wisdom-based ecological change. Soil Makers form a partnership with Vivarium Salon Circle, dedicated to a global ecological shift through conversation. Circle enables participants to discover the collective wisdom. Helping to discover where one is, in relation to one another and their environments, as well as the resources each can offer to the conversation and conservation tasks at hand.
 
-The circle as a global experience has the ability of reminding someone of common human values, ethics and ecological concerns. This form encourages a focus on the issue at hand and, like  council circle, minimizes the tendency for discussion to fall into a debate between individuals.
+The circle as a global experience has the ability of reminding someone of common human values, ethics and ecological concerns. This form encourages a focus on the issue at hand and, like  council circle, minimizes the tendency for discussion to fall into a debate between participants.
 
 **The circle offers the process** (the way of being together in conversation) and the intention of the group offers the content, nature provides the opportunity.
 
 ***Each circle experience can be different.***
 Circle may have similar rituals of opening and closing, but very different content. While other circle may share similar content with very different rituals.
 
-Whatever the setting, what makes a meeting into a circle is the willingness of participants to shift from informal socializing or opinionated discussion into a receptive attitude of thoughtful speaking and deep listening often referred to as "the sacred space of council."
+Whatever the setting, what makes a meeting into a circle is the willingness of the host and participants to shift from informal socializing or opinionated discussion into a receptive attitude of thoughtful speaking and deep listening often referred to as "the sacred space of council."
 
 Though expressed in slightly different ways in different cultures and through different methodologies, the sacred space of council consists of a structure that takes conversation to its depths.
 
@@ -59,67 +58,72 @@ Though expressed in slightly different ways in different cultures and through di
 
 - Allowing space for all voices, stressing that although the host will try, each opinion may not be heard.
 
-To start a circle, somebody needs to set an intention (content, mission, or direction), offer basic structure, and be ready to model circle skills while others become accustomed to how a circle works. This person is the caller of the circle, sometimes called the circle host. A circle may be held one time or meet many times over a period of months or years. In ongoing circles, the host role can rotate so that responsibility for the group is shared among members.
+**The Beginning**
 
-The host briefly shares the nature of the dialog and explains the ground rules. This is a sharing of experience, not a discussion; avoid analysis and theorizing, respect what all share, refrain from making judgments. Do not probe or cross-question one another; aim to answer with complete honesty and freedom, feeling free to not answer a given question. The host begins, and then the conversation continues around the circle so that all feel they have a proper space in which to participate.
+To start a circle, somebody needs to set an intention (content, mission, or direction), offering a basic structure, being ready to model circle skills while others become accustomed to how a circle works. This person is the caller of the circle, sometimes called the circle host. A circle may be held one time or meet many times over a period of months or years. In ongoing circles, the host role can rotate so that responsibility for the group is shared among members.
+
+**Intentions**
+
+The host briefly shares the nature of the dialog and explains the ground rules. This is a sharing of experience, not a discussion; avoid analysis and theorizing, respecting what all share, refraining from making judgments. There is no probing or cross-questioning one another; aiming to answer with complete honesty and freedom, feeling free to not answer a given question. The host begins, and then the conversation continues in flow, so that all feel they have a proper space in which to participate.
+
+Intentions shape the circle and determines whom will attend, how long the circle will meet, and what kinds of outcomes are to be expected. The host/caller of the circle articulates an intention, inviting individuals to the first meeting. Intentions may evolve as the circle gathers, but it is very helpful to have an idea that will attract those individuals the circle needs. Expecting nothing; being ready for anything. Having goals, while deferring to the greater wisdom.
+
+On-line or in person-  Setting the intention pr-gathering with materials. 
+
+*Including an inspirational quote or image so that the discussion begins in a reflective way, even before the circle.
 
 ***The components of the circle***
 
-- Welcome Start-point
-- Center and Check-in/Greeting
-- Agreements
-- Intention
+- Welcoming Starting-point
+- Clarifying Agreements
+- Centering and Checking-in/Greeting
+- Sharing Intentions
 - Three Principles and Three Practices
 - Guardian of process
-- Check-out and Farewell
+- Checking-out and Farewell
 
-***Intention***
-
-Intention shapes the circle and determines who will come, how long the circle will meet, and what kinds of outcomes are to be expected. The host/caller of the circle needs to articulate an intention that will invite people to the first meeting. Intention may evolve as the circle gathers, but it is very helpful to have an idea that will attract the people the circle needs. Expect nothing; be ready for anything. Have goals, but defer to greater wisdom.
-
-On-line or in person-  Set the intention pr-gathering with materials. Include an inspirational quote or image so that the discussion begins in a reflective way, even before the circle.
 
 ***Welcome or Start-point***
 
-Once people have gathered, it is helpful for the host, or any volunteer participant, to begin the circle with a gesture that shifts people's attention from social space to council space. This gesture of welcome may be a moment of silence, reading a poem, singing a song, or listening to a musical interlude, whatever invites a sense of calm presence and brings people into the space together. 
+Once participants have gathered, it is helpful for the host, or any volunteer participant, to begin the circle with a gesture that shifts people's attention from social space to council space. This gesture of welcoming may be a moment of silence, reading a poem, singing a song, or listening to a musical interlude, whatever invites a sense of calm presence and brings everyone into the space together. 
 
 ***Establishing the center***
 
-The center of a circle is like the hub of a wheel: all energies pass through it, and it holds the rim together. To help people remember how the hub helps the group, the *center* of a circle usually holds object/s that represent the intention of the circle. Any symbol that fits this purpose or adds beauty will serve: flowers, a bowl or basket, a candle. Choose something fairly simple that suits the environment, honors local ecological culture, or symbolically represents group intention.
+The center of a circle is like the hub of a wheel: all energies pass through it, and it holds the rim together. To help participants remember how the hub helps the group, the *center* of a circle usually holds object/s that represent the intention of the circle. Any *symbol* that fits this purpose or adds beauty will serve: flowers, a bowl or basket, a candle. Choose something fairly simple that suits the environment, honors local ecological culture, or symbolically represents group intention.
 
-***Check-in/Greeting*** 
+***Checking-in/Greeting*** 
 
-Check-in helps people into a frame of mind for council and reminds everyone of their commitment to the expressed intention. It insures that people are truly present in mind as well as in body, and for on-line gatherings becomes easier to imagine each other in the circle.
+Checking-in helps participants into the *wisdom/council* frame of mind and reminds everyone of their commitment to the expressed intention. Insuring that participants are truly present in mind as well as in body, and for on-line gatherings, becomes easier to imagine each other in the circle.
 
-Crafting questions is an art form. The choice of an opening question for check-in is a significant piece of preparation for a host calling a salon circle the first time, and every time. The question is like a flower that beckons to the bee, and the responses pollinate the ensuing conversation.
+Crafting questions is an art form. The choice of an opening question for checking-in is a significant piece of preparation for a host calling a salon circle the first time, and every time. The question is like a flower that beckons to the bee, and the responses pollinate the ensuing conversation.
 
-To check-in with a new circle, people may say their names and offer a brief self-introduction. To check-in with an ongoing circle, people may speak briefly about their hopes for the meeting, offer other social comment, or share anecdotal stories about their lives.
+Checking-in with a new circle, participants may share  ones name and/or offer a brief self-introduction. Checking-in with an ongoing circle, participants may speak briefly about the purpose for attending the meeting, offer other social comment, or share anecdotal stories about their lives.
 
-Some circles enjoy the tradition of having each person share an object that represents him or herself in the meeting. As each person contributes an object (or a thought) to 'center'(metaphorically or literally) he/she may tell a brief story about what the object represents and what it means to bring it.
+Some circles enjoy the tradition of having each participant share an object that represents him or herself in the meeting. As each one contributes an object (or a thought) to 'center'(metaphorically or literally) optionally telling a brief story about what the object represents and what it means to bring it.
 
-Check-in usually starts with a volunteer and proceeds around the circle. If an individual is not ready to speak, the turn is passed and another opportunity is offered after others have completed their check-ins.
+Checking-in usually starts with a volunteer and proceeds around the circle. If a participant is not ready to speak, the turn is passed and another opportunity is offered after others have completed.
 
 ***Setting circle agreements:***
 
-The use of agreements creates an interpersonal container that allows all members to have a free and profound exchange, to respect a diversity of views, and to share responsibility of the well-being and direction of the group.
+The use of agreements creates an interpersonal container that allows all members, hosts and participants to have a free and profound exchange, respecting a diversity of views, and sharing responsibility of the well-being and direction of the group.
 
 ***Agreements often used as a basis in Vivarium Salon Circles include:***
 
-- To hold stories or personal material in confidentiality and honor other material, information or decisions with a level of confidentiality appropriate to the setting.
+- Holding stories or personal material in confidentiality and honor other material, information or decisions with a level of confidentiality appropriate to the setting.
 
 - Speaking should be from feeling and experience, rather than from theory or opinion.
 
-- Listen to each other with compassion and curiosity. Without judgment listen to understand, not to agree with or believe.
+- Listening to each other with compassion and curiosity. Without judgment, **listening to understand, not to agree with or believe.**
  
-- Exercise empathy and generosity. Ask for what is needed and offer what one can. Be kind; assume the best. (There are so many possibilities for misunderstanding.)
+- Exercising empathy and generosity. Asking for what is needed and offering what one can. **Being kind; assuming the best. (There are so many possibilities for misunderstanding.)**
 
-- Agree to employ a group guardian to watch the need, timing, and energy. 
+- Agreeing to employ a group guardian for watching over the needs, timing, and energy. 
 
-- Agree to pause at a signal, and to call for that signal when one feels the need to pause. 
+- Agreeing to pause at a signal, calling for that signal when one feels the need to pause. 
 
-This signal may be a chime, bell or rattle, at which sound all action stops, people recenter, the guardian signals again and speaks to the need he/she felt in the group. 
+This signal may be a chime, bell or rattle, at which sound all action stops, participants recenter, the guardian signals again and speaks to the need he/she felt in the group. 
 
-Each ongoing circle will consider their agreements and spend time phrasing them in their own words and adding agreements that suit their purpose together.
+Each ongoing circle considers their agreements and spends time phrasing them in their own words, adding agreements that suit their purpose together.
 
 ***Three principles:***
 The circle is not a leaderless group, it is an all leader group. The structure created by components of the circle becomes a form of self-governance.
@@ -138,17 +142,17 @@ The primary activity of circle is the interaction of speaking and listening.
 
 Three practices of council remind members of the quality of attention that council space invites us:
 
-- To speak with intention: noting what has relevance to the conversation in the moment.
+- Speaking with intention: noting what has relevance to the conversation in the moment.
 
-- To listen with attention: respectful of the learning process all members of the group.
+- Listening with attention: respectful of the learning process all members of the group.
 
-- To tend the well-being of the circle: remaining aware of the impact of ones contributions.
+- Tending the well-being of the circle: remaining aware of the impact of ones contributions.
 
 ***Forms of council:***
 
 The circle commonly uses three forms of council: talking piece, conversation and reflection.
 
-Talking piece council is often used as part of check-in, check-out, and whenever there is a desire to slow down the conversation, collect all voices and contributions, and be able to speak without interruption. Talking piece council is described in detail below.
+Talking piece council is often used as part of checking-in, checking-out, and whenever there is a desire to slow down the conversation, collect all voices and contributions, and be able to speak without interruption. Talking piece council is described in detail below.
 
 Conversation council is often used when what is needed is a reaction, interaction, and an interjection of new ideas, thoughts and opinions. The energy of open conversation stimulates the free flow of ideas. However, in circle, the agreement to pause and gather thoughts can be very helpful in the midst of conversation council. Attention should be paid to pacing so that all contributions are honored.
 
