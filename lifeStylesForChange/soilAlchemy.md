@@ -9,14 +9,14 @@ date: 2018-08-13
 
 **Soil Alchemy; Humans and Humus are Symbiotic Body and Soil Microbial Gardens. Life is not possible without Rich Fertile Soil.**
 
-Ninety percent of cells contained in the human body are microbes. Microbes produce hormones that regulate growth, stress
+***Ninety percent of cells contained in the human body are microbes.*** Microbes produce hormones that regulate growth, stress
 response, and immunity in plants and animals. *All components of an ecosystem are dependent on healthy soil for the system to function optimally.*
 
 ### Bokashi is *Soil Therapy;* Forgiveness and healing through nature. 
 
-Connecting with things that make living possible, the practice of spending time *cultivating fertile soil* for the purpose of enhancing whole health.
+***Connecting with things that make living possible, the practice of spending time *cultivating fertile soil* for the purpose of enhancing whole health.***
 
-Ancestral Healing- *Bio-logical Body and Earth care,* wellness, and happiness. A practice of *symbiotic connection* within the natural world and with each other.
+***Ancestral Healing-*** *Bio-logical Body and Earth care,* wellness, and happiness. A practice of *symbiotic connection* within the natural world and with each other.
 
 **Soil life is fragile,** an estimated one third of global soils are degraded. Moreover, each year an estimated 24 billion tonnes of fertile soil are lost due to erosion alone.
 
@@ -34,7 +34,7 @@ Cultivating Probiotic Soil that’s the color of a 70% cocoa chocolate bar, free
 
 The Soil is a dynamic and complex cycle of life, death and rebirth. Of which humans have yet to understand.
 
-**Commonly known as topsoil, essential for all life. Creating fertile terrain for new growth, strengthening immunity and offers nutrients needed for soil organisms to regenerate.**
+**Commonly known as topsoil and essential for all life. Creating fertile terrain for new growth, strengthening immunity and offers nutrients needed for soil organisms to regenerate.**
 
 The current high erosion rates throughout the world are of great concern because of the slow rate of topsoil renewal; it takes approximately 500 years for 2.5 cm layer of fertile topsoil to form under agricultural conditions.
 
@@ -45,18 +45,18 @@ Due to rapid urbanization the amount of *arable land* available for each person 
 ![Pro-biotic Fluffy Soil](./bokashiImages/fluffyBokashiSoil_web.jpg)
 Pro-biotic fluffy soil.
 
-#### **What is Bokashi?**
+#### *What is Bokashi?*
 
 **Pro-biotic Soul Food For The Soil.**
-Bokashi is a Japanese term meaning fermented organic matter and refers to a 2-step method of ***indoor soil building*** that uses beneficial micro-organisms to quickly ferment many types of organic matter including food remnants, fruit, vegetables, meat, dairy and bread.
+Bokashi is a Japanese term meaning fermented organic matter and refers to a 2-step method of ***indoor soil building*** that uses beneficial micro-organisms to quickly ferment many types of organic matter including all food remnants, fruit, vegetables, meat, dairy, bread as well as all forms of manure, human, cat, dog, chicken, ... can be processed through the system.
 
-Although the terms humus and compost are informally used inter-changeably, they are distinct soil components with different origins; humus is created through anaerobic fermentation, while compost is the result of aerobic decomposition. Likewise, there is the very important difference between composting and bokashi method. There is no putrefaction or toxic leaching happening here, such that often occur in conventional composting, producing heat. Bokashi is pro-biotic, working symbiotically with nature to accelerate the process of anerobic fermentation using beneficial microbes.
+Although the terms humus and compost are informally used inter-changeably, they are distinct soil components with different origins; humus is created through anaerobic fermentation, while compost is the result of aerobic decomposition. Fermentation is the very important difference between composting and bokashi method. There is *no putrefaction or toxic leaching* happening here, such that often occurs in conventional composting, producing heat. *Bokashi is pro-biotic,* working symbiotically with nature to accelerate the process of anerobic fermentation using beneficial microbes.
 
-***The Soil Is A Garden.***
-
-Fermentation naturally produces Lactic Acid Bacteria (LAB), one of the most well studied bacterial groups known from ancient times. ***Lactic acid - this molecule occurs in almost every living organism and it plays an essential role in the anaerobic energy metabolism of billions of life forms.*** LAB can find special applications like generation of bio-energy not affecting the surrounding environment.
+#### *The Soil Is A Garden.*
 
 ***One handful of healthy soil contains more micro-organisms than there are people living on earth.***
+
+Fermentation naturally produces Lactic Acid Bacteria (LAB), one of the most well studied bacterial groups known from ancient times. ***Lactic acid - this molecule occurs in almost every living organism and plays an essential role in the anaerobic energy metabolism of billions of life forms.*** LAB can find special applications like generation of bio-energy not affecting the surrounding environment.
 
 Bokashi conserves water in the ground, probiotic soils are not as water soluble, nutrients are less prone to leaching and run-off because the organic nutrients literally are the soil after Bokashi fermentation is complete.
 
