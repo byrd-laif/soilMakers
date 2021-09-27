@@ -58,27 +58,27 @@ Although the terms humus and compost are informally used inter-changeably, they 
 
 Fermentation naturally produces Lactic Acid Bacteria (LAB), one of the most well studied bacterial groups known from ancient times. ***Lactic acid - this molecule occurs in almost every living organism and plays an essential role in the anaerobic energy metabolism of billions of life forms.*** LAB can find special applications like generation of bio-energy not affecting the surrounding environment.
 
-Bokashi conserves water in the ground, probiotic soils are not as water soluble, nutrients are less prone to leaching and run-off because the organic nutrients literally are the soil after Bokashi fermentation is complete.
-
 #### *Benefits of Bokashi*
 
 **Bokashi is therapeutic, providing essential nutrients to rebuild soil organic matter content, and re-establish microbial populations. Benefits directly associated with improved organic matter content are: enhanced water infiltration and moisture-holding, aggregation, aeration, nutrient supply for plant growth, and microbial activity.**
+
+Bokashi conserves water in the ground, probiotic soils are not as water soluble, nutrients are less prone to leaching and run-off because the organic nutrients literally are the soil after Bokashi fermentation is complete.
 
 ***Bokashi Is A Solution To Some Very Big Problems; Regenerative Urba-culture, healing from the inside out.***
 
 **Responsible management of organic kitchen remnants can reduce 70% of the total waste production and reduce the bad gases produced during organic decomposition, all while revitalizing the environment by creating bio-active probiotic soil and liquid fertilizer to combat the negative use of toxic chemicals and pollutants.**
 
-**Probiotic Living Soils store more than 4000 billion tonnes of carbon. By way of comparison, the forests store 360 billion tonnes of carbon as woody biomass, and the atmosphere more than 800 billion tonnes in the form of carbon dioxide.**
+**Probiotic Living Soils store more than 4000 billion tonnes of carbon. By way of comparison; forests store 360 billion tonnes of carbon as woody biomass, and the atmosphere more than 800 billion tonnes in the form of carbon dioxide.**
 
 **Bioremediation**- Biotechnology employs the use of living organisms, microbes and bacteria, in the removal of contaminants, pollutants, and toxins from soil, water, and other environments.
 
 #### *Conservation as a consequence of production.*
 
-***Urban probiotic soil cultivation practices can have a significant impact on urban ecosystems.***
+***Probiotic soil cultivation practices can have a significant impact on urban ecosystems.***
 
-Bokashi, the ecologically responsible option for all food remnants, perfect for those living in apartments/condos and those looking to use their food remnants as a nutrient rich pro-biotic soil amendment in their garden, plant pots or the surrounding local environment (ecosystem) as a gift of thanks, fertile pro-biotic soil for Mother Earth. No modern garden is required, being creative with whats around ...
+Bokashi is the ecologically responsible option for all organic food remnants, perfect for someone living in an apartment/condo. Giving someone the opportunity too transform organic biomass into a nutrient rich pro-biotic soil amendment for the larger garden, the surrounding local environment (ecosystem) as a gift of thanks, fertile pro-biotic soil for Mother Earth. No *modern garden* is required, being creative with whats around ...
 
-A healthy microbiome of the physical body is like a healthy microbiome of the soil, when cared for correctly creates space for more healthy lifeforms to exist. The flora and fauna, healthy bacteria and yeast of the body and soil, actually can, do and have gone extinct! Especially in the gut, and the soil, from a life time of unhealthy eating they just become eliminated. Fermentation is the way to bring that balance back, body and soil all life is 'built' the same.
+A healthy microbiome of the physical body is like a healthy microbiome of the soil, when cared for correctly creates space for more healthy lifeforms to exist. The flora and fauna, healthy bacteria and yeast of the body and soil, actually can, do and have gone extinct. Especially in the immune system, the gut of the physical body, and the soil, the immune system of Mother Earth. From *A life time* of unhealthy eating, consuming chemical laden *food* body and soil, they just become eliminated. Fermentation is the way to bring that balance back. Body and soil, all life is *built* upon the laws of Nature.
 
 **Bokashi can be:**
 
@@ -89,9 +89,9 @@ A healthy microbiome of the physical body is like a healthy microbiome of the so
 - provides a rich pro-biotic soil amendment for remediation, revitalization and reuse
 - emotionally nutritive 
 
-**Note:** Fresh citrus and pineapple remnants are packed with powerful organic cleaning enzymes that can be easily fermented to produce luxury [Pro-biotic and multi purpose; Symbiotic Healing and Cleaning Products.](./waterAlchemy.md) That can be added to the bokashi system as a byproduct.
+**Note:** Fresh citrus and pineapple remnants are packed with powerful organic cleaning enzymes that can be easily fermented to produce luxury [Pro-biotic and multi purpose; Symbiotically Healing and Cleaning Products.](./waterAlchemy.md) (That produces a probiotic byproduct that can be added to the bokashi system or can be used directly in the environment.)
 
-#### *Method*
+#### *Bokashi Method*
 
 **Step 1: Anaerobic Fermentation - *takes place indoors* in a sealed Bokashi bin.**
 Layering food remnants with a starter mix, the microbes present in the starter mix quickly ferment the food remnants. Once filled set the bin aside for 10 - 14 days and start using another bin. Two weeks later the initial bin of organic matter will be fully fermented and ready for Step 2.
@@ -101,7 +101,7 @@ Layering food remnants with a starter mix, the microbes present in the starter m
 ![In the garden, dig a shallow trench and cover with soil.](./bokashiImages/bokashiGardenBury_web.jpg)
 In the garden, dig a shallow trench, deposit contents and cover with soil.
 
-Most food remnants will be indistinguishable from the soil in a week or two, although certain items like bones, egg shells, and corn cobs will take longer to disappear and will act as a slow release fertilizer. While the organic matter is converted into soil it is still quite acidic so wait 10 days before planting.
+Most food remnants will be indistinguishable from the soil in a week or two, although certain items like bones, egg shells, and corn cobs will take longer to disappear, acting as a slow release fertilizer. While the organic matter is converted into soil it is somewhat acidic, waiting 10 days before planting allows the pH to find a natural balance.
 
 The active ingredients in the process are the effective microorganisms – a combination of lactic acid bacteria (also found in home kefir whey and lacto ferments), photosynthetic bacteria, and yeast - that ferment the organic matter. These microbes, present in the Bokashi Starter Mix, are sprinkled over the layers of food remnants as the bin is filled.
 
@@ -109,27 +109,27 @@ A healthy Bokashi bin does not create bad odors,  greenhouse gas, or heat - uses
 
 #### *Materials and Tools Needed*
 
-- A minimum of two 5-gallon (or suitable size) nesting buckets with tight fitting lids (three is best to have a rotation)
+- A minimum of two 5-gallon (or suitable size) nesting bins with tight fitting lids (three is best to have a rotation)
 - Absorbent material (peat moss, coconut coir, shredded newspaper, sawdust, dried small leaf or grass...)
 - Bokashi starter mix (can be purchased or home cultured)
 - Food remnants chopped into small pieces
 - drill or soldering iron
 - clay building brick or same size rock
 
-#### *Setting up The Bokashi Buckets*
+#### *Setting up The Bokashi Bins*
 
 ![Melting holes in larger bins for bokashi.](./bokashiImages/bokashiBinBuildHole_web.jpg)
 
-Melting holes in larger bins for bokashi.
+Making holes in the *inner* bins for bokashi fermentation to have good drainage.
 
-- On the bottom of one bucket, drill or melt with a soldering iron, 20 to 30 holes with a 1/8- to 1/4-inch drill bit.
-- Place brick or rock in the bucket with no holes.
-- Set the bucket with holes into the solid bucket, with no holes.
-- Cover the bucket with a tight-fitting lid.
-- Start adding food remnants and bokashi inoculant, Starter Mix to the bucket.
-- Harvest liquid fertilizer (bokashi tea) by lifting the top bucket off of the bottom bucket, pouring any liquid into a separate container. Observe on a regular basis.
+- On the bottom of the inner bin, drill or melt with a soldering iron, 20 to 30 holes with a 1/8- to 1/4-inch drill bit.
+- Place a brick or rock in the bin with no holes.
+- Set the bin with holes into the solid bin, with no holes.
+- Cover the bin with a tight-fitting lid.
+- Start adding food remnants, layering with bokashi inoculant *Starter Mix* after each deposit. Compact and close the bin.
+- Harvest liquid fertilizer (bokashi tea) by lifting the inner bokashi bin from the outer bin. Harvesting any liquid into a separate container. Observe on a regular basis.
 
-Note: The brick creates space for the liquid fertilizer to collect and to ensure the buckets do not get stuck together as the inner bucket fills. 
+Note: The brick creates space for the liquid fertilizer to collect and to ensure the bins do not get stuck together as the inner bin fills. 
 
 ![Apartment setup is easy and clean.](./bokashiImages/bokashiWorkingSetClosed_web.JPG)
 Apartment setup is easy, clean and scalable.
@@ -151,46 +151,52 @@ Making Bokashi starter using small dry leaf as a substrate.
 
 - Pour over the absorbent material so that when squeezed together some of it holds but no liquid comes out. Add more water if needed.
 
-- Seal in a bag or use a bucket and put a bag over it and then a lid, NO Air or as little as possible. Seal and ferment for 10 - 14 days.
+- Seal in a bag or use a sealing bin, *NO Air* or as little as possible. Seal and ferment for 10 - 14 days.
 
-- Sniff test, the bokashi should smell a little like apple cider vinegar. Its ready to use! For long term storage, lay the fermented sawdust out on shallow trays and dry in the shade. Once dry it can be stored in containers.
+- Sniff testing, the bokashi should smell a little sour, like apple cider vinegar. Its ready to use! For long term storage, lay the fermented material out on shallow trays for drying in the shade. Once dry it can be stored in containers.
 
 *Voila "Bokashi Bran"*
 
-#### *Home Ferment Bokashi Serum = E/M*
+#### *Home Fermenting Bokashi Serum = E/M*
 
 *Two Options*
 
-**Option 1) Rice Water and Milk Ferment**
+**Option 1) Fermented Rice Water and Milk Ferment**
 
-- To Make Rice Water:
+- Making Fermented Rice Water:
 
-- 1:2 rice to water ratio, soak rice for about 15 minutes, stir vigorously then strain and ferment the water in a open air vessel with a secured cloth cover to allow exposure to the air for 5 - 8 days. (rice can be cooked and consumed)
+- 1:2 rice to water ratio 
+- soak rice for about 15 minutes
+- stir vigorously
+- strain, catching the rice water in an open air vessel *(rice can be cooked and consumed)*
+- cover vessel with a dish towel, securely tied in place
+- allow the rice water to ferment for 5 - 8 days
+- shake before each use adding an appropriate amount of sugar to feed the ferment inspect regularly.
 
 **Next combine:**
 
-- 1 part fermented rice water to 10 parts whole milk, cover and allow to ferment 10 - 14 days. The ferment will separate into three distinct layers. Use a turkey baster or some such device to retrieve the middle layer.
+- 1 part fermented rice water to 10 parts whole milk, cover and allow to ferment 10 - 14 days. The ferment may separate into three distinct layers. Use a turkey baster or some such device to retrieve the middle layer. If there is not a distinct layer pass the contents through a fine mesh, collecting the liquid. (Solids can be processed through the system as food remnants.)
 
 - Bottle, cap and store in a cool dark place.
 
 - For long storage of bokashi serum add a little molasses.
 
-**Option 2) Home ferment Kefir Milk Whey or Sauerkraut Juice**
+**Option 2) Home fermenting for Kefir "Milk Whey" or Sauerkraut "Juice"**
 
-[Kefir Milk](./kefirMilkAlchemy.md) Whey comes from straining live cultured home fermented kefir milk through cloth to separate the milk solids from the liquid whey. If neither whey or sauerkraut juice is available then use above method.
+[Kefir Milk](./kefirMilkAlchemy.md) "Whey and juice" comes from straining live cultured home fermented kefir milk or sauerkraut through a cloth to separate the organic solids from the liquids. If neither kefir milk or sauerkraut is available then use above rice method.
 
 #### *Inside the Bokashi Bucket*
 
 ![Apartment bokashi setup, adding kitchen remnants.](./bokashiImages/bokashiOpenAddingKitchenRemnants_web.JPG) 
 Apartment bokashi setup, adding kitchen remnants.
 
-- Assemble buckets and start adding food remnants, compact with a potato masher or use the bottom of a cup.
+- Assemble buckets and start adding food remnants and compact.
 
-- Once the bin is about 1/2 inch of compacted food remnants dust with the bokashi starter.
+- Dust compacted food remnants with the bokashi starter and secure lid.
 
 - Repeat until the bin is full.
 
-- Once full seal and set aside in a warm dark corner to ferment for 2 weeks.
+- Once full seal and set aside in a warm, dark corner to ferment for 2 weeks.
 
 - Bury in the garden, add to a compost bin, move into a bokashi soil building system or use in pots (up to 1/3 by volume).
 
