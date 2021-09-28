@@ -13,7 +13,9 @@ date: 2021-09-22
 
 ***A Living Legacy - Ecology As Art; curating symbiotic relationships between Wo-Man, organisms and their environments.***
 
-***Authenticity: Using curiosity, intuition and imagination; the æsthetics of a natural law.***
+***Cultivating authenticity: autonomy, mastery and purpose.***
+
+Using curiosity, intuition and imagination; the æsthetics of a natural law.***
 
 #### Private Collaborative Consulting; Designing and Hosting Projects, Events and Live Online 'Salon Style' Experiences.
 
