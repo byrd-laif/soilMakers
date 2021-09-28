@@ -46,7 +46,7 @@ The circle as a global experience has the ability of reminding someone of common
 ***Each circle experience can be different.***
 Circle may have similar rituals of opening and closing, but very different content. While other circle may share similar content with very different rituals.
 
-Whatever the setting, what makes a meeting into a circle is the willingness of the host and participants to shift from informal socializing or opinionated discussion into a receptive attitude of thoughtful speaking and deep listening often referred to as "the sacred space of council."
+**Whatever the setting, what makes a meeting into a circle is the willingness of the host and participants to shift from informal socializing or opinionated discussion into a receptive attitude of thoughtful speaking and deep listening often referred to as "the sacred space of council."**
 
 Though expressed in slightly different ways in different cultures and through different methodologies, the sacred space of council consists of a structure that takes conversation to its depths.
 
@@ -72,7 +72,7 @@ On-line or in person-  Setting the intention pr-gathering with materials.
 
 *Including an inspirational quote or image so that the discussion begins in a reflective way, even before the circle.
 
-***The components of the circle***
+#### *The components of the circle*
 
 - Welcoming Starting-point
 - Clarifying Agreements
@@ -103,15 +103,15 @@ Some circles enjoy the tradition of having each participant share an object that
 
 Checking-in usually starts with a volunteer and proceeds around the circle. If a participant is not ready to speak, the turn is passed and another opportunity is offered after others have completed.
 
-***Setting circle agreements:***
+#### **Setting circle agreements:*
 
 The use of agreements creates an interpersonal container that allows all members, hosts and participants to have a free and profound exchange, respecting a diversity of views, and sharing responsibility of the well-being and direction of the group.
 
-***Agreements often used as a basis in Vivarium Salon Circles include:***
+#### *Agreements used as a basis in Vivarium Salon/Circle include:*
 
 - Holding stories or personal material in confidentiality and honor other material, information or decisions with a level of confidentiality appropriate to the setting.
 
-- Speaking should be from feeling and experience, rather than from theory or opinion.
+- Speaking and sharing should be from feeling and experience, rather than from theory or opinion.
 
 - Listening to each other with compassion and curiosity. Without judgment, **listening to understand, not to agree with or believe.**
  
@@ -125,40 +125,43 @@ This signal may be a chime, bell or rattle, at which sound all action stops, par
 
 Each ongoing circle considers their agreements and spends time phrasing them in their own words, adding agreements that suit their purpose together.
 
-***Three principles:***
+#### *Three principles.*
+
 The circle is not a leaderless group, it is an all leader group. The structure created by components of the circle becomes a form of self-governance.
 
 Three principles referenced in wisdom/council circle work serve as a foundation for this governance. 
 
-These principles are:
+**These principles are:**
 
 - Leadership can rotate among all circle members.
 - Responsibility is shared for the quality of experience.
 - Members place ultimate reliance on inspiration (or spirit), rather than on any personal agenda.
 
-***Three practices:***
+#### *Three practices.*
 
 The primary activity of circle is the interaction of speaking and listening.
 
-Three practices of council remind members of the quality of attention that council space invites us:
+Three practices of council remind members of the quality of attention that council space invites us.
+
+**These practices are:**
 
 - Speaking with intention: noting what has relevance to the conversation in the moment.
 
-- Listening with attention: respectful of the learning process all members of the group.
+- Listening with attention: respectful of the learning process of the group as a whole.
 
 - Tending the well-being of the circle: remaining aware of the impact of ones contributions.
 
-***Forms of council:***
+#### *Three forms of council.*
 
 The circle commonly uses three forms of council: talking piece, conversation and reflection.
 
-Talking piece council is often used as part of checking-in, checking-out, and whenever there is a desire to slow down the conversation, collect all voices and contributions, and be able to speak without interruption. Talking piece council is described in detail below.
+**Talking piece** council is often used as part of checking-in, checking-out, and whenever there is a desire to slow down the conversation, collect all voices and contributions, and be able to speak without interruption. Talking piece council is described in detail below.
 
-Conversation council is often used when what is needed is a reaction, interaction, and an interjection of new ideas, thoughts and opinions. The energy of open conversation stimulates the free flow of ideas. However, in circle, the agreement to pause and gather thoughts can be very helpful in the midst of conversation council. Attention should be paid to pacing so that all contributions are honored.
+**Conversation council** is often used when what is needed is a reaction, interaction, and an interjection of new ideas, thoughts and opinions. The energy of open conversation stimulates the free flow of ideas. However, in circle, the agreement to pause and gather thoughts can be very helpful in the midst of conversation council. Attention should be paid to pacing so that all contributions are honored.
 
-Reflection, or Silent council gives each member time and space to reflect on what is occurring, or needs to occur, in the course of a meeting. Silence may be called so that each person can consider the role or impact they are having on the group, or to help the group realign with the intention, or to sit with a question until there is clarity. Depending on the setting and purpose of the circle, members may ask for a period of group silence as way to wait for guidance, take time-out from conversation, or center one-self more deeply before making a decision or taking action.
+**Reflection, or Silent council** gives each member time and space to reflect on what is occurring, or needs to occur, in the course of a meeting. Silence may be called so that each person can consider the role or impact they are having on the group, or to help the group realign with the intention, or to sit with a question until there is clarity. Depending on the setting and purpose of the circle, members may ask for a period of group silence as way to wait for guidance, take time-out from conversation, or center one-self more deeply before making a decision or taking action.
 
-***Guardian***
+#### *Guardians*
 
 The single most important tool for aiding self-governance and bringing the circle back to intention is the role of the guardian. To provide a guardian, one circle member at a time volunteers to watch and safeguard group energy and observe the circle process. The guardian has the group's permission to intercede in group process for the purpose of calling the circle back to center, to focus on the issue or topic, to remind members of respectful practices or agreements, or to suggest a rest break.
 
@@ -168,17 +171,17 @@ The guardian may suggest use of the talking piece, if the conversation has becom
 
 ***Talking Piece***
 
-The talking piece can be any object, literal or metaphorical that can be easily *passed.* This may be an object from Nature, such as a stone, stick or feather, or an object that has meaning for a particular circle. When employed in a round of council, only the person *holding* the talking piece speaks, and other circle members listen without interruption.
+The talking piece can be any object, literal or metaphorical that can be easily *passed.* This may be an *object* from Nature, such as a stone, stick or feather, or an object that has meaning for a particular circle. When employed in a round of council, only the individual *holding* the talking piece speaks with other circle members listening without interruption.
 
-A talking piece is used whenever there is a desire to move the conversation more slowly so everyone's stories, input or wisdom can be gathered. One member picks up or requests the talking piece, shares his/her thoughts, or story and then passes it on. The talking piece progresses around the circle, either in sequence or by volunteering, until everyone has had an opportunity to contribute. As in check-in, one may pass a turn and then speak after others have spoken.
+A talking piece is used whenever there is a desire to move the conversation more slowly so everyone's stories, input or wisdom can be gathered. One member picks up or requests the talking piece, shares his/her thoughts or story and then passes it on in circle or to the host or *guardian* as appropriate. The talking piece progressing around the circle, either in sequence or by volunteering, until everyone has had an opportunity to contribute. As in checking-in, one may pass a turn and then speak after others have spoken.
 
-***Checkout and Farewell***
+***Checking out and Farewell***
 
-At the close of a circle meeting, it is important to allow a few minutes for each member to comment on what they learned, or what stays in their heart and mind as they leave.
+At the close of a circle meeting, it is important to allow a few minutes for each participant to comment on what was learned, or sharing feelings of what connected in the heart and mind, bringing the circle to close.
 
-Closing the circle by checking out provides a formal end to the meeting, a chance for members to reflect on anything that has transpired.
+Closing the circle by checking out provides a formal end to the meeting, a chance for participants to reflect on anything that has transpired.
 
-As participants shift from council space to social space or private time, each release one another from the intensity of attention being in circle requires. Often after check-out, the host, guardian, or volunteer will offer a few inspirational words or farewell, or signal a few seconds of silence before the circle is released.
+As participants shift from council space to social space or private time, each release one another from the intensity of attention being in circle requires. Often after checking-out, the host, guardian, or volunteer will offer a few inspirational words or farewell, or signal a few seconds of silence before the circle is released.
 
 Circle is not a dogmatic form. Each circle will develop its own unique personality and style. The circle structure has proven its strength and adaptability from the first campfires of ancestors to the global age. Each circle contributes to this long-held human tradition through the practices of listening, speaking, and thoughtful action.
 

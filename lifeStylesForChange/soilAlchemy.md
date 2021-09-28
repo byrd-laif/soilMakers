@@ -22,17 +22,19 @@ response, and immunity in plants and animals. *All components of an ecosystem ar
 
 Building up, maintaining and conserving the fertility of different soil types around the world in the face of diverse climatic conditions is the biggest challenge of agriculture today. 
 
-**The key to soil fertility lies mostly in the humus content of soils.**
+**The key to soil fertility lies mostly in the humus content of soils.** 
 
-Cultivating Probiotic Soil that’s the color of a 70% cocoa chocolate bar, free of chemicals and teeming with beneficial bacteria, protozoa, fungi and nematodes. Without them soil is dead. Chemical fertilizers are like feeding the body highly processed foods, empty calories that may fill one up in the short term but leave one vulnerable to disease and other problems over time. The life of the soil is part of the life of the plants grown in it, part of the body tending it, and part of the body eating from it all, soil to soul food.
+Humus is the organic component of soil, formed by the decomposition of leaves and other plant material by soil microorganisms.
+
+Cultivating Probiotic Soil rich in color, free of chemicals and teeming with beneficial bacteria, protozoa, fungi and nematodes. Without them soil is dead. Chemical fertilizers are like feeding the body highly processed foods, empty calories that fill one up in the short term but leave one vulnerable to disease and other problems over time. The life of the soil is part of the life of the plants grown in it, part of the body tending it, and part of the body eating from it all, soil to soul food.
 
 ***Humility:*** The state of being Humble; Middle English, from Anglo-French, from Latin humilis low, humble, ***from humus earth;*** akin to Greek chthōn ***earth,*** chamai on ***the ground.***
 
 #### Soil Return - 30% of soil is fungal mass, bokashi pro-biotic soil offers *soul food* to the field. Microbes and other soil organisms that are capable of producing all the nutrients plants need.
 
-**Humus is a component of soil, organic matter reduced until it can break down no further. In this state of evolution its appearance is unified. Ranging in color from brown to black, consisting of about 60 percent carbon, 6 percent nitrogen, and smaller amounts of phosphorus and sulfur. Its basically the final stage of soil life, broken down to its smallest constituents. Ashes to ashes this is where all organic life ends up. As Humus. Star dust of the earth.
+**Components of humus; organic matter reduced until it can break down no further. In this state of evolution its appearance is unified. Ranging in color from brown to black, consisting of about 60 percent carbon, 6 percent nitrogen, and smaller amounts of phosphorus and sulfur. Its the basic final stage of soil life, broken down to its smallest constituents. Ashes to ashes this is where *all* organic life ends up, and begins from, Humus, the womb of mother earth.
 
-The Soil is a dynamic and complex cycle of life, death and rebirth. Of which humans have yet to understand.
+*The Soil is a dynamic and complex cycle of life, death and rebirth. Of which humans have yet to understand.*
 
 **Commonly known as topsoil and essential for all life. Creating fertile terrain for new growth, strengthening immunity and offers nutrients needed for soil organisms to regenerate.**
 
@@ -48,13 +50,15 @@ Pro-biotic fluffy soil.
 #### *What is Bokashi?*
 
 **Pro-biotic Soul Food For The Soil.**
-Bokashi is a Japanese term meaning fermented organic matter and refers to a 2-step method of ***indoor soil building*** that uses beneficial micro-organisms to quickly ferment many types of organic matter including all food remnants, fruit, vegetables, meat, dairy, bread as well as all forms of manure, human, cat, dog, chicken, ... can be processed through the system.
+Bokashi is a Japanese term meaning fermented organic matter and refers to a 2-step method of ***indoor soil building.*** Using the many beneficial micro-organisms mother earth provides to quickly ferment many types of organic matter, including all food remnants, fruit, vegetables, meat, dairy, bread, raw or cooked as well as forms of manure, human, cat, dog, bird, rabbit and many others are safely processed through the system.
 
-Although the terms humus and compost are informally used inter-changeably, they are distinct soil components with different origins; humus is created through anaerobic fermentation, while compost is the result of aerobic decomposition. Fermentation is the very important difference between composting and bokashi method. There is *no putrefaction or toxic leaching* happening here, such that often occurs in conventional composting, producing heat. *Bokashi is pro-biotic,* working symbiotically with nature to accelerate the process of anerobic fermentation using beneficial microbes.
+Although the terms humus and compost are informally used inter-changeably, they are distinct soil components with different origins; humus is created through anaerobic fermentation, while compost is the result of aerobic decomposition. 
+
+Fermentation is the very important difference between bokashi method and composting. There is *no putrefaction or toxic leaching* happening here, such that often occurs in conventional composting, producing heat. *Bokashi is pro-biotic,* working symbiotically with nature to accelerate the process of anerobic fermentation using beneficial microbes.
 
 #### *The Soil Is A Garden.*
 
-***One handful of healthy soil contains more micro-organisms than there are people living on earth.***
+***One handful of healthy soil contains more micro-organisms than there are humans living on earth.***
 
 Fermentation naturally produces Lactic Acid Bacteria (LAB), one of the most well studied bacterial groups known from ancient times. ***Lactic acid - this molecule occurs in almost every living organism and plays an essential role in the anaerobic energy metabolism of billions of life forms.*** LAB can find special applications like generation of bio-energy not affecting the surrounding environment.
 
