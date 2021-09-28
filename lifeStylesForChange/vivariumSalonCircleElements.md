@@ -35,11 +35,11 @@ Now more than ever, the circle may serve humanity as a form that honors all voic
 
 #### *Wisdom or Council Circle is a world wide gift.*
 
-The 'circle', or council methodology is an *ancient social structure* that has gathered human beings into respectful conversation for thousands of years. Serving as the foundation for *collaborative dialogue and action* in many cultures. Circle is used as a space to be social, to discover safe methods of dialogue, to share stories, build community, and hold meetings in a collaborative manner. In some areas of the world this tradition remains intact, but in other societies it has been nearly forgotten.
+The 'circle', or council methodology is an *ancient social structure* that has gathered human beings into respectful conversation for thousands of years. Serving as the foundation for *collaborative dialogue and action* in many cultures. Circle is used as a space to be social; discovering safe methods of dialogue, sharing stories, building community, and holding meetings in a collaborative manner. In some areas of the world this tradition remains intact, but in other societies it has been nearly forgotten.
 
-Vivarium Salon Circle is a modern methodology that calls on this tradition, helping participants gather in conversations that fulfills ones potential for dialogue, replenishment, and wisdom-based ecological change. Soil Makers form a partnership with Vivarium Salon Circle, dedicated to a global ecological shift through conversation. Circle enables participants to discover the collective wisdom. Helping to discover where one is, in relation to one another and their environments, as well as the resources each can offer to the conversation and conservation tasks at hand.
+Vivarium Salon Circle is a modern methodology that calls on this tradition, helping participants gather in conversations that fulfills ones potential for dialogue, replenishment, and wisdom-based ecological changes. Soil Makers form a partnership with Vivarium Salon Circle, dedicated to a global ecological shift through conversation. Circle enables participants to discover the collective wisdom. Helping to discover where one is, in relation to one another and their environments, as well as the resources each can offer to the conversation or task at hand.
 
-The circle as a global experience has the ability of reminding someone of common human values, ethics and ecological concerns. This form encourages a focus on the issue at hand and, like  council circle, minimizes the tendency for discussion to fall into a debate between participants.
+The circle as a global experience has the ability of reminding someone of common human values, ethics and ecological concerns. Encouraging a focus on the *issue at hand* council circle minimizes the tendency for discussion to fall into a debate between participants.
 
 **The circle offers the process** (the way of being together in conversation) and the intention of the group offers the content, nature provides the opportunity.
 
@@ -183,9 +183,7 @@ Closing the circle by checking out provides a formal end to the meeting, a chanc
 
 As participants shift from council space to social space or private time, each release one another from the intensity of attention being in circle requires. Often after checking-out, the host, guardian, or volunteer will offer a few inspirational words or farewell, or signal a few seconds of silence before the circle is released.
 
-Circle is not a dogmatic form. Each circle will develop its own unique personality and style. The circle structure has proven its strength and adaptability from the first campfires of ancestors to the global age. Each circle contributes to this long-held human tradition through the practices of listening, speaking, and thoughtful action.
-
-***Love and Light***
+Circle is not a dogmatic form, each circle developing its own unique personality and style. The circle structure brings its strength and adaptability from the first ancestral campfires, to the global age. Each circle contributes to the long-held human tradition through the practices of listening, speaking, and thoughtful actions.
 
 [***Vivarium Salon Circle*** ~ Singing bowl gathering video compilation](https://vimeo.com/553648700)
 
