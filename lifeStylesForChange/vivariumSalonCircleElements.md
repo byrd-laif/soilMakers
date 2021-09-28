@@ -6,7 +6,7 @@
 
 ## *Evoking the Wisdom of the World.*
 
-- Honoring someone's intention within a group process, were each idea is valued for itself, creating appreciated forms.
+- Honoring someone's intention within a group process, where each idea is valued for itself, creating appreciated forms.
 
 ### *Salon Circle Elements and Etiquette*
 
