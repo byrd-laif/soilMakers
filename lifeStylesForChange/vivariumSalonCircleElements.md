@@ -14,7 +14,7 @@
 
 - Clarifying context. Agreements of participation and a definition of respect are articulated. 
 
-- Creating a hospitable space, slowing down and taking time to think and reflect. ***Conversations as a practice, set apart from casual social interaction.***
+- Creating a hospitable space, slowing down, taking time to think and reflect. ***Conversations as a practice, set apart from casual social interaction.***
 
 - Focusing on what matters. Exploring ? Questioning that which matters ? 
 
@@ -35,9 +35,9 @@ Now more than ever, the circle may serve humanity as a form that honors all voic
 
 #### *Wisdom or Council Circle is a world wide gift.*
 
-The 'circle', or council methodology is an *ancient social structure* that has gathered human beings into respectful conversation for thousands of years. Serving as the foundation for *collaborative dialogue and action* in many cultures. Circle is used as a space to be social; discovering safe methods of dialogue, sharing stories, building community, and holding meetings in a collaborative manner. In some areas of the world this tradition remains intact, but in other societies it has been nearly forgotten.
+The 'circle', or council methodology is an *ancient social structure* that has gathered human beings into respectful conversation for thousands of years. Serving as the foundation for *collaborative dialogue and action* in many cultures. Circle is used as a space to be social; discovering safe methods of dialogue, sharing stories, building community, and holding meetings in a collaborative manner.
 
-Vivarium Salon Circle is a modern methodology that calls on this tradition, helping participants gather in conversations that fulfills ones potential for dialogue, replenishment, and wisdom-based ecological changes. Soil Makers form a partnership with Vivarium Salon Circle, dedicated to a global ecological shift through conversation. Circle enables participants to discover the collective wisdom. Helping to discover where one is, in relation to one another and their environments, as well as the resources each can offer to the conversation or task at hand.
+Vivarium Salon Circle is a modern methodology that calls on this tradition, helping participants gather in conversations that fulfills ones potential for dialogue, replenishment, and wisdom-based environMental changes. Soil Makers form a partnership with Vivarium Salon Circle, dedicated to a global environMental shift through conversation. Circle enables participants to discover the collective wisdom. Helping to feel where one is, in relation to one another and their environments, as well as the resources each can offer to the conversation or task at hand.
 
 The circle as a global experience has the ability of reminding someone of common human values, ethics and ecological concerns. Encouraging a focus on the *issue at hand* council circle minimizes the tendency for discussion to fall into a debate between participants.
 
