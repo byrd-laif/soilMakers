@@ -13,12 +13,12 @@
 
 **Cultivating a *Bio-logical Economy* creates the market for an *Ecologically Sustainable* future.** 
 
-***Eco-logical Pro-biotics; biological body and earth care systems, services and commodities provide the environment for an enlightened, sustainable future.***
+***EnvironMental Pro-biotics; biological body and earth care systems, services and commodities provide the environment for an enlightened, sustainable future.***
 
 #### Claiming ones fundamental human birthright; *freely connecting with that which makes living possible.*
 Being attracted to all that is alive and vital, the human tendency to relate and connect with life and natural processes - ***Is The Expression Of A Bio-Logical Need.***
 
-***Power as responsibility rather than domination.*** A radical sift from Bio-Logical warfare; built on guilt, fear and force to an 'Eco-logical Partnership'. ***Bio-Logical Freedom**; feeling free to swim in the rivers of Mother Earth without fear of reprisal.*
+***Power as responsibility rather than domination.*** A radical sift from Bio-Logical warfare; built on guilt, fear and force to an 'EnvironMental Partnership'. ***Bio-Logical Freedom**; feeling free to swim in the rivers of Mother Earth without fear of reprisal.*
 
 *Partnership systems support mutually respectful and caring relations.*
 
@@ -30,7 +30,7 @@ Being attracted to all that is alive and vital, the human tendency to relate and
 
 *Art,* as the vehicle for working through feelings of living in a damaged world, cultivating cultures that symbiotically connect, healing soil to soul.
 
-Giving someone courage; for changing what must be altered, empathy for accepting what cannot be helped, and the insight for knowing one from the other. *Love and labor are inseparable, calling forth deep bravery from within.*
+***Giving someone courage;*** for changing what must be altered, empathy for accepting what cannot be helped, and the insight for knowing one from the other. *Love and labor are inseparable, calling forth deep bravery from within.*
 
 [**Lifestyles For Change; Bringing Life To Style.**](./lifeStylesForChange/lifeStylesForChangeIntro.md)
 
@@ -61,7 +61,7 @@ Awakening possibility and creative insight; refining the tastes, and increasing 
 **Tools For Understanding.**
 *An integrated set of processes that allow the often hidden insight of human expertise to be captured and converted into specific **Actionable Know-how** that can be transferred to someone. Cultivating a more desirable, fulfilling, life supporting; Ecologically Modern and Realistic Lifestyle.*
 
-The *seeds of opportunity;* an awareness, taking the moment and transforming it into a better situation, something new and beautiful. Learning to live in the light of Nature.
+The *seeds of opportunity;* an awareness, taking the moment and transforming it into a better situation, something new and beautiful. Taking the steps, teaching what one needs to learn.
 
 Being responsible stewards of *Mother Earth* means taking to heart the current *planetary healing crisis*.
 
@@ -69,7 +69,7 @@ Being responsible stewards of *Mother Earth* means taking to heart the current *
 
 **Soil to Soul; Humanity, finding one self a part of this circle of existence, thereby logically *Accepting* this circumstance, *responsibility* then means *ability*- an action oriented *authentic response* to the situation as it is, in the present moment.**
 
-***The aesthetics of ecology.*** The cultivation of a more attuned and responsive awareness of Wo-Mans ecological interconnections, recognizing feelings which are in touch with reality, providing a powerful way of finding out which lifestyle patterns are balanced and which are not.
+***The aesthetics of ecology.*** The cultivation of a more attuned and responsive awareness of Wo-Mans ecological interconnections, recognizing feelings which are in touch with reality, providing a powerful way of finding out which lifestyle patterns are balanced and which are not. Learning to live in the light of Nature.
 
 #### *Quality Of Life*
 
@@ -81,7 +81,7 @@ Today’s young generation are being handed the biggest challenge of all; ***'Cu
 
 Not addressing immediate needs is an insult to the young. Individuals with passion, purpose and practical skills make the *world* a better place.
 
-**Calling Home. Taking Action, and for those acts to connect and transfer through too Mother Earth, soil to soul cultivating cultures that are healing.** Actionable know-how. Knowing what to do, and doing it. Taking the steps, teaching what one needs to learn.
+**Calling Home. Taking Action, and for those acts to connect and transfer through too Mother Earth, soil to soul cultivating cultures that are healing.** Knowing what to do, and doing it.
 
 #### Explore
 
