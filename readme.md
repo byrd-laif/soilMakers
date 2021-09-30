@@ -45,13 +45,15 @@ Resources mixed with inspiring actionable knowhow made manifest. Sharing creativ
 ### *Vivarium Salon Circle ~ place of life*
 *Networking Global Communities For Local Impacts.*
 
-**At a time of environMental and economic precarity, *salon circle discourse* offers a safe space for connecting; rethinking and remaking mutually symbiotic relations within the body of one-self, one-another and Mother Earth.**
+***A renewed culture of Artful Conversation; honoring someone's intention within a group process, were each idea is valued for itself, creating appreciated forms.***
 
-**Salon and Circle Culture; Cross-pollinating, connecting, sharing authentic lived experiences, diverse ideas and feelings about Mother Earth and the future.
+At a time of environMental and economic precarity, salon circle discourse offers a safe space for connecting; rethinking and remaking mutually symbiotic relations within the body of one-self, one-another and Mother Earth.
 
-[Real time on Matrix; Join an open conversation in the interactive **Vivarium Salon**](https://matrix.to/#/!LSpVaMCiYQehpJONFF:matrix.org?via=matrix.org&via=t2bot.io&via=stux.chat)
+Salon and Circle Culture; Cross-pollinating, connecting, sharing authentic lived experiences, diverse ideas and feelings about Mother Earth and the future.
 
-- [***Required Reading***- Soil Makers / Vivarium Salon Circle Elements, Etiquette and Governance.](./lifeStylesForChange/vivariumSalonCircleElements.md)
+[Real time on Matrix; Join an open conversation in the interactive **Vivarium Salon Circle**](https://matrix.to/#/!LSpVaMCiYQehpJONFF:matrix.org?via=matrix.org&via=t2bot.io&via=stux.chat)
+
+- [***Required Reading To Participate;***- Soil Makers / Vivarium Salon Circle Elements, Etiquette and Governance.](./lifeStylesForChange/vivariumSalonCircleElements.md)
 
 ### *Salon Circle; Events, Programs and/or Experiences.* A renewed culture of *Artful Conversation;* honoring someone's intention within a group process, were each idea is valued for itself, creating appreciated forms.
 
