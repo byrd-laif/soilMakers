@@ -42,23 +42,23 @@ Resources mixed with inspiring actionable knowhow made manifest. Sharing creativ
 
 [**Soil Makers On Open Collective**](https://opencollective.com/soil-makers)
 
-### *Vivarium Salon ~ place of life*
+### *Vivarium Salon Circle ~ place of life*
 *Networking Global Communities For Local Impacts.*
 
-**Vivarium Salon Culture; Cross-pollinating, connecting, sharing diverse ideas and feelings about Mother Earth and the ecological future.**
+**At a time of environMental and economic precarity, *salon circle discourse* offers a safe space for connecting; rethinking and remaking mutually symbiotic relations within the body of one-self, one-another and Mother Earth.**
 
-**At a time of ecological and economic precarity, *salon style discourse* offers a safe space for connecting; rethinking and remaking mutually symbiotic relations within the body of one-self, one-another and Mother Earth.**
+**Salon and Circle Culture; Cross-pollinating, connecting, sharing authentic lived experiences, diverse ideas and feelings about Mother Earth and the future.
 
-[Real time on Matrix; Join the conversation in the interactive **Vivarium Salon**](https://matrix.to/#/!LSpVaMCiYQehpJONFF:matrix.org?via=matrix.org&via=t2bot.io&via=stux.chat)
+[Real time on Matrix; Join an open conversation in the interactive **Vivarium Salon**](https://matrix.to/#/!LSpVaMCiYQehpJONFF:matrix.org?via=matrix.org&via=t2bot.io&via=stux.chat)
 
-### *Salon Circle Events, Programs and/or Experiences:* A renewed culture of *Artful Conversation;* honoring someone's intention within a group process, were each idea is valued for itself, creating appreciated forms.
+- [***Required Reading***- Soil Makers / Vivarium Salon Circle Elements, Etiquette and Governance.](./lifeStylesForChange/vivariumSalonCircleElements.md)
+
+### *Salon Circle; Events, Programs and/or Experiences.* A renewed culture of *Artful Conversation;* honoring someone's intention within a group process, were each idea is valued for itself, creating appreciated forms.
 
 **Harvesting Knowledge.**
 Awakening possibility and creative insight; refining the tastes, and increasing the knowledge through interaction. Guiding meaningful conversations, organized around living cultures and ideas reflective of the era in which one lives.
 
-- [***Soil Makers / Vivarium Salon Circle Elements, Etiquette and Governance***](./lifeStylesForChange/vivariumSalonCircleElements.md)
-
-#### *Vavarium Salons* are Designed to be Fun, Creative, Interactive and Resourceful.
+#### Designed to be Fun, Creative, Interactive and Resourceful.
 
 **Tools For Understanding.**
 *An integrated set of processes that allow the often hidden insight of human expertise to be captured and converted into specific **Actionable Know-how** that can be transferred to someone. Cultivating a more desirable, fulfilling, life supporting; Ecologically Modern and Realistic Lifestyle.*
