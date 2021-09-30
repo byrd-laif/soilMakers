@@ -36,11 +36,14 @@ Being attracted to all that is alive and vital, the human tendency to relate and
 
 *An Archaic Revival; the sharing of a living language, learning how to discover patterns which are deep and capable of re-Generating Life.*
 
-[**Live On Matrix - Soil Makers ~ *Open Ecstatic Database***](https://matrix.to/#/!EwezVvVjpxKVCMIuRM:matrix.org?via=matrix.org&via=kde.org&via=converser.eu)
+[**Live On *Matrix - Soil Makers ~ *Open Ecstatic Database***](https://matrix.to/#/!EwezVvVjpxKVCMIuRM:matrix.org?via=matrix.org&via=kde.org&via=converser.eu)
+(*Matrix.org- An open network for secure, decentralized communication.)
 
 Resources mixed with inspiring actionable knowhow made manifest. Sharing creativity, working with natural building, cultivating, ecosystems and design. ... Set and Setting aside, No One would chose cement over a bespoke rammed earth built home. The masters of these crafts blow the Mind! ***Cultivating environMental Literacy;*** Feeling this reality in the body, radiating skin as it comes to life, the vibration of connecting to that which makes living possible through ART, the built and cultivated forms. Mother Earth is Ecstasy made visceral, awareness of the body in organism... That is why its called an open ecstatic database, ***having been experienced.***
 
-[**Soil Makers On Open Collective**](https://opencollective.com/soil-makers)
+[**Soil Makers Projects and Events On *Open Collective**](https://opencollective.com/soil-makers)
+
+*Open Collective provides transparency. Open Micro Financing Management Tools, so everyone can see; where funds come from, for what and whom it goes to and the results it produces. (Within varying degrees of access.)
 
 ### *Vivarium Salon Circle ~ place of life*
 *Networking Global Communities For Local Impacts.*
@@ -52,8 +55,9 @@ At a time of environMental and economic precarity, salon circle discourse offers
 Salon and Circle Culture; Cross-pollinating, connecting, sharing authentic lived experiences, diverse ideas and feelings about Mother Earth and the future.
 
 [Real time on Matrix; Join an open conversation in the interactive **Vivarium Salon Circle**](https://matrix.to/#/!LSpVaMCiYQehpJONFF:matrix.org?via=matrix.org&via=t2bot.io&via=stux.chat)
+- Details: this is an encrypted room, upon arrival one will not see the history. Allowing time to experience the conversation in flow prior to *participation.
 
-- [***Required Reading To Participate;***- Soil Makers / Vivarium Salon Circle Elements, Etiquette and Governance.](./lifeStylesForChange/vivariumSalonCircleElements.md)
+- [****Required Reading To Participate;***- Soil Makers / Vivarium Salon Circle Elements, Etiquette and Governance.](./lifeStylesForChange/vivariumSalonCircleElements.md)
 
 ### *Salon Circle; Events, Programs and/or Experiences.* A renewed culture of *Artful Conversation;* honoring someone's intention within a group process, were each idea is valued for itself, creating appreciated forms.
 
