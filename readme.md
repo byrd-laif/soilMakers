@@ -5,9 +5,9 @@
 ## *The Ecology Is The Economy.*
 **Nature is the *balance sheet.***
 
-***Transforming an environmental withdraw to an environmental deposit for the future. Mobilizing bio-resources (organic refuse) and converting this into bio-gold- Eco-logical Pro-biotics.***
+***Transforming an ecological withdraw to an environMental deposit for the future. Mobilizing bio-resources (organic refuse) and converting this into bio-gold- Eco-logical Pro-biotics for whole health, soil to soul.***
 
-***Creating co-Evolutionary Leaders;*** Revolutionary Eco-logical Actions that connect and are transferable through to nature.
+***Creating co-Evolutionary Leaders;*** Revolutionary Eco-logical Actions that connect and are transferable through to nature, prevention of the wasteful use of resources.
 
 ### Eco-Logical Movement And Enterprise
 
@@ -39,11 +39,11 @@ Being attracted to all that is alive and vital, the human tendency to relate and
 [**Live On *Matrix - Soil Makers ~ *Open Ecstatic Database***](https://matrix.to/#/!EwezVvVjpxKVCMIuRM:matrix.org?via=matrix.org&via=kde.org&via=converser.eu)
 (*Matrix.org- An open network for secure, decentralized communication.)
 
-Resources mixed with inspiring actionable knowhow made manifest. Sharing creativity, working with natural building, cultivating, ecosystems and design. ... Set and Setting aside, No One would chose cement over a bespoke rammed earth built home. The masters of these crafts blow the Mind! ***Cultivating environMental Literacy;*** Feeling this reality in the body, radiating skin as it comes to life, the vibration of connecting to that which makes living possible through ART, the built and cultivated forms. Mother Earth is Ecstasy made visceral, awareness of the body in organism... That is why its called an open ecstatic database, ***having been experienced.***
+Resources mixed with inspiring actionable know-how made manifest. Sharing creativity, working with natural building, cultivating, ecosystems and design. ... Set and Setting aside, No One would chose cement over a bespoke rammed earth built home. The masters of these crafts blow the Mind! ***Cultivating environMental Literacy;*** Feeling this reality in the body, radiating skin as it comes to life, the vibration of connecting to that which makes living possible through ART, the built and cultivated forms. Mother Earth is Ecstasy made visceral, awareness of the body in organism... That is why its called an open ecstatic database, ***having been experienced.***
 
 [**Soil Makers Projects and Events On *Open Collective**](https://opencollective.com/soil-makers)
 
-*Open Collective provides transparency. Open Micro Financing Management Tools, so everyone can see; where funds come from, for what and whom it goes to and the results it produces. (Within varying degrees of access.)
+*Open Micro Financing Management Tools: Open Collective provides transparency, so everyone can see; where funds come from, for what and whom it goes to and the results it produces. (Within varying degrees of access.)
 
 ### *Vivarium Salon Circle ~ place of life*
 *Networking Global Communities For Local Impacts.*
