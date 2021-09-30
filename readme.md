@@ -38,7 +38,7 @@ Being attracted to all that is alive and vital, the human tendency to relate and
 
 [**Live On Matrix - Soil Makers ~ *Open Ecstatic Database***](https://matrix.to/#/!EwezVvVjpxKVCMIuRM:matrix.org?via=matrix.org&via=kde.org&via=converser.eu)
 
-Resources mixed with inspiring actionable knowhow made manifest. Sharing creativity, working with natural building, cultivating, ecosystems and design. ... Set and Setting aside, No One would chose cement over a bespoke rammed earth built home. The masters of these crafts *Blow The Mind!* Feeling this reality in the body, radiating skin as it comes to life, the vibration of connecting to that which makes living possible through ART, the built and cultivated forms. Mother Earth is Ecstasy made visceral, awareness of the body in organism... That is why its called an open ecstatic database, ***having been experienced.***
+Resources mixed with inspiring actionable knowhow made manifest. Sharing creativity, working with natural building, cultivating, ecosystems and design. ... Set and Setting aside, No One would chose cement over a bespoke rammed earth built home. The masters of these crafts blow the Mind! ***Cultivating environMental Literacy;*** Feeling this reality in the body, radiating skin as it comes to life, the vibration of connecting to that which makes living possible through ART, the built and cultivated forms. Mother Earth is Ecstasy made visceral, awareness of the body in organism... That is why its called an open ecstatic database, ***having been experienced.***
 
 [**Soil Makers On Open Collective**](https://opencollective.com/soil-makers)
 
