@@ -92,7 +92,7 @@ Urban environments are not nurturing environments in and of themselves, but with
 
 Going beyond, using the feelings to expand into the 'living' style of ones life through the kinesthetic sense.
 
-Kinesiology is a powerful tool for accessing information from the body’s innate wisdom, and the unconscious mind. It works by experiencing how the strength of a muscle is affected by focusing on an external stimulus or part of the body. With Kinesiology, one can have a visceral experience of how the body is affected by the introduction of specific foods, scents, music, bio-logical and other environ-mental factors, along with verbal statements, coming together and sharing in a safe space. Using the experience, testing the strength of different systems in the body and its surrounding energetic structure.
+Kinesiology is a powerful tool for accessing information from the body’s innate wisdom and the unconscious mind, feeling through nature to uncover self-defeating environMental patterns. Working through experiencing how the strength of *the body,* or part of the body, is affected by being connected to various external stimulus in ones environment that *make living possible.* With Kinesiology, one can have a visceral experience of how the body is affected by the introduction of specific foods, scents, music, bio-logical and other environ-mental ecosystems, along with verbal statements, gathering, coming together and sharing in a safe space. Using the experience, testing the strength of different systems in the body and its surrounding energetic structure.
 
 **Love;** to feel how things are, allowing the physical body too recognize itself as part of nature, a part of the living systems.
 
@@ -126,7 +126,7 @@ Creating live and dynamic, open independent spaces that feel as they have existe
 
 The mind is a medium within which the imagination jumps between the pattern and the living world can happen. The individual, the physical body is only the medium for the imagination, not its originator.
 
-**Co-evolutionary ecosystems:** Re-establishing and encouraging healthy symbiotic connections within nature (Mother Earth) through sensory experiences; mental, physical and biological interactions, movement, and hands-on meaningful activities. Allowing the brain, body and earth body to establish new, more productive patterns.
+**Co-evolutionary ecosystems:** Re-establishing and encouraging healthy symbiotic connections within nature (Mother Earth) through sensory experiences; mental, physical and biological interactions, movement, and hands-on meaningful activities that produce something that makes living possible. Allowing the brain, body and earth body to establish new, more productive patterns. *Cultivating body autonomy, mastery and purpose.*
 
 The individual is only the medium in which the patterns come to life, and of their own accord give birth to something new.
 
