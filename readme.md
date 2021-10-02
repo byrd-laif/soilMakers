@@ -5,15 +5,15 @@
 ## *The Ecology Is The Economy.*
 **Nature is the *balance sheet.***
 
-***Transforming an ecological withdraw to an environMental deposit for the future. Mobilizing bio-resources (organic refuse) and converting this into bio-gold- Eco-logical Pro-biotics for whole health, soil to soul.***
+***Transforming an ecological withdraw to an environMental deposit for the future. Mobilizing bio-resources (organic refuse) and converting this into Ecological Pro-biotics for whole health, soil to soul.***
 
-***Creating co-Evolutionary Leaders;*** Revolutionary Eco-logical Actions that connect and are transferable through to nature, prevention of the wasteful use of resources.
+***Creating co-Evolutionary Leaders;*** Revolutionary Eco-logical Actions that connect and are transferable through to nature, environMental health is prevention of the wasteful use of resources.
 
 ### Eco-Logical Movement And Enterprise
 
 **Cultivating a *Bio-logical Economy* creates the market for an *Ecologically Sustainable* future.** 
 
-***EnvironMental Pro-biotics; biological body and earth care systems, services and commodities provide the environment for an enlightened, sustainable future.***
+***Ecological Pro-biotics; biological body and earth care systems, services and commodities provide the environment for an enlightened, sustainable future.***
 
 #### Claiming ones fundamental human birthright; *freely connecting with that which makes living possible.*
 Being attracted to all that is alive and vital, the human tendency to relate and connect with life and natural processes - ***Is The Expression Of A Bio-Logical Need.***
