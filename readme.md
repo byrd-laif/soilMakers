@@ -1,14 +1,15 @@
 # *Soil Makers*
 
 **Conservation as consequence of lifestyle and work.**
-**Cultivating a *Bio-logical Economy* creates the market for an *Ecologically Sustainable* future.**
+
+*Cultivating a *Bio-logical Economy* creates the market for an *Ecologically Sustainable* future.*
 
 ## *The Ecology Is The Economy.*
 **Nature is the *balance sheet.***
 
 ***Transforming an ecological withdraw to an environMental deposit for the future. Mobilizing bio-resources (organic refuse) and converting this into Ecological Pro-biotics for whole environMental health, soil to soul.***
 
-***Creating co-Evolutionary Leaders;*** Revolutionary Eco-logical Actions that connect and are transferable through to nature, environMental health is prevention of the wasteful use of resources.
+***Creating co-Evolutionary Leaders;*** Revolutionary Eco-logical Actions that connect and are transferable through to nature, environMental health is prevention of the wasteful use of resources. *Waste* being something discarded before its usefulness has been realized.
 
 ### Eco-Logical Movement And Enterprise
 
@@ -17,7 +18,7 @@
 #### Claiming ones fundamental human birthright; *freely connecting with that which makes living possible.*
 Being attracted to all that is alive and vital, the human experience of relating to and connecting with life and natural processes - ***Is The Expression Of A Bio-Logical Need.***
 
-***Power as responsibility rather than domination.*** A radical sift from Bio-Logical warfare; built on guilt, fear and force to an *'EnvironMental Partnership'*. Body Autonomy is ***Eco-Logical Freedom**; freely swimming in the rivers of Mother Earth without fear of reprisal.*
+***Power as responsibility rather than domination.*** An archaic revival, radically sifting from Eco-Logical warfare; built on guilt, fear and force to an ***'EnvironMental Partnership'***. Body Autonomy is ***Eco-Logical Freedom**; freely swimming in the rivers of Mother Earth without fear of reprisal.*
 
 *Partnership systems support mutually respectful and caring relations.*
 
@@ -88,7 +89,7 @@ Today’s young generation are being handed the biggest challenge of all; ***'Cu
 
 Not addressing immediate needs is an insult to the young. Individuals with passion, purpose and practical skills make the *world* a better place.
 
-**Calling Home. Taking Action, and for those acts to connect and transfer through too Mother Earth, soil to soul cultivating cultures that are healing.** Knowing what to do, and doing it.
+#### *Calling Home. Taking Action, and for those acts to connect and transfer through too Mother Earth, soil to soul cultivating cultures that are healing.* Knowing what to do, and doing it.
 
 #### Explore
 
