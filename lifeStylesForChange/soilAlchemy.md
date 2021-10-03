@@ -7,10 +7,10 @@ date: 2018-08-13
 
 ## *A Revival Of The Gaian Connection; a journey of symbiotic healing, Soil to Soul.*
 
-**Soil Alchemy; Humans and Humus are Symbiotic Body and Soil Microbial Gardens. Life is not possible without Rich Fertile Soil.**
+**Soil Alchemy; Humans and Humus are Symbiotic Body and Soil Microbial Gardens.**
 
 ***Ninety percent of cells contained in the human body are microbes.*** Microbes produce hormones that regulate growth, stress
-response, and immunity in plants and animals. *All components of an ecosystem are dependent on healthy soil for the system to function optimally.*
+response, and immunity in plants and animals. *All components of an ecosystem are dependent on healthy soil for the system to function optimally.* Life is not possible without Rich Fertile Soil.
 
 ### Bokashi is *Soil Therapy;* Forgiveness and healing through nature. 
 
@@ -30,19 +30,19 @@ Cultivating Probiotic Soil rich in color, free of chemicals and teeming with ben
 
 ***Humility:*** The state of being Humble; Middle English, from Anglo-French, from Latin humilis low, humble, ***from humus earth;*** akin to Greek chthōn ***earth,*** chamai on ***the ground.***
 
-#### Soil Return - 30% of soil is fungal mass, bokashi pro-biotic soil offers *soul food* to the field. Microbes and other soil organisms that are capable of producing all the nutrients plants need.
-
 **Components of humus; organic matter reduced until it can break down no further. In this state of evolution its appearance is unified. Ranging in color from brown to black, consisting of about 60 percent carbon, 6 percent nitrogen, and smaller amounts of phosphorus and sulfur. Its the basic final stage of soil life, broken down to its smallest constituents. Ashes to ashes this is where *all* organic life ends up, and begins from, Humus, the womb of mother earth.
 
 *The Soil is a dynamic and complex cycle of life, death and rebirth. Of which humans have yet to understand.*
+
+#### Soil Return - 30% of soil is fungal mass, microbes and other soil organisms that are capable of producing all the nutrients plants need. Bokashi pro-biotic soil offers *soul food* to the field.
+
+**Bokashi gives a finished pro-biotic, living soil in 30–45 days all in.** The speed of the fermentation process is a big advantage, cycling organic remnants faster by going straight from kitchen to fermentation, to soil, over and over again in small batches. With out the need to collect a critical mass of scraps to start, the fermentation process starts right away. Scale the fermentation vessel to the amount of scraps being generated, going straight into the bokashi bucket as soon as they are produced.
 
 **Commonly known as topsoil and essential for all life. Creating fertile terrain for new growth, strengthening immunity and offers nutrients needed for soil organisms to regenerate.**
 
 The current high erosion rates throughout the world are of great concern because of the slow rate of topsoil renewal; it takes approximately 500 years for 2.5 cm layer of fertile topsoil to form under agricultural conditions.
 
 Due to rapid urbanization the amount of *arable land* available for each person is continually dropping. Currently, each human being has only 2,000m² at their disposal; in 1961, that figure was 4,000m². At current rates, the amount of arable land available per person will decrease to 1,500m² by 2050.
-
-**Bokashi gives a finished pro-biotic, living soil in 30–45 days all in.** The speed of the fermentation process is a big advantage, cycling organic remnants faster by going straight from kitchen to fermentation, to soil, over and over again in small batches. With out the need to collect a critical mass of scraps to start, the fermentation process starts right away. Scale the fermentation vessel to the amount of scraps being generated, going straight into the bokashi bucket as soon as they are produced.
 
 ![Pro-biotic Fluffy Soil](./bokashiImages/fluffyBokashiSoil_web.jpg)
 Pro-biotic fluffy soil.

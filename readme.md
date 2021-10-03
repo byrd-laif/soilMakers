@@ -2,10 +2,10 @@
 
 **Conservation as consequence of lifestyle and work.**
 
-*Cultivating a *Bio-logical Economy* creates the market for an *Ecologically Sustainable* future.*
-
 ## *The Ecology Is The Economy.*
 **Nature is the *balance sheet.***
+
+*Cultivating a *Bio-logical Economy* creates the market for an *Ecologically Sustainable* future.*
 
 ***Transforming an ecological withdraw to an environMental deposit for the future. Mobilizing bio-resources (organic refuse) and converting this into Ecological Pro-biotics for whole environMental health, soil to soul.***
 
@@ -39,7 +39,7 @@ Being attracted to all that is alive and vital, the human experience of relating
 [**Live On *Matrix - Soil Makers ~ *Open Ecstatic Database***](https://matrix.to/#/!EwezVvVjpxKVCMIuRM:matrix.org?via=matrix.org&via=kde.org&via=converser.eu)
 (*Matrix.org- An open network for secure, decentralized communication.)
 
-Resources mixed with inspiring actionable know-how. Sharing creativity, working with natural building, cultivating ecosystems and design. ... The masters of these crafts are inspiring, generating feelings, using the felt experience to ***Cultivate environMental Literacy;*** Feeling the body into reality. The vibration of connecting to that which makes living possible through ART, meaningful work, built and cultivated forms. Mother Earth is Ecstasy made visceral, awareness of the body in organism... And so named; open ecstatic database, ***having been experienced.***
+Resources mixed with inspiring actionable know-how. Sharing creativity, working with natural beauty, building, cultivating ecosystems and design. ... The masters of these crafts are inspiring, generating feelings, using the felt experience to ***Cultivate environMental Literacy;*** Feeling the body into reality. The vibration of connecting to that which makes living possible through ART, meaningful work, built and cultivated forms. Mother Earth is Ecstasy made visceral, awareness of the body in organism... And so named; open ecstatic database, ***having been experienced.***
 
 [**Soil Makers Projects and Events On *Open Collective**](https://opencollective.com/soil-makers)
 
