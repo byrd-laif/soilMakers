@@ -1,24 +1,23 @@
 # *Soil Makers*
 
 **Conservation as consequence of lifestyle and work.**
+**Cultivating a *Bio-logical Economy* creates the market for an *Ecologically Sustainable* future.**
 
 ## *The Ecology Is The Economy.*
 **Nature is the *balance sheet.***
 
-***Transforming an ecological withdraw to an environMental deposit for the future. Mobilizing bio-resources (organic refuse) and converting this into Ecological Pro-biotics for whole health, soil to soul.***
+***Transforming an ecological withdraw to an environMental deposit for the future. Mobilizing bio-resources (organic refuse) and converting this into Ecological Pro-biotics for whole environMental health, soil to soul.***
 
 ***Creating co-Evolutionary Leaders;*** Revolutionary Eco-logical Actions that connect and are transferable through to nature, environMental health is prevention of the wasteful use of resources.
 
 ### Eco-Logical Movement And Enterprise
 
-**Cultivating a *Bio-logical Economy* creates the market for an *Ecologically Sustainable* future.** 
-
 ***Ecological Pro-biotics; biological body and earth care systems, services and commodities provide the environment for an enlightened, sustainable future.***
 
 #### Claiming ones fundamental human birthright; *freely connecting with that which makes living possible.*
-Being attracted to all that is alive and vital, the human tendency to relate and connect with life and natural processes - ***Is The Expression Of A Bio-Logical Need.***
+Being attracted to all that is alive and vital, the human experience of relating to and connecting with life and natural processes - ***Is The Expression Of A Bio-Logical Need.***
 
-***Power as responsibility rather than domination.*** A radical sift from Bio-Logical warfare; built on guilt, fear and force to an 'EnvironMental Partnership'. ***Bio-Logical Freedom**; feeling free to swim in the rivers of Mother Earth without fear of reprisal.*
+***Power as responsibility rather than domination.*** A radical sift from Bio-Logical warfare; built on guilt, fear and force to an *'EnvironMental Partnership'*. Body Autonomy is ***Eco-Logical Freedom**; freely swimming in the rivers of Mother Earth without fear of reprisal.*
 
 *Partnership systems support mutually respectful and caring relations.*
 
