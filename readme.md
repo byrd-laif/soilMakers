@@ -55,8 +55,8 @@ At a time of environMental and economic precarity, *salon circle* discourse offe
 
 Salon and Circle Culture; Cross-pollinating, connecting, sharing authentic lived experiences, diverse ideas and feelings about Mother Earth and the future.
 
-[Real time on Matrix; Join an open conversation in the interactive **Vivarium Salon Circle**](https://matrix.to/#/!LSpVaMCiYQehpJONFF:matrix.org?via=matrix.org&via=t2bot.io&via=stux.chat)
-- Details: this is an encrypted room, upon arrival one will not see the history. Allowing time to experience the conversation in flow prior to *participation.
+[Real time on Matrix; Join an open conversation in the interactive **Soil Makers Salon Circle**](https://matrix.to/#/!LSpVaMCiYQehpJONFF:matrix.org?via=matrix.org&via=t2bot.io&via=stux.chat)
+- Details: this is a private encrypted chat room, upon arrival one will not see the history. Allowing time to experience the conversation in flow prior to *participation.
 
 - [****Required Reading To Participate;***- Soil Makers / Salon Circle Elements, Etiquette and Governance.](./lifeStylesForChange/soilMakersSalonCircleElements.md)
 
