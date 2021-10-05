@@ -96,7 +96,7 @@ Not addressing immediate needs is an insult to the young. Individuals with passi
 
 [**Thy Laif Alyaiyns Mission and Vision**](./thyLaifAlaiyns.md)
 
-[***Soil Makers / Vivarium Salon Circle Elements, Etiquette and Governance***](./lifeStylesForChange/vivariumSalonCircleElements.md)
+[***Soil Makers / Vivarium Salon Circle Elements, Etiquette and Governance***](./lifeStylesForChange/soilMakersSalonCircleElements.md)
 
 [**BioPhilia Living Design - *Proof of Concept* Urban Sustainable Eco-Living**](./bioPhiliaLivingDesignProofOfConcept/creativeEcoLivingProofOfConcept.md)
 
