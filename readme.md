@@ -36,7 +36,7 @@ Being attracted to all that is alive and vital, the human experience of relating
 
 *An Archaic Revival; the sharing of a living language, learning how to discover patterns which are deep and capable of re-Generating Life.*
 
-[**Live On *Matrix - Soil Makers ~ *Open Ecstatic Database***](https://matrix.to/#/!EwezVvVjpxKVCMIuRM:matrix.org?via=matrix.org&via=kde.org&via=converser.eu)
+[**Live On *Matrix - Soil Makers ~ *Blog***](https://matrix.to/#/!EwezVvVjpxKVCMIuRM:matrix.org?via=matrix.org&via=kde.org&via=converser.eu)
 (*Matrix.org- An open network for secure, decentralized communication.)
 
 Resources mixed with inspiring actionable know-how. Sharing creativity, working with natural beauty, building, cultivating ecosystems and design. ... The masters of these crafts are inspiring, generating feelings, using the felt experience to ***Cultivate environMental Literacy;*** Feeling the body into reality. The vibration of connecting to that which makes living possible through ART, meaningful work, built and cultivated forms.***
@@ -58,7 +58,7 @@ Salon and Circle Culture; Cross-pollinating, connecting, sharing authentic lived
 [Real time on Matrix; Join an open conversation in the interactive **Vivarium Salon Circle**](https://matrix.to/#/!LSpVaMCiYQehpJONFF:matrix.org?via=matrix.org&via=t2bot.io&via=stux.chat)
 - Details: this is an encrypted room, upon arrival one will not see the history. Allowing time to experience the conversation in flow prior to *participation.
 
-- [****Required Reading To Participate;***- Soil Makers / Salon Circle Elements, Etiquette and Governance.](./lifeStylesForChange/vivariumSalonCircleElements.md)
+- [****Required Reading To Participate;***- Soil Makers / Salon Circle Elements, Etiquette and Governance.](./lifeStylesForChange/soilMakersSalonCircleElements.md)
 
 ### *Salon Circle; Events, Programs and/or Experiences.* A renewed culture of *Artful Conversation;* honoring someone's intention within a group process, were each idea is valued for itself, creating appreciated forms.
 
