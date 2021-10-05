@@ -1,4 +1,6 @@
-# *Vivarium Salon Circle ~ place of life*
+# *Soil Makers *Salon Circle**
+
+Artful Conversation; reshaping attitudes towards connecting. *Salon settings* can provide the privacy needed for participants to established independent positions, sharing and testing innovations that connect. Gathering individuals for the purposes of engaging in free thinking, ideal places of intellectual production.
 
 ***Networking Global Communities For Local Impact***
 
@@ -26,7 +28,7 @@
 
 - Harvesting and sharing collective discoveries.
 
-### Basic Guidelines for Calling a Vivarium Salon Circle
+### Basic Guidelines for Calling a Soil Makers *Salon Circle*
 *Honoring the lineage of the circle and PeerSpirit methodology as one uses this gift. (http://www.peerspirit.com)*
 
 These guidelines are an adapted excerpted from the book: Calling the Circle, the First and Future Culture by Christina Baldwin in addition to the ongoing work of PeerSpirit, Inc.
@@ -35,15 +37,15 @@ Now more than ever, the circle may serve humanity as a form that honors all voic
 
 #### *Wisdom or Council Circle is a world wide gift.*
 
-The 'circle', or council methodology is an *ancient social structure* that has gathered human beings into respectful conversation for thousands of years. Serving as the foundation for *collaborative dialogue and action* in many cultures. Circle is used as a space to be social; discovering safe methods of dialogue, sharing stories, building community, and holding meetings in a collaborative manner.
+The *'circle'*, or council methodology is an *ancient social structure* that has gathered human beings into respectful conversation for thousands of years. Serving as the foundation for *collaborative dialogue and action* in many cultures. Circle is used as a space to be social; discovering safe methods of dialogue, sharing stories, building community, and holding meetings in a collaborative manner.
 
-Vivarium Salon Circle is a modern methodology that calls on this tradition, helping participants gather in conversations that fulfills ones potential for dialogue, replenishment, and wisdom-based environMental changes. Soil Makers form a partnership with Vivarium Salon Circle, dedicated to a global environMental shift through conversation. Circle enables participants to discover the collective wisdom. Helping to feel where one is, in relation to one another and their environments, as well as the resources each can offer to the conversation or task at hand.
+Soil Makers *Salon Circle* is a modern methodology that calls on this tradition, helping participants gather in conversations that fulfills ones potential for dialogue, replenishment, and wisdom-based environMental changes. Soil Makers form a partnership through Salon Circle, dedicated to a global environMental shift through conversation. *Circle* enables participants to discover the collective wisdom. Helping to feel where one is, in relation to one another and their environments, as well as the resources each can offer to the conversation or task at hand.
 
 The circle as a global experience has the ability of reminding someone of common human values, ethics and ecological concerns. Encouraging a focus on the *issue at hand* council circle minimizes the tendency for discussion to fall into a debate between participants.
 
 **The circle offers the process** (the way of being together in conversation) and the intention of the group offers the content, nature provides the opportunity.
 
-***Each circle experience can be different.***
+***Each salon circle experience can be different.***
 Circle may have similar rituals of opening and closing, but very different content. While other circle may share similar content with very different rituals.
 
 **Whatever the setting, what makes a meeting into a circle is the willingness of the host and participants to shift from informal socializing or opinionated discussion into a receptive attitude of thoughtful speaking and deep listening often referred to as "the sacred space of council."**
@@ -191,7 +193,7 @@ Circle is not a dogmatic form, each circle developing its own unique personality
 
 .......
 
-### *Cooperation and Harmony ~ Soil Makers and Vivarium Salon Circle/Programs*
+### *Cooperation and Harmony ~ Soil Makers and Salon Circle Projects and Events*
 
 #### *Dynamic Governance Values*
 - Effectiveness: Get things done

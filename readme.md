@@ -39,25 +39,26 @@ Being attracted to all that is alive and vital, the human experience of relating
 [**Live On *Matrix - Soil Makers ~ *Open Ecstatic Database***](https://matrix.to/#/!EwezVvVjpxKVCMIuRM:matrix.org?via=matrix.org&via=kde.org&via=converser.eu)
 (*Matrix.org- An open network for secure, decentralized communication.)
 
-Resources mixed with inspiring actionable know-how. Sharing creativity, working with natural beauty, building, cultivating ecosystems and design. ... The masters of these crafts are inspiring, generating feelings, using the felt experience to ***Cultivate environMental Literacy;*** Feeling the body into reality. The vibration of connecting to that which makes living possible through ART, meaningful work, built and cultivated forms. Mother Earth is Ecstasy made visceral, awareness of the body in organism... And so named; open ecstatic database, ***having been experienced.***
+Resources mixed with inspiring actionable know-how. Sharing creativity, working with natural beauty, building, cultivating ecosystems and design. ... The masters of these crafts are inspiring, generating feelings, using the felt experience to ***Cultivate environMental Literacy;*** Feeling the body into reality. The vibration of connecting to that which makes living possible through ART, meaningful work, built and cultivated forms.***
 
 [**Soil Makers Projects and Events On *Open Collective**](https://opencollective.com/soil-makers)
 
 *Open Micro Financing Management Tools: Open Collective provides transparency, so everyone can see; where funds come from, for what and whom it goes to and the results it produces. (Within varying degrees of access.)
 
-### *Vivarium Salon Circle ~ place of life*
-*Networking Global Communities For Local Impacts.*
+### *Soil Makers ~ *Salon Circle**
 
 ***A renewed culture of Artful Conversation; honoring someone's intention within a group process, were each idea is valued for itself, creating appreciated forms.***
 
-At a time of environMental and economic precarity, salon circle discourse offers a safe space for connecting; rethinking and remaking mutually symbiotic relations within the body of one-self, one-another and Mother Earth.
+At a time of environMental and economic precarity, *salon circle* discourse offers a safe space for connecting; rethinking and remaking mutually symbiotic relations within the body of one-self, one-another and Mother Earth.
+
+*Networking Global Communities For Local Impacts.*
 
 Salon and Circle Culture; Cross-pollinating, connecting, sharing authentic lived experiences, diverse ideas and feelings about Mother Earth and the future.
 
 [Real time on Matrix; Join an open conversation in the interactive **Vivarium Salon Circle**](https://matrix.to/#/!LSpVaMCiYQehpJONFF:matrix.org?via=matrix.org&via=t2bot.io&via=stux.chat)
 - Details: this is an encrypted room, upon arrival one will not see the history. Allowing time to experience the conversation in flow prior to *participation.
 
-- [****Required Reading To Participate;***- Soil Makers / Vivarium Salon Circle Elements, Etiquette and Governance.](./lifeStylesForChange/vivariumSalonCircleElements.md)
+- [****Required Reading To Participate;***- Soil Makers / Salon Circle Elements, Etiquette and Governance.](./lifeStylesForChange/vivariumSalonCircleElements.md)
 
 ### *Salon Circle; Events, Programs and/or Experiences.* A renewed culture of *Artful Conversation;* honoring someone's intention within a group process, were each idea is valued for itself, creating appreciated forms.
 
