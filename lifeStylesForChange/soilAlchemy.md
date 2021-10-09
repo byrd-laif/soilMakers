@@ -10,7 +10,7 @@ date: 2018-08-13
 **Soil Alchemy; Humans and Humus are Symbiotic Body and Soil Microbial Gardens.**
 
 ***Ninety percent of cells contained in the human body are microbes.*** Microbes produce hormones that regulate growth, stress
-response, and immunity in plants and animals. *All components of an ecosystem are dependent on healthy soil for the system to function optimally.* Life is not possible without Rich Fertile Soil.
+response, and immunity in plants and animals. *All components of an ecosystem are dependent on healthy soil for the system to function optimally.* ***Soil Life Matters to everyone,*** life is not possible without Rich Fertile Soil.
 
 ### Bokashi is *Soil Therapy;* Forgiveness and healing through nature. 
 

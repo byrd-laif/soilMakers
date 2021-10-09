@@ -14,7 +14,7 @@
 
 ### *Eco-Logical Movement And Enterprise*
 
-***Ecological Pro-biotics; biological body and earth care systems, services and commodities provide the environment for an enlightened, sustainable future.***
+***Ecological Pro-biotics; biological body and earth care Eco-systems, services and commodities provide the environment for an enlightened, sustainable future.***
 
 *A mutually beneficial 'symbiotic legacy venture' with Mother Earth. An Eco system that operates to deliver positive bio-logical impacts, symbiotically profiting through seeding the Soil, the Womb of Mother Earth.*
 
@@ -36,7 +36,7 @@ Being attracted to all that is alive and vital, the human experience of relating
 
 ***Reconciliation; forgiveness, free to turn and question: Where does someone go from here?***
 
-***Art,*** as the vehicle for ***working through feelings of living in a damaged world,*** cultivating cultures that symbiotically connect, healing soil to soul.
+***Art,*** as the vehicle for ***working through feelings of living in a damaged world,*** artisan cultures that symbiotically connect, healing soil to soul.
 
 ***Giving someone courage;*** for changing what must be altered, empathy for accepting what cannot be helped, and the insight for knowing one from the other. *Love and labor are inseparable, calling forth deep bravery from within.*
 
