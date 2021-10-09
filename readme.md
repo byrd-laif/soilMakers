@@ -30,11 +30,11 @@ Being attracted to all that is alive and vital, the human experience of relating
 
 ***Partnership systems support mutually respectful and caring relations.***
 
-***Creating co-Evolutionary Leaders;*** Revolutionary Eco-logical Actions that connect and are transferable through to nature, environ-Mental health is prevention of the wasteful use of resources. *Waste* being something discarded before its usefulness has been realized.
+***Creating co-Evolutionary Leaders;*** Revolutionary Eco-Logical Actions that connect and are transferable through to nature, environ-Mental health is prevention of the wasteful use of resources. *Waste* being something discarded before its usefulness has been realized.
 
 #### *reConnecting And Healing Soil To Soul.*
 
-***Reconciliation; forgiveness, free to turn and question: Where does someone go from here?***
+**Reconciliation; forgiveness, free to turn and question: Where does *someone* go from here?**
 
 ***Art,*** as the vehicle for ***working through feelings of living in a damaged world,*** artisan cultures that symbiotically connect, healing soil to soul.
 
@@ -49,7 +49,7 @@ Being attracted to all that is alive and vital, the human experience of relating
 [**Soil Makers ~ *Blog***](https://matrix.to/#/!EwezVvVjpxKVCMIuRM:matrix.org?via=matrix.org&via=kde.org&via=converser.eu)
 Accessing the blog and salon circle rooms: *Element.io* is secure and independent communication, connected via Matrix.org an open network for secure, decentralized communication. Working together, designed for communities; an open messenger and collaboration tool that supports public and private chats, including powerful moderation tools.
 
-Blog Sharing; Resources mixed with inspiring actionable know-how. Sharing creativity, working with natural beauty, building, cultivating ecosystems and design. ... The masters of these crafts are inspiring, generating feelings, using the felt experience to ***Cultivate environMental Literacy;*** Feeling the body into reality. The vibration of connecting to that which makes living possible through ART, meaningful work, built and cultivated forms.***
+Blog Sharing; Resources mixed with inspiring actionable know-how. Sharing creativity, working with natural beauty, building, cultivating ecosystems and design. ... The masters of these crafts are inspiring, generating feelings, using the felt experience to ***Cultivate environMental Literacy;*** Feeling the body into reality. The vibration of connecting to that which makes living possible through ART, meaningful work, built and cultivated forms.
 
 [**Soil Makers Projects and Events On *Open Collective**](https://opencollective.com/soil-makers)
 
