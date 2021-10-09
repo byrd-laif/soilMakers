@@ -7,45 +7,54 @@ date: 2021-09-14
 
 **Examining ecologic behaviors.**
 
+Ecology; from the Greek words oikos, which means house, and logos, which means the study of. Literally, ecology is the study of the home of humanity. The interrelationships between humans, organisms and their environments.
+
+Recognizing the interdependence of one-self, one-another, and mother Earth within the relationship *as a whole.* Recognizing the vital role of biodiversity within a changing climate as being essential for food production, maintaining clean air and water, ... .
+
+## Acknowledging the biosphere.
+
 *Loss of biodiversity is directly related to the lifestyles of human beings.*
 
-It's time to start comparing consumption and lifestyle, and checking this against nature's ability to provide for this consumption. Human lifestyles have destroyed and continue to destroy the habitats of species on a daily basis. 
+It's time to start comparing consumption and lifestyle, and checking this against nature's ability to provide for this consumption. Human lifestyles have destroyed and continue to destroy the habitats of species on a daily basis, undermining ones relationship with Mother Earth.
+
+Bravely looking into the *eyes* of Mother Earth, allowing the physical body to feel into the heart of the Earth body, healing by recognizing what is injured, going deeper, recognizing the action(s) causing the effect.
+
+***An Absence Of Appropriate Effect.***
 
 Owning up to the realities of what that translates to for generations to come, aesthetically and otherwise. 
 
-Being *Ecologically Realistic* and getting back to the *heart* of what *life* is all about.
+### *Accepting personal responsibility.*
 
-## *Accepting personal responsibility.*
+**Being Eco-Logically Realistic; connected to *the heart of what life is all about.***
 
-**This is about honesty and responsibility. Honesty; admitting to what is. Responsibility; not blaming someone else.**
+**Honesty; admitting to what is. Responsibility; not blaming someone else.**
 
-### *Librating Ones Authenticity.*
+#### *Librating Ones Authenticity.*
 
-***Connecting Through The Healing Spirit Of Nature;*** the ongoing exploration of what happens when someone connects head, heart, and body in the crucible of Mother Earth. Ancient alchemists combined substances and used the influence of their own mind to study the transmutation of matter and of spirit. Working in symbiotic partnership within Mother Earth too cultivate incredible discoveries. Observing the discursive mind become quieter, as the intelligence of the heart comes to the foreground, feeling through nature an ancient *ecologically symbiotic consciousness* re-emerges.
+***Connecting Through The Healing Spirit Of Nature;*** the ongoing exploration of what happens when someone reconnects head, heart, and body in the crucible of Mother Earth. Ancient alchemists combined substances and used the influence of their own mind and body to study the transmutation of matter and of spirit. Working in symbiotic partnership within Mother Earth too cultivate incredible discoveries. Observing the discursive mind become quieter, as the intelligence of the heart comes to the foreGround, feeling through nature, the ancient *symbiotic consciousness of the biosphere* re-emerges.
 
-***Producing Something Meaningful.*** Projecting one's lifestyle into a future possibility, connected with that which makes living possible. Living the creative process as a ritual; honoring the Soul through cultivating a lifestyle that feeds the Soil.
-
-**Waste is something discarded before its usefulness has been realized.**
+***Producing Something Meaningful.*** Projecting one's lifestyle into a future possibility, connected with that which makes living possible.
 
 Its easy to destroy something, the challenge is to create something meaningful. To bring something back to the *Village* that someone can live from. Wo-Men don't have to abandon their 'modern' lives but they do have to protect Mother Earth.
 
 #### *Ancestral Healing; Cultivating cultures that heal cultivates compassion for mother earth, an act of humility.* 
 
-Connecting to Mother Earth through her art, the alchemy of life. Soil and water are the ultimate store of energy, history is held in these molecules, vital energy that flows forever transporting light energies.
+*Living the creative process as a ritual; honoring the Soul through cultivating a lifestyle that feeds the Soil.*
 
 ***Humanity connect through Mother Earth; water, the universal solvent that speaks. Taking the knowledge of the leaf from the mountains to the sea, and the rain, taking it up from the sea back to the mountains. Recycling organic materials through living organisms naturally purifies.***
 
-#### *The Alchemy of Life*
+Re-Connecting to Mother Earth through her *Art, the Alchemy of Life.* Soil and water are the ultimate store of energy, history is held in these molecules, vital energy that flows forever transporting light energies.
 
-***Water, Soil, Air - bio-logical needs,*** freely having access to Mother Earth, Nature, Open Spaces, ***playing in these biological elements; liberates essential subconscious processes, especially in children.*** Generated by *nature* through people, a spontaneous confirmation of this life giving pattern is born directly out of someone's feelings. Scientific experiments are not capable of generating a phenomenon of this extraordinary level of agreement.
+#### *The Alchemy of Life.*
+
+***Eco-logical Needs,*** freely having access to Mother Earth, playing in rivers, lakes, forests, ..., connecting liberates essential subconscious processes, especially in children.*** Generated by *nature* through people, a spontaneous confirmation of this life giving pattern is born directly out of someone's feelings. Scientific experiments are not capable of generating a phenomenon of this extraordinary level of agreement.
 
 *Once discovered as a fluid field of relationships, one can redefine it, as an entity; something that has a real existence, making it operational.*
 
-A series of guided invitations, natural cycles, bring one into the present moment. Opening the doors of symbiotic communication within the soil, waters, and landscapes explored. Biologically re-connecting, encounter not just the soil, water and air, but the many ways nature mirrors humans, encountering oneself, Soil to Soul Food.
+#### *Cultivating ones place in the circle of life.*
 
-#### *Cultivating The Mother Tree;* An archaic revival of Wo-Mans Gaian connection through honoring the feminine. Cultivating an ally, bonding with Mother Earth as *'The Live And Dynamic Co-evolutionary Partner'* in the shaping of the set, setting and the process.
+A series of guided invitations, natural cycles, bring one into the present moment. Opening the doors of symbiotic communication within the soil, waters, and landscapes explored. Biologically re-connecting, encounter not just the soil, water and air, but the many ways nature mirrors humans, encountering one-self, Soil Food to Soul Food.
 
-*A mutually beneficial; 'symbiotic legacy venture' with Mother Earth. An Eco system that operates to deliver a positive bio-logical impact; symbiotically profiting through seeding the soil, the Womb of Mother Earth.*
 
 [**Life*Styles* For Change ~ programs and resources**](../lifeStylesForChange)
 

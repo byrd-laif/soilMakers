@@ -1,6 +1,6 @@
 # *Soil Makers*
 
-**reConnecting, becoming a part of the circle of life soil to soul.***
+***reConnecting, becoming a part of the circle of life soil to soul.***
 
 ## *The Ecology Is The Economy.*
 
@@ -16,38 +16,44 @@
 
 ***Ecological Pro-biotics; biological body and earth care systems, services and commodities provide the environment for an enlightened, sustainable future.***
 
-***An archaic revival; power as responsibility rather than domination.*** Radically sifting from Eco-Logical warfare; built on guilt, fear and force to an ***'Eco-Logical Partnership'***. Body Autonomy is ***Eco-Logical Freedom**; freely swimming in the rivers of Mother Earth without fear of reprisal.*
+*A mutually beneficial 'symbiotic legacy venture' with Mother Earth. An Eco system that operates to deliver positive bio-logical impacts, symbiotically profiting through seeding the Soil, the Womb of Mother Earth.*
 
 #### Claiming ones fundamental human birthright; *freely connecting with that which makes living possible.*
+
+Body Autonomy is ***environ-Mental Freedom**; freely swimming in the rivers of Mother Earth without fear of reprisal.*
+
 Being attracted to all that is alive and vital, the human experience of relating to and connecting with life and natural processes - ***Is The Expression Of An Eco-Logical Need.***
+
+#### *Cultivating The Mother Tree;* The archaic revival of Wo-Mans Gaian connection through honoring the feminine. Cultivating an ally, bonding with Mother Earth as *'The Live And Dynamic Co-evolutionary Partner'* in the shaping of the set, setting and the process.
+
+***Power as responsibility rather than domination.*** Radically sifting from Eco-Logical warfare; built on guilt, fear and force to an ***'Eco-Logical Partnership'.***
 
 ***Partnership systems support mutually respectful and caring relations.***
 
-***Creating co-Evolutionary Leaders;*** Revolutionary Eco-logical Actions that connect and are transferable through to nature, environMental health is prevention of the wasteful use of resources. *Waste* being something discarded before its usefulness has been realized.
+***Creating co-Evolutionary Leaders;*** Revolutionary Eco-logical Actions that connect and are transferable through to nature, environ-Mental health is prevention of the wasteful use of resources. *Waste* being something discarded before its usefulness has been realized.
+
+#### *reConnecting And Healing Soil To Soul.*
 
 ***Reconciliation; forgiveness, free to turn and question: Where does someone go from here?***
-
-#### *Reconnecting And Healing Soil To Soul.*
-
-***Acting As Curator; someone who has the care of something.*** Claiming ones relationship with Mother Nature, cultivating ones own legacy so future generations have a place to call Home.
 
 ***Art,*** as the vehicle for ***working through feelings of living in a damaged world,*** cultivating cultures that symbiotically connect, healing soil to soul.
 
 ***Giving someone courage;*** for changing what must be altered, empathy for accepting what cannot be helped, and the insight for knowing one from the other. *Love and labor are inseparable, calling forth deep bravery from within.*
+
+***Acting As Curator; someone who has the care of something.*** Claiming ones relationship with Mother Nature, cultivating ones own legacy so future generations have a place to call Home.
 
 [**Lifestyles For Change; Bringing Life To Style.**](./lifeStylesForChange/lifeStylesForChangeIntro.md)
 
 *An Archaic Revival; the sharing of a living language, learning how to discover patterns which are deep and capable of re-Generating Life.*
 
 [**Soil Makers ~ *Blog***](https://matrix.to/#/!EwezVvVjpxKVCMIuRM:matrix.org?via=matrix.org&via=kde.org&via=converser.eu)
-An open network for secure, decentralized communication.
-Access: *Element.io* is secure and independent communication, connected via Matrix.org. Working together, designed for communities; an open messenger and collaboration tool that supports public and private chats, including powerful moderation tools.
+Accessing the blog and salon circle rooms: *Element.io* is secure and independent communication, connected via Matrix.org an open network for secure, decentralized communication. Working together, designed for communities; an open messenger and collaboration tool that supports public and private chats, including powerful moderation tools.
 
-Resources mixed with inspiring actionable know-how. Sharing creativity, working with natural beauty, building, cultivating ecosystems and design. ... The masters of these crafts are inspiring, generating feelings, using the felt experience to ***Cultivate environMental Literacy;*** Feeling the body into reality. The vibration of connecting to that which makes living possible through ART, meaningful work, built and cultivated forms.***
+Blog Sharing; Resources mixed with inspiring actionable know-how. Sharing creativity, working with natural beauty, building, cultivating ecosystems and design. ... The masters of these crafts are inspiring, generating feelings, using the felt experience to ***Cultivate environMental Literacy;*** Feeling the body into reality. The vibration of connecting to that which makes living possible through ART, meaningful work, built and cultivated forms.***
 
 [**Soil Makers Projects and Events On *Open Collective**](https://opencollective.com/soil-makers)
 
-Open Micro Financing Management Tools: **Open Collective** provides transparency, so everyone can see; where funds come from, for what and whom it goes to and the results it produces. (Within varying degrees of access.)
+Open Micro Financing and Payment Management Tools: **Open Collective** provides transparency, so everyone can see; where funds come from, for what and whom it goes to and the results it produces. (Within varying degrees of access and visability.)
 
 ### *Soil Makers ~ *Salon Circle**
 
@@ -67,7 +73,7 @@ Salon and Circle Culture; Cross-pollinating, connecting, sharing authentic lived
 
 ### *Salon Circle; Events, Programs and/or Experiences.*
 
-**A renewed culture of *Artful Conversation;* honoring someone's intention within a group process, were each idea is valued for itself, creating appreciated forms.**
+***The *seeds of opportunity;* an awareness, taking the moment and transforming it into a better situation, something new and beautiful. Taking the steps, teaching what one needs to learn.***
 
 **Harvesting Knowledge.**
 Awakening possibility and creative insight; refining the tastes, and increasing the knowledge through interaction. Guiding meaningful conversations, organized around living cultures and ideas reflective of the era in which one lives.
@@ -75,17 +81,17 @@ Awakening possibility and creative insight; refining the tastes, and increasing 
 #### Designed to be Fun, Creative, Interactive and Resourceful.
 
 **Tools For Understanding.**
-*An integrated set of processes that allow the often hidden insight of human expertise to be captured and converted into specific **Actionable Know-how** that can be transferred to someone. Cultivating a more desirable, fulfilling, life supporting; Ecologically Modern and Realistic Lifestyle.*
+An integrated set of processes that allow the often hidden insight of human expertise to be captured and converted into specific **Actionable Know-how** that can be transferred to someone.
 
-The *seeds of opportunity;* an awareness, taking the moment and transforming it into a better situation, something new and beautiful. Taking the steps, teaching what one needs to learn.
+***Cultivating a more desirable, fulfilling, life supporting; Ecologically Modern and Realistic Lifestyle.***
 
 Being responsible stewards of *Mother Earth* means taking to heart the current *planetary healing crisis* of which humanity is apart of.
 
 #### *Environ-Mental Health*
 
-**Soil to Soul; Humanity, finding one self a part of this circle of existence, thereby logically *accepting* this circumstance, *responsibility* then means *ability*- an action oriented *authentic response* to the situation as it is, in the present moment.**
-
 ***The aesthetics of ecology.*** The cultivation of a more attuned and responsive awareness of Wo-Mans ecological interconnections, recognizing feelings which are in touch with reality, providing a powerful way of finding out which lifestyle patterns are balanced and which are not. Learning to live in the light of Nature.
+
+**Soil to Soul; Humanity, finding one self a part of the *circle of existence,* thereby logically *accepting* this circumstance, *responsibility* then means *ability*- an action oriented *authentic response* to the situation as it is, in the present moment.**
 
 #### *Quality Of Life*
 
