@@ -22,13 +22,13 @@
 
 Body Autonomy is ***environ-Mental Freedom**; freely swimming in the rivers of Mother Earth without fear of reprisal.*
 
-Being attracted to all that is alive and vital, the human experience of relating to and connecting with life and natural processes - ***Is The Expression Of An Eco-Logical Need.***
+Being attracted to and a part of all that is alive and vital, the human experience of relating to and connecting with life and natural processes - ***Is The Expression Of An Eco-Logical Need.***
 
 #### *Cultivating The Mother Tree;* The archaic revival of Wo-Mans Gaian connection through honoring the feminine. Cultivating an ally, bonding with Mother Earth as *'The Live And Dynamic Co-evolutionary Partner'* in the shaping of the set, setting and the process.
 
-***Power as responsibility rather than domination.*** Radically sifting from Eco-Logical warfare; built on guilt, fear and force to an ***'Eco-Logical Partnership'.***
+***Power as responsibility rather than domination.*** Radically sifting from Eco-Logical warfare; built on guilt, fear and force to an ***'environMental Partnership'.***
 
-***Partnership systems support mutually respectful and caring relations.***
+***Partnership ecosystems support mutually respectful and caring relations.***
 
 ***Creating co-Evolutionary Leaders;*** Revolutionary Eco-Logical Actions that connect and are transferable through to nature, environ-Mental health is prevention of the wasteful use of resources. *Waste* being something discarded before its usefulness has been realized.
 
@@ -36,7 +36,7 @@ Being attracted to all that is alive and vital, the human experience of relating
 
 **Reconciliation; forgiveness, free to turn and question: Where does *someone* go from here?**
 
-***Art,*** as the vehicle for ***working through feelings of living in a damaged world,*** artisan cultures that symbiotically connect, healing soil to soul.
+***Art,*** as the vehicle for ***working through feelings of living in a damaged world,*** artisan cultures that symbiotically connect by producing something meaningful.
 
 ***Acting As Curator; someone who has the care of something.*** Claiming ones relationship with Mother Nature, cultivating ones own legacy so future generations have a place to call Home.
 
@@ -91,21 +91,21 @@ Being responsible stewards of *Mother Earth* means taking to heart the current *
 
 ***The aesthetics of ecology.*** The cultivation of a more attuned and responsive awareness of Wo-Mans ecological interconnections, recognizing feelings which are in touch with reality, providing a powerful way of finding out which lifestyle patterns are balanced and which are not.
 
-#### *Learning to live in the light of Nature.*
-
-**Soil to Soul; Humanity, finding one self a part of the *circle of existence,* thereby logically *accepting* this circumstance, *responsibility* then means *ability*- an action oriented *authentic response* to the situation as it is, in the present moment.**
-
 #### *Quality Of Life*
 
 It's ones alone, that's why it takes a common *unity,* a partnership of individuals doing the right things.
 
 Loss of biodiversity and ecosystems are catastrophic, impacts are symbiotic happening within the physical body through too *Mother Earth,* far into future generations.
 
-Today’s young generation are being handed the biggest challenge of all; ***'Cultivating Biodiversity'*** the symbiotic living ***'Fabric of Life'*** of this planet.
-
 Not addressing immediate needs is an insult to the young. Individuals with passion, purpose and practical skills make the *world* a better place.
 
-#### *Calling Home, producing something meaningful. Taking reGenerative Action, acts to connect and transfer through too Mother Earth, soil to soul cultivating cultures that are healing.* Knowing what to do, and doing it.
+Today’s young generation are being handed the biggest challenge of all; ***'Cultivating Biodiversity'*** the symbiotic living ***'Fabric of Life'*** of this planet.
+
+#### *Learning to live in the light of Nature.*
+
+**Soil to Soul; Humanity, finding one self a part of the *circle of existence,* thereby logically *accepting* this circumstance, *responsibility* then means *ability*- an action oriented *authentic response* to the situation as it is, in the present moment.**
+
+*Knowing what to do and doing it. Calling Home.*
 
 #### Explore
 
