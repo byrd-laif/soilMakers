@@ -38,9 +38,9 @@ Being attracted to all that is alive and vital, the human experience of relating
 
 ***Art,*** as the vehicle for ***working through feelings of living in a damaged world,*** artisan cultures that symbiotically connect, healing soil to soul.
 
-***Giving someone courage;*** for changing what must be altered, empathy for accepting what cannot be helped, and the insight for knowing one from the other. *Love and labor are inseparable, calling forth deep bravery from within.*
-
 ***Acting As Curator; someone who has the care of something.*** Claiming ones relationship with Mother Nature, cultivating ones own legacy so future generations have a place to call Home.
+
+***Giving someone courage;*** for changing what must be altered, empathy for accepting what cannot be helped, and the insight for knowing one from the other. *Love and labor are inseparable, calling forth deep bravery from within.*
 
 [**Lifestyles For Change; Bringing Life To Style.**](./lifeStylesForChange/lifeStylesForChangeIntro.md)
 
@@ -53,7 +53,7 @@ Blog Sharing; Resources mixed with inspiring actionable know-how. Sharing creati
 
 [**Soil Makers Projects and Events On *Open Collective**](https://opencollective.com/soil-makers)
 
-Open Micro Financing and Payment Management Tools: **Open Collective** provides transparency, so everyone can see; where funds come from, for what and whom it goes to and the results it produces. (Within varying degrees of access and visability.)
+***Open Collective**- Open Micro Financing and Payment Management Tools with integrated and purposeful transparency, so everyone can see; where funds come from, for what and whom it goes to and the results it produces. (Within varying degrees of access and visibility.)
 
 ### *Soil Makers ~ *Salon Circle**
 
@@ -61,11 +61,11 @@ Open Micro Financing and Payment Management Tools: **Open Collective** provides 
 
 ***A renewed culture of Artful Conversation; honoring someone's intention within a group process, were each idea is valued for itself, creating appreciated forms.***
 
-At a time of environMental and economic precarity, *salon circle* discourse offers a safe space for reconnecting; rethinking and remaking mutually symbiotic relations within the body of one-self, one-another and Mother Earth.
-
 Salon and Circle Culture; Cross-pollinating, connecting, sharing authentic lived experiences, diverse ideas and feelings about Mother Earth and the future.
 
-[**Soil Makers Salon Circle - Live and Interactive**](https://matrix.to/#/!LSpVaMCiYQehpJONFF:matrix.org?via=matrix.org&via=t2bot.io&via=stux.chat)
+At a time of environMental and economic precarity, *salon circle* discourse offers a safe space for reconnecting; rethinking and remaking mutually symbiotic relations within the body of one-self, one-another and Mother Earth. Taking the steps, teaching what one needs to learn.
+
+[**Soil Makers Salon Circle - Live and Interactive***](https://matrix.to/#/!LSpVaMCiYQehpJONFF:matrix.org?via=matrix.org&via=t2bot.io&via=stux.chat)
 ***Connecting and sharing in conversation.***
 - Details: this is a private encrypted chat room, upon arrival one will not see the history. Allowing time to experience the conversation in flow prior to *participation.
 
@@ -73,7 +73,7 @@ Salon and Circle Culture; Cross-pollinating, connecting, sharing authentic lived
 
 ### *Salon Circle; Events, Programs and/or Experiences.*
 
-***The *seeds of opportunity;* an awareness, taking the moment and transforming it into a better situation, something new and beautiful. Taking the steps, teaching what one needs to learn.***
+***The *seeds of opportunity;* an awareness, taking the moment and transforming it into a better situation, something new and beautiful, something meaningful.***
 
 **Harvesting Knowledge.**
 Awakening possibility and creative insight; refining the tastes, and increasing the knowledge through interaction. Guiding meaningful conversations, organized around living cultures and ideas reflective of the era in which one lives.
@@ -89,13 +89,15 @@ Being responsible stewards of *Mother Earth* means taking to heart the current *
 
 #### *Environ-Mental Health*
 
-***The aesthetics of ecology.*** The cultivation of a more attuned and responsive awareness of Wo-Mans ecological interconnections, recognizing feelings which are in touch with reality, providing a powerful way of finding out which lifestyle patterns are balanced and which are not. Learning to live in the light of Nature.
+***The aesthetics of ecology.*** The cultivation of a more attuned and responsive awareness of Wo-Mans ecological interconnections, recognizing feelings which are in touch with reality, providing a powerful way of finding out which lifestyle patterns are balanced and which are not.
+
+#### *Learning to live in the light of Nature.*
 
 **Soil to Soul; Humanity, finding one self a part of the *circle of existence,* thereby logically *accepting* this circumstance, *responsibility* then means *ability*- an action oriented *authentic response* to the situation as it is, in the present moment.**
 
 #### *Quality Of Life*
 
-It's ones alone, that's why it takes a common unity, a partnership of individuals doing the right things.
+It's ones alone, that's why it takes a common *unity,* a partnership of individuals doing the right things.
 
 Loss of biodiversity and ecosystems are catastrophic, impacts are symbiotic happening within the physical body through too *Mother Earth,* far into future generations.
 
@@ -103,7 +105,7 @@ Today’s young generation are being handed the biggest challenge of all; ***'Cu
 
 Not addressing immediate needs is an insult to the young. Individuals with passion, purpose and practical skills make the *world* a better place.
 
-#### *Calling Home. Taking Action, and for those acts to connect and transfer through too Mother Earth, soil to soul cultivating cultures that are healing.* Knowing what to do, and doing it.
+#### *Calling Home, producing something meaningful. Taking reGenerative Action, acts to connect and transfer through too Mother Earth, soil to soul cultivating cultures that are healing.* Knowing what to do, and doing it.
 
 #### Explore
 
