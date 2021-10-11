@@ -85,7 +85,7 @@ An integrated set of processes that allow the often hidden insight of human expe
 
 ***Cultivating a more desirable, fulfilling, life supporting; Ecologically Modern and Realistic Lifestyle.***
 
-Being responsible stewards of *Mother Earth* means taking to heart the current *planetary healing crisis* of which humanity is apart of.
+Being responsible stewards of *Mother Earth* means taking to heart the current *planetary healing crisis* of which humanity is apart of. Awakening to the present moment, seeing this requires a willingness to be changed by it.
 
 #### *Environ-Mental Health*
 

@@ -82,7 +82,7 @@ Kefir made from whole fat dairy has high levels of calcium and holds bio-active 
 
 ***Fights Cancer***
 
-The bio-active compounds of kefir such as polysaccharides and bio-active peptides have great potential for inhibition of proliferation and induction of apoptosis in tumor cells. Kefiran is also used as an antioxidant and anti-tumor agent. Many studies revealed that kefir acts on different cancers such as colorectal cancer, malignant T lymphocytes, breast cancer and lung carcinoma. 
+The bio-active compounds of kefir such as polysaccharides and bio-active peptides have great potential and are used as an antioxidant and anti-tumor agent. Many studies revealed that kefir acts on different cancers such as colorectal cancer, malignant T lymphocytes, breast cancer and lung carcinoma.
 
 Kefir benefits in the fight against cancer are due to its large anti-carcinogenic role inside the body, slowing the growth of early tumors.
 
@@ -94,7 +94,7 @@ Kefir milk helps restore balance and fight against gastrointestinal diseases lik
 
 Various forms of allergies and asthma are all linked to inflammatory issues on the body.
 
-The live microorganisms present in kefir help promote the immune system to naturally suppress allergic reactions and aid in changing the body’s response to the systemic outbreak points for allergies. Some scientists believe these allergic reactions are the result of a lack of good bacteria in the gut. Taking pro-biotics improves allergic symptoms and quality of life.
+The live microorganisms present in kefir help promote the immune system to naturally suppress allergic reactions and aid in changing the body’s response to the *systemic outbreak points for allergies.* Some scientists believe these allergic reactions are the result of a lack of good bacteria in the gut. Taking pro-biotics improves allergic symptoms and quality of life.
 
 ***Heals Skin***
 
@@ -133,8 +133,8 @@ Kluyveromyces marxianus/Candida kefyr, Lactococcus lactis subsp. lactis, Lactoco
 
 - Milk Kefir Grains: 1 - 2 tablespoons 
 - Glass jar with lid, 3 - 4 cup volume
-- Mesh strainer, nylon or stainless steel 
-- Spoon (wood or plastic)
+- Mesh strainer: nylon or stainless steel 
+- Spoon
 - Wide bowl to strain Kefir
 - 2 cups Fresh Milk 
 
@@ -150,7 +150,7 @@ Avoid antibacterial soaps. For sterile jars and hands, use vinegar to rinse or [
 
 Ferment at room temperature for about 24 hours, or until product thickens or sours to liking.
 
-*Traditional kefir was made in goatskin bags hung near a doorway as to be knocked by anyone passing through and keep the milk and kefir grains well mixed.*
+*Traditional kefir was made in goatskin bags hung near a doorway as to be knocked by anyone passing through, keeping the milk and kefir grains well mixed.*
 
 **3. Straining Liquid Kefir**
 
