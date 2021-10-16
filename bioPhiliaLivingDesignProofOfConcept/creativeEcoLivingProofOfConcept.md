@@ -3,24 +3,28 @@ title: Vivarium ~ place of life - Proof of concept Urban Creative Eco-living.
 date: 2021-02-28
 ---
 
-# Bio*Philia* Living: Designing For Connection; The Healing Spirit Of Nature.
+# Bio*Philia* Living Design
 
-***An archaic revival; the sharing of a living language, learning how to discover patterns which are deep and capable of reGenerating life.***
+## reGenerative Ecosystems Based Lifestyle 
 
-## *Designing Through Spirit; Using curiosity, intuition and imagination, the æsthetics of a natural law.*
+***Tapping into the healing spirit of nature. An archaic revival; the sharing of a living language, learning how to discover patterns which are deep and capable of reGenerating life.***
 
-**A response to the challenge of her Life; reForming a Relationship with Mother Earth, an Act of surrender.**
+### *Biologically connected, naturally anti viral, biotic, fungal and septic. A system designed to prohibit the growth of harmful pathogens, viruses and bacteria. 
+
+A response to the challenge of her Life; *reForming a Relationship with Mother Earth, an Act of surrender.*
 
 *Proof of concept: Oct 2016 - Jan 2020 (guest reviews available upon request)*
 In the process of accepting the truth the deepest passion was reveled. It was in fact a part of the soul that was healed in this process. *The compassion of Mother Earth to forgive. And Give. Only when compassion is present will the heart revel the truth, for only then one is capable of facing the truth.*
 
-### Conservation As Consequence Of Lifestyle And Work. 
+#### Conservation As Consequence Of Lifestyle And Work. 
 
 **reGenerative urban living; The cultivation of a mutually symbiotic habitat, that honors the individual as a *biological organism* in the *built environment*, within the *biophysical environment. Creating possibility for bio-positive economic exchanges to occur.***
 
-#### Becoming a part of the circle of life. The *symbiotic relationships* and feelings generated between *Wo-Man and Mother Earth* (environment) are highlighted, not humans and 'things'.
+The *symbiotic relationships* and feelings generated between *Wo-Man and Mother Earth* (environment) are highlighted, not humans and 'things'. **Using curiosity, intuition and imagination, *the æsthetics of a natural law.***
 
 ***Harvesting Knowledge:*** Through cultivating the ability of observation, discovering patterns which are alive. Cataloging felt experiences, sources in the natural environment, of positive biological, physical and emotional states that humans experience. Recreating them in the built and cultivated environments to enhance connection and support emotional, mental, physical and biological health. While exploring where and what the surpluses generated are, *revenue streams that connect*.
+
+#### Planet care is health care, becoming a part of the circle of life. 
 
 Meaningful living; life-giving and life-sustaining with a high degree of refinement and comfort. Adaptable to all practical needs of life within an attractive built environment.
 

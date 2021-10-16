@@ -5,12 +5,13 @@
 ## *The Ecology Is The Economy.*
 
 **Conservation as consequence of lifestyle and work.**
+Transforming an ecological withdraw into a *return, an environMental deposit for the future.*
 
 ### *Putting the Biome on the Balance Sheet.*
 
 **Cultivating a *Bio-logical Economy* creates the market for an *Ecologically Sustainable* future.**
 
-***Transforming an ecological withdraw into a return, an environMental deposit for the future. Mobilizing bio-resources (organic refuse) and converting this into Eco-logical Pro-biotics for the Biome. Whole environMental health, soil to soul, returned as something meaningful.***
+***Ecosystems Based Adaptation:*** Mobilizing bio-resources (organic refuse) and converting this into Eco-logical Pro-biotics for the Biome. Whole health, soil to soul, returned as something meaningful.***
 
 ### *Eco-Logical Movement And Enterprise*
 
@@ -22,7 +23,7 @@
 
 Body Autonomy is ***environ-Mental Freedom**; freely swimming in the rivers of Mother Earth without fear of reprisal.*
 
-Being attracted to and a part of all that is alive and vital, the human experience of relating to and connecting with life and natural processes - ***Is The Expression Of An Eco-Logical Need.***
+Being attracted to and a part of all that is alive and vital, the human experience of relating to and connecting with life and natural ecosystem processes - ***Is The Expression Of An Eco-Logical Need.***
 
 #### *Cultivating The Mother Tree;* The archaic revival of Wo-Mans Gaian connection through honoring the feminine. Cultivating an ally, bonding with Mother Earth as *'The Live And Dynamic Co-evolutionary Partner'* in the shaping of the set, setting and the process.
 
@@ -36,11 +37,11 @@ Being attracted to and a part of all that is alive and vital, the human experien
 
 **Reconciliation; forgiveness, free to turn and question: Where does *someone* go from here?**
 
-***Art,*** as the vehicle for ***working through feelings of living in a damaged world,*** artisan cultures that symbiotically connect by producing something meaningful.
+***Art,*** as the vehicle for ***working through feelings of living in a damaged world,*** artisan cultures symbiotically connect by producing something meaningful.
 
-***Acting As Curator; someone who has the care of something.*** Claiming ones relationship with Mother Nature, cultivating ones own legacy so future generations have a place to call Home.
+***Acting As Curator; someone who has the care of something.*** Claiming ones relationship with Mother Nature, cultivating ones own legacy so future generations have a place for calling Home.
 
-***Giving someone courage;*** for changing what must be altered, empathy for accepting what cannot be helped, and the insight for knowing one from the other. *Love and labor are inseparable, calling forth deep bravery from within.*
+***Giving someone courage;*** for changing what must be altered, empathy for accepting what cannot be helped, and the insight (experience) for knowing (feeling) one from the other. *Love and labor are inseparable, calling forth deep bravery from within.*
 
 [**Lifestyles For Change; Bringing Life To Style.**](./lifeStylesForChange/lifeStylesForChangeIntro.md)
 
@@ -49,7 +50,7 @@ Being attracted to and a part of all that is alive and vital, the human experien
 [**Soil Makers ~ *Blog***](https://matrix.to/#/!EwezVvVjpxKVCMIuRM:matrix.org?via=matrix.org&via=kde.org&via=converser.eu)
 Accessing the blog and salon circle rooms: *Element.io* is secure and independent communication, connected via Matrix.org an open network for secure, decentralized communication. Working together, designed for communities; an open messenger and collaboration tool that supports public and private chats, including powerful moderation tools.
 
-Blog Sharing; Resources mixed with inspiring actionable know-how. Sharing creativity, working with natural beauty, building, cultivating ecosystems and design. ... The masters of these crafts are inspiring, generating feelings, using the felt experience to ***Cultivate environMental Literacy;*** Feeling the body into reality. The vibration of connecting to that which makes living possible through ART, meaningful work, built and cultivated forms.
+***Blog Sharing; Resources mixed with inspiring actionable know-how.*** Sharing creativity, working with natural beauty, building, cultivating ecosystems and design. ... The masters of these crafts are inspiring, generating feelings, using the felt experience to ***Cultivate environMental Literacy;*** Feeling the body into reality. The vibration of connecting to that which makes living possible through ART, meaningful work, built and cultivated forms.
 
 [**Soil Makers Projects and Events On *Open Collective**](https://opencollective.com/soil-makers)
 
@@ -59,7 +60,7 @@ Blog Sharing; Resources mixed with inspiring actionable know-how. Sharing creati
 
 ***Networking Global Communities For Local Impacts.**
 
-***A renewed culture of Artful Conversation; honoring someone's intention within a group process, were each idea is valued for itself, creating appreciated forms.***
+***A renewed salon culture of Artful Conversation; honoring someone's intention within a group process, were each idea is valued for itself, creating appreciated forms.***
 
 Salon and Circle Culture; Cross-pollinating, connecting, sharing authentic lived experiences, diverse ideas and feelings about Mother Earth and the future.
 
