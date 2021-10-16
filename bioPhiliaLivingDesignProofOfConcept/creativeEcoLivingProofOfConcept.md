@@ -9,7 +9,7 @@ date: 2021-02-28
 
 ***Tapping into the healing spirit of nature. An archaic revival; the sharing of a living language, learning how to discover patterns which are deep and capable of reGenerating life.***
 
-### *Biologically connected, naturally anti viral, biotic, fungal and septic. A system designed to prohibit the growth of harmful pathogens, viruses and bacteria. 
+### *Biologically connected, naturally anti viral, biotic, fungal and septic. A system designed to prohibit the growth of harmful pathogens, viruses and bacteria.*
 
 A response to the challenge of her Life; *reForming a Relationship with Mother Earth, an Act of surrender.*
 

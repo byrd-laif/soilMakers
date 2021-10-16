@@ -11,7 +11,7 @@ Transforming an ecological withdraw into a *return, an environMental deposit for
 
 **Cultivating a *Bio-logical Economy* creates the market for an *Ecologically Sustainable* future.**
 
-***Ecosystems Based Adaptation:*** Mobilizing bio-resources (organic refuse) and converting this into Eco-logical Pro-biotics for the Biome. Whole health, soil to soul, returned as something meaningful.***
+***Ecosystems Based Adaptation:*** Mobilizing bio-resources (organic refuse) and converting this into Eco-logical Pro-biotics for the Biome. Whole health, soil to soul, returned as something meaningful.
 
 ### *Eco-Logical Movement And Enterprise*
 
