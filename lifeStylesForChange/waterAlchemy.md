@@ -14,11 +14,11 @@ date: 2018-08-13
 
 ![Enzyme Spa](./enzymeImages/enzymeWoodHempBrush.JPG)
 
-### Pro-biotic Eco-enzyme is *Water Therapy;* Forgiveness and healing through nature. 
+### Pro-biotic Eco-enzyme is *Water Therapy; a Symbiotic Eco-system* of forgiveness and healing through nature.
 
-Connecting with things that make living possible, the practice of spending time *cultivating living healing water* for the purpose of enhancing whole health.
+Ancestral Healing- environMental Health is *Bio-logical Body and Earth care,* wellness, and happiness. A practice of *symbiotic connection* within the natural world and with each other.
 
-Ancestral Healing- *Bio-logical Body and Earth care,* wellness, and happiness. A practice of *symbiotic connection* within the natural world and with each other.
+The shared human birthright; freely connecting with things that make living possible, the ritual of spending time *cultivating living healing water* for the purpose of enhancing whole health, producing something meaningful.
 
 ![Enzyme Spa Glass Brew](./enzymeImages/enzymeGlassBrew.jpg) 
 
@@ -52,7 +52,7 @@ There are many targeted uses for these metabolites. LAB are applied in food prod
 
 ***The Gift of Life is in the giving, conservation is the consequence of production.***
 
-Cultivating cultures that heal, symbiotically keep the body healthy while restoring vitality and strength to the environment. It is easily done at negligible cost, free of harmful pollutants, effective, and multipurpose.***
+Cultivating cultures that heal, symbiotically keep the body healthy while restoring vitality and strength to the environment. It is easily done at negligible cost, free of harmful pollutants, effective, and multipurpose.
 
 ***WATER***
 
@@ -97,7 +97,7 @@ By no surprise, improving water quality makes a significant difference.
 
 **Body and Soil, Symbiotic Microbial Gardens.**
 
-**The human body contain 10 times more bacteria than human cells, meaning around 100 trillion microbes make up the physical human body. Humans are Wild in this way, symbiotically connected to the environment.** The largest colony in the human body is located in the stomach and intestines. The bacteria digest substances that help the immune system defend against invaders. This exact same process happens symbiotically, in soil, water and the food that grows from it. Protecting and feeding the microbes with Pro-biotic Eco-enzyme will keep the micro-biome full of live beneficial organisms, which will help keep digestion, immunity and overall health on track. **Body, Soil and Water encouraging the growth of healthy bacteria.**
+**The human body contain 10 times more bacteria than human cells, meaning around 100 trillion microbes make up the physical human body. Humans are Wild in this way, symbiotically connected to the environment.** The largest colony in the human body is located in the stomach and intestines. The bacteria digest substances that help the immune system defend against invaders. This exact same process happens symbiotically, in soil, water and the food that grows from it. Protecting and feeding the microbes with Pro-biotic Eco-enzyme will keep the micro-biome full of live beneficial organisms, which will help keep digestion, immunity and overall health on track. **Body, Soil and Water encouraging the growth of healthy micro-organisms.**
 
 **Pro-Biotic Eco-Enzyme are therapeutic *soul food* for the micro-biome, Soil to Soul.**
 
@@ -115,7 +115,7 @@ Fermentation naturally produces Lactic Acid Bacteria (LAB), one of the most well
 
 ***Naturally; Anti-Bacterial, Anti-Fungal, Anti-Viral and a Natural Antiseptic.***
 
-**Stable**- If the ferment is full of its necessary nutrients, it can survive even at pH value below 3.5, this ferment usually produces a beautiful safe and stable pH range of 3 to 4.5. The fermentation can remain active even at temperatures as high as 100C.
+**Stable**- If the ferment is full of its necessary nutrients, it can survive even at pH value below 3.5, this ferment usually produces a beautiful safe and stable pH range of 3 to 5. The fermentation can remain active even at temperatures as high as 100C.
 
 **Safe**- Naturally teaming with antimicrobial goodness, these bacteria inhibit the growth of pathogens naturally eliminating the need for preservatives. Ferments are toxic free and perfect for the most sensitive at any age.
 
@@ -160,25 +160,26 @@ Fermentation naturally produces Lactic Acid Bacteria (LAB), one of the most well
 **The 1:4:10 Ratio**
 
 - Molasses or brown sugar: 1 part
-- Organic food remnants: 4-5 parts
+- Fruit and vegetable fresh remnants: 4-5 parts
 - Water: 10 parts
+
+This is just a guideline, experiment and play with the ratio, when fermenting large amounts of fruit remnants sugar content can be reduced by half.
 
 ![bottle enzyme](./enzymeImages/enzymeBottle.jpg)
 
 **Step 1:**
-- Fill container half way with water, leaving room for expansion and fresh fruit remnants (50% of the volume).
+- Fill container half way with water (50% of the volume), leaving room for expansion and fresh remnants.
 
 **Step 2:**
-- Add 1 part (or less) brown sugar to the container and stir.
+- Add 1 part (or less) sugar to the container and stir.
 
 **Step 3:**
-- Add 4-5 parts fruit remnants into the container. The smaller chopped the pieces the better the ferment.
-This is just a guideline, experiment and play with the ratio.
+- Add 4-5 parts chopped remnants as they become available into the container. The smaller the pieces the better the ferment.
 
 **Step 4:**
-- Top up with water if needed, close the container and let the mixture **ferment for 3 months.** It’s important not to expose the ferment to the air. During the first month, gases will be released during fermentation process. **Pressure will built up in the container, release daily to avoid rupturing or use an airlock.** Leave the cap a little lose or put a balloon over to avoid an explosion. A cloth with elastic is not suitable for this type of fermentation. Date the bin!
+- When the bin is 75% full date the bin!**In the first month of fermentation gases will be released, pressure will built up in the container, release daily to avoid rupturing or use an airlock.** Leave the cap a little lose to avoid an explosion. It’s important not to expose the ferment to the air. After the ferment has stabilized, close the container and let the mixture **ferment for 3 months.**
 
-Fermentation time & environment: 3 months minimum, from the time stopped adding food remnants. Store in a dark environment away from excessive heat.
+Fermentation time & environment: 3 months minimum from the time stopped adding food remnants. Store in a dark environment away from excessive heat.
 
 ![filter](./enzymeImages/enzymeProcess05.jpg)
 
@@ -228,25 +229,27 @@ One can create a separate catch-all bin for everything else like veggie scraps, 
 ![enzyme filter with micro fiber](./enzymeImages/enzymeFineProcess08.jpg)
 
 #### *Using Eco-Enzyme*
+Perfect for dish washing, laundry, shampoo and body wash, drastically reducing consumption of chemicals and mitigating harmful effects.
 
-Eco-Enzymes can be used safely at full strength, undiluted, on the most sensitive skin. Ratios provided are a personal preference, experiment to discover what works best, allow intuition to be the guide. Keeping things modular helps to retain creativity.
+Eco-Enzymes can be used safely at full strength and undiluted on the most sensitive skin. Ratios provided are a personal preference, experiment to discover what works best, allowing intuition to be the guide. Keeping things modular helps to retain creativity.
 
-**Enzyme to Water dilution ratios for different usage:**
+**Eco-Enzyme:Detergent:Water** dilution ratios for different usage:
 
-- Hair and body wash - 1:1
-- Mouthwash/Toothpaste - 1:1 or undiluted
+- Hair and body wash - 1:1:10 (enzyme:detergent:water)
+- Mouthwash/Toothpaste - 1:1 (enzyme:water) or undiluted
 - Warts and fungal infections - undiluted
-- Wound healing, diaper rash wash - 1:10 or undiluted
-- Dish washing - 1:500
-- Laundry detergent, natural fabric softener - 1:500
-- Evaporative cooler - air freshener - 1:500
-- Insect replant and fertilizer for the garden - 1:500
-- Fruit and vegetable wash (submerge for 5 min) to remove chemicals and pesticides - 3:100 (30ml enzyme to 1 liter water)
-- House hold surface cleaning - 3:100
+- Wound healing, diaper rash wash - 1:10 (enzyme:water)
+- Dish washing - 1:1:10 (enzyme:detergent:water)
+- Laundry detergent, natural fabric softener - 1:500 (enzyme:water)
+- Evaporative cooler - air freshener - 1:500 (enzyme:water)
+- Insect replant and fertilizer for the garden - 1:500 (enzyme:water)
+- Fruit and vegetable wash, submerge for 5-20 min to remove chemicals and pesticides - 15ml enzyme to 5 liter water
+- House hold surface cleaning - 3:100 (enzyme:water)
+- Mopping and toilet cleaning - 1:500 (enzyme:water)
 
 ![enzyme with soap](./enzymeImages/enzymeFinish.jpg)
 
-***Adding 30ml to 50ml of liquid store bought detergent/shampoo to 1000ml of Eco-Enzyme makes a great concentrated de-greaser/cleaner/shampoo. Drastically reducing consumption and mitigating harmful effects. Perfect for dish washing, laundry, shampoo and body wash.***
+***Personal Tip; Adding 30ml to 50ml of liquid store bought detergent/body wash/shampoo to 1000ml of Eco-Enzyme makes a great concentrated de-greaser/cleaner/shampoo.***
 
 ... The list goes on.
 
